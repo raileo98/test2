@@ -1,3 +1,27 @@
+# Elon Musk calls for a US-Europe free trade zone
+
+![The billionaire also said he favoured more freedom for people to move between Europe and North America for work. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799077_1_20250406044926.jpg&q=90)
+  
+
+Billionaire US presidential adviser Elon Musk said on Saturday he hoped Europe and the United States would agree to join in a free-trade zone after US leader Donald Trump unleashed heavy global trade tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799077-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799077-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799077-20250406.htm)
+
+---
+
 # Liverpool closer to title as Everton hold Arsenal
 
 ![Ndiaye's penalty leaves the Gunners' title hopes in tatters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799063_1_20250405215706.jpg&q=75)
@@ -1413,29 +1437,5 @@ US President Donald Trump signed an executive order on Wednesday that closes a t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm)
-
----
-
-# 'Tariffs will change global trading system'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798733_1_20250403083353.jpg&q=90)
-  
-
-Canadian Prime Minister Mark Carney on Wednesday vowed to "fight" against US President Donald Trump's sweeping tariffs, which he warned will "fundamentally change the global trading system."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm)
 
 ---
