@@ -1,3 +1,27 @@
+# 英超阿士東維拉2:1挫諾定咸森林
+
+![維拉球員慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799075_1_20250406024316.jpg&q=85)
+  
+
+英格蘭超級足球聯賽，阿士東維拉主場2:1擊敗諾定咸森林。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799075-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799075-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799075-20250406.htm)
+
+---
+
 # 巴黎聖日耳門提早奪得法甲聯賽冠軍
 
 ![聖日耳門球員賽後慶祝第13次在法甲封王。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799071_1_20250406012954.jpg&q=90)
@@ -1433,29 +1457,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797268-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797268-20250325.htm)
-
----
-
-# 黃澤林不敵禾頓　邁阿密網球公開賽男單第三圈止步
-
-![黃澤林未能晉級十六強。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797223_1_20250325013300.jpg&q=90)
-  
-
-邁阿密網球公開賽男單第三圈，持外卡參賽的香港球手黃澤林，以盤數1:2不敵澳洲的禾頓，未能晉級十六強，但仍然創下本港球手在ATP-1000分賽的最佳成績。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797223-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797223-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797223-20250325.htm)
 
 ---

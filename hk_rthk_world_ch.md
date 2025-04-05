@@ -1,3 +1,27 @@
+# 馬克龍宣布將與約旦、埃及舉行三方峰會討論加沙局勢
+
+![馬克龍將於星期一起訪問埃及兩天。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799074_1_20250406023527.jpg&q=90)
+  
+
+法國總統馬克龍將於星期一起訪問埃及兩天。他宣布，將與埃及總統塞西及約旦國王阿卜杜拉二世就加沙局勢舉行三方峰會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799074-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799074-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799074-20250406.htm)
+
+---
+
 # 馬斯克：希望美國與歐洲邁向零關稅
 
 ![馬斯克向意大利極右政黨聯盟黨集會發表視像講話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799073_1_20250406022618.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm)
-
----
-
-# 尹錫悅所屬執政國民力量黨稱接受裁決　尹錫悅代表律師稱令人費解
-
-![反對尹錫悅的示威者聽到裁決結果後歡呼。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798916_1_20250404114517.jpg&q=90)
-  
-
-南韓憲法法院通過對尹錫悅的彈劾案，尹錫悅被罷免總統職務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798916-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798916-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798916-20250404.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 英超阿士東維拉2:1挫諾定咸森林
+
+![維拉球員慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799075_1_20250406024316.jpg&q=85)
+  
+
+英格蘭超級足球聯賽，阿士東維拉主場2:1擊敗諾定咸森林。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799075-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799075-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799075-20250406.htm)
+
+---
+
+# 馬克龍宣布將與約旦、埃及舉行三方峰會討論加沙局勢
+
+![馬克龍將於星期一起訪問埃及兩天。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799074_1_20250406023527.jpg&q=90)
+  
+
+法國總統馬克龍將於星期一起訪問埃及兩天。他宣布，將與埃及總統塞西及約旦國王阿卜杜拉二世就加沙局勢舉行三方峰會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799074-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799074-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799074-20250406.htm)
+
+---
+
 # 馬斯克：希望美國與歐洲邁向零關稅
 
 ![馬斯克向意大利極右政黨聯盟黨集會發表視像講話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799073_1_20250406022618.jpg&q=90)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798999-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798999-20250405.htm)
-
----
-
-# 港股美國預託證券急挫　恒指ADR指數跌507點
-
-![港股美國預託證券急挫，恒指ADR指數報22343點，比星期四恒指收市跌507點，跌幅2.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798997_1_20250405060331.jpg&q=90)
-  
-
-港股美國預託證券(ADR)急挫，恒指ADR指數報22343點，比星期四恒指收市跌507點，跌幅2.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm)
-
----
-
-# 金價曾挫逾3%　下試3000美元關口
-
-![現貨金一度跌逾3%，跌至每盎司3016美元水平，較早時徘徊3037美元，跌2.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798996_1_20250405055651.jpg&q=85)
-  
-
-金價下跌，貿易戰加劇引發投資者對全球經濟衰退的擔憂，投資者拋售黃金，以填補股市大跌帶來的損失。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm)
 
 ---
