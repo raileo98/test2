@@ -1,3 +1,50 @@
+# 任天堂推遲Switch2在美預售時間　評估關稅影響
+
+![日本任天堂公司推遲新款遊戲機Switch2在美國的預售日期，評估關稅影響。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799040_1_20250405160641.jpg&q=90)
+  
+
+日本共同社報道，日本任天堂公司推遲新款遊戲機Switch2在美國的預售日期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm)
+
+---
+
+# 緬甸特區救援隊遇酷熱天氣及蚊患問題　入境處協調張羅蚊帳等物資
+
+  
+
+正在緬甸協助救援的特區救援隊表示，暫時遇到最大的困難是當地酷熱的天氣及蚊患問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799039-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799039-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799039-20250405.htm)
+
+---
+
 # 陳茂波：美國加徵關稅易引市場情緒反應　政府有監察機制建立緩衝
 
 ![陳茂波表示，美國總統特朗普向全球各國加徵關稅，特區政府已有監察機制，期望及早識別出問題，然後化解，以及建立一個較大的緩衝。（陳豊贊攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799038_1_20250405155621.jpg&q=90)
@@ -51,7 +98,7 @@
 ![人民日報發表評論文章，批評美國不知所云的所謂「對等關稅」，將反噬美國經濟。（人民網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799033_1_20250405151637.jpg&q=90)
   
 
-美國今日起對所有出口到美國的商品徵收至少10%關稅，當中中國的關稅是34%。人民日報發表評論文章，批評美國不知所云的所謂「對等關稅」，是赤裸裸的單邊貿易保護主義政策，不僅將反噬美國經濟，更將嚴重破壞多邊貿易體制，衝擊全球產業鏈供應鏈，加劇國際貿易緊張和全球經濟分裂。
+美國今日起對所有出口到美國的商品徵收至少10%對等關稅，當中中國的關稅是34%。人民日報發表評論文章，批評美國不知所云的所謂「對等關稅」，是赤裸裸的單邊貿易保護主義政策，不僅將反噬美國經濟，更將嚴重破壞多邊貿易體制，衝擊全球產業鏈供應鏈，加劇國際貿易緊張和全球經濟分裂。
 
   
 
@@ -72,6 +119,7 @@
 
 # 美國和巴拿馬官員討論長和經營巴拿馬運河港口審計問題
 
+![美國副國務卿蘭多與巴拿馬外長馬丁內斯阿查通話，討論長和經營巴拿馬運河港口的審計問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799032_1_20250405160827.jpg&q=65)
   
 
 美國副國務卿蘭多與巴拿馬外長馬丁內斯阿查通話，討論長和集團經營巴拿馬運河港口的審計問題。
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm)
-
----
-
-# 杜邦中國涉違《反壟斷法》遭立案調查
-
-![國家市場監督管理總局指杜邦中國集團有限公司涉嫌違反《反壟斷法》，依法開展立案調查。（國家市場監督管理總局網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798965_1_20250404202632.jpg&q=90)
-  
-
-國家市場監督管理總局宣布，杜邦中國集團有限公司涉嫌違反《反壟斷法》，市監局依法開展立案調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm)
-
----
-
-# 緬甸大地震增至逾3300人死
-
-![緬甸中部大地震，增至超過3300人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798964_1_20250404200934.jpg&q=35)
-  
-
-緬甸中部大地震，增至超過3300人死亡、近4800人受傷，仍有200多人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm)
 
 ---

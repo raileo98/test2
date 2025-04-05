@@ -1,3 +1,27 @@
+# Youth facilities to open in Kai Tak by October
+
+![Secretary for Home and Youth Affairs Alice Mak says the organisation has to operate the facilities on a self-financing basis. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799037_1_20250405154953.jpg&q=80)
+  
+
+Secretary for Home and Youth Affairs Alice Mak on Saturday said youth facilities will be set up at the original site of an isolation facility in Kai Tak by October this year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799037-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799037-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799037-20250405.htm)
+
+---
+
 # Myanmar quake death toll passes 3,300
 
 ![Many people have to sleep outdoors because their homes were destroyed. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799034_1_20250405153937.jpg&q=85)
@@ -1413,30 +1437,5 @@ Stuttgart set up a German Cup final clash with third-division Arminia Bielefeld 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798718-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798718-20250403.htm)
-
----
-
-# Liverpool beat Everton as title looms; City cruise
-
-![Diogo Jota scored the only goal of the match in Liverpool's win over Everton. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_1_20250403053524.jpg&q=90)
-![Jack Grealish scored his first league goal since December 2023 in the victory for City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_2_20250403053524.jpg&q=85)
-  
-
-Liverpool moved closer to the Premier League title with a 1-0 win in the Merseyside derby against Everton, while Manchester City beat Leicester 2-0 to bolster their bid to reach the Champions League.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798717-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798717-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798717-20250403.htm)
 
 ---

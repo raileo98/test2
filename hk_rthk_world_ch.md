@@ -1,5 +1,30 @@
+# 任天堂推遲Switch2在美預售時間　評估關稅影響
+
+![日本任天堂公司推遲新款遊戲機Switch2在美國的預售日期，評估關稅影響。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799040_1_20250405160641.jpg&q=90)
+  
+
+日本共同社報道，日本任天堂公司推遲新款遊戲機Switch2在美國的預售日期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm)
+
+---
+
 # 美國和巴拿馬官員討論長和經營巴拿馬運河港口審計問題
 
+![美國副國務卿蘭多與巴拿馬外長馬丁內斯阿查通話，討論長和經營巴拿馬運河港口的審計問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799032_1_20250405160827.jpg&q=65)
   
 
 美國副國務卿蘭多與巴拿馬外長馬丁內斯阿查通話，討論長和集團經營巴拿馬運河港口的審計問題。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm)
-
----
-
-# 緬甸大地震逾3100死　敏昂萊抵曼谷出席地區峰會
-
-![敏昂萊抵達曼谷出席峰會，在大會晚宴與泰國總理佩通坦合照。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798872_1_20250404011017.jpg&q=90)
-  
-
-緬甸中部大地震發生一星期，死亡人數上升至超過3100人，4500多人受傷，仍有約220人失蹤。中國駐緬甸大使館確認，中國公民4死13傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798872-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798872-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798872-20250404.htm)
 
 ---
