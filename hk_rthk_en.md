@@ -1,3 +1,27 @@
+# Myanmar quake death toll passes 3,300
+
+![Many people have to sleep outdoors because their homes were destroyed. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799034_1_20250405153937.jpg&q=85)
+  
+
+The death toll from a major earthquake in Myanmar has risen above 3,300, state media said on Saturday, as the United Nations aid chief made a renewed call for the world to help the disaster-struck nation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799034-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799034-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799034-20250405.htm)
+
+---
+
 # Manufacturers told to look for markets outside US
 
 ![Allen Shi (right) was speaking on a Commercial Radio programme. Photo courtesy of Commercial Radio.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799027_1_20250405130110.jpg&q=90)
@@ -1414,29 +1438,5 @@ Liverpool moved closer to the Premier League title with a 1-0 win in the Merseys
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798717-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798717-20250403.htm)
-
----
-
-# Israel to seize 'large areas' of Gaza
-
-![Israel carries out deadly air strikes in southern and central Gaza. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798686_1_20250402213633.jpg&q=90)
-  
-
-Israel said on Wednesday it would expand its military operations and seize "large areas" of the Gaza Strip where rescuers said 34 people were killed in Israeli strikes, including on a United Nations building.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm)
 
 ---

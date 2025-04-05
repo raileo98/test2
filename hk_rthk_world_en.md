@@ -1,3 +1,27 @@
+# Myanmar quake death toll passes 3,300
+
+![Many people have to sleep outdoors because their homes were destroyed. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799034_1_20250405153937.jpg&q=85)
+  
+
+The death toll from a major earthquake in Myanmar has risen above 3,300, state media said on Saturday, as the United Nations aid chief made a renewed call for the world to help the disaster-struck nation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799034-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799034-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799034-20250405.htm)
+
+---
+
 # Tariffs to raise inflation, cool growth: Fed Chair
 
 ![Jerome Powell said on Friday that he expected the current uncertainty to decline in the coming months. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798991_1_20250405044209.jpg&q=90)
@@ -1411,29 +1435,5 @@ Myanmar's ruling junta declared a week of national mourning on Monday for the co
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm)
-
----
-
-# US tariffs to target 'all countries'
-
-![Donald Trump arrives back at the White House. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798259_1_20250331152712.jpg&q=90)
-  
-
-US President Donald Trump said the tariffs he plans to impose in the coming days would include "all countries," not just those with the largest trade imbalances with the United States.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm)
 
 ---
