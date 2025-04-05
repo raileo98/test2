@@ -1,3 +1,27 @@
+# UTS網球賽首於亞洲舉行　10月啟德體藝館8球手競逐錦標
+
+![香港站賽事將由8名球手競逐錦標，包括澳洲球手迪文拿奧與中國球手張之臻等。（UTS網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799064_1_20250405223925.jpg&q=90)
+  
+
+中國香港網球總會宣布，網球賽事Ultimate Tennis Showdown（UTS）今年10月14至15日，在啟德體育園體藝館一連兩日上演，是這項賽事首度在亞洲舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm)
+
+---
+
 # 日本發生旅遊巴意外　據報47人受傷包括香港人
 
 ![日本發生旅遊巴意外　據報47人受傷包括香港人](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799062_1_20250405215151.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm)
-
----
-
-# 古特雷斯呼籲國際社會向緬甸加大資金支持
-
-![古特雷斯呼籲國際社會，向發生7.9級地震的緬甸加大資金支持。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798890_1_20250404094220.jpg&q=90)
-  
-
-聯合國秘書長古特雷斯呼籲國際社會，向發生大地震的緬甸加大資金支持，並確保人道主義援助不受阻礙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798890-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798890-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798890-20250404.htm)
 
 ---

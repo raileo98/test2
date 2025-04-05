@@ -1,3 +1,27 @@
+# UTS網球賽首於亞洲舉行　10月啟德體藝館8球手競逐錦標
+
+![香港站賽事將由8名球手競逐錦標，包括澳洲球手迪文拿奧與中國球手張之臻等。（UTS網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799064_1_20250405223925.jpg&q=90)
+  
+
+中國香港網球總會宣布，網球賽事Ultimate Tennis Showdown（UTS）今年10月14至15日，在啟德體育園體藝館一連兩日上演，是這項賽事首度在亞洲舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm)
+
+---
+
 # 霍啟剛歡迎政府調整精英體育資助　對香港成體育產業中心感樂觀
 
 ![霍啟剛（左二）歡迎政府調整精英體育資助制度；鄭泳舜（右二）期望啟德體育園有更多商業運作。（商台直播截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799011_1_20250405112807.jpg&q=90)
@@ -1433,31 +1457,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm)
-
----
-
-# 歐國聯4強產生德國對葡萄牙　西班牙硬撼法國
-
-![基斯坦奴朗拿度帶領葡萄牙晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797079_1_20250324072025.jpg&q=90)
-![法國隊成功逆轉，反勝克羅地亞晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797079_2_20250324072025.jpg&q=90)
-![德國次回合被逼和，但仍然晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797079_3_20250324072025.jpg&q=90)
-  
-
-歐國聯4強產生，德國將對葡萄牙，西班牙將硬撼法國。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797079-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797079-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797079-20250324.htm)
 
 ---

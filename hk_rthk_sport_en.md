@@ -1,3 +1,27 @@
+# Liverpool closer to title as Everton hold Arsenal
+
+![Ndiaye's penalty leaves the Gunners' title hopes in tatters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799063_1_20250405215706.jpg&q=75)
+  
+
+Arsenal's small remaining hope of a first Premier League title for 21 years was further diminished after a 1-1 draw at Everton on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799063-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799063-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799063-20250405.htm)
+
+---
+
 # Thomas Müller to leave Bayern Munich after this season
 
 ![Müller came through the Bayern junior system and has won two Champions Leagues along with 12 Bundesliga titles. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799054_1_20250405184900.jpg&q=90)
@@ -1428,29 +1452,5 @@ World number one Aryna Sabalenka battled back in the second set to blast her way
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm)
-
----
-
-# Djokovic marches into Miami quarters; Ruud exits
-
-![Novak Djokovic breezed past Italy's Lorenzo Musetti to book his spot in the next round in Miami. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797434_1_20250326101120.jpg&q=90)
-  
-
-Novak Djokovic cruised into the quarter-finals of the Miami Open with a 6-2, 6-2 win over Italian Lorenzo Musetti in one hour 22 minutes.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm)
 
 ---

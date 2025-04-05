@@ -1,3 +1,27 @@
+# Liverpool closer to title as Everton hold Arsenal
+
+![Ndiaye's penalty leaves the Gunners' title hopes in tatters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799063_1_20250405215706.jpg&q=75)
+  
+
+Arsenal's small remaining hope of a first Premier League title for 21 years was further diminished after a 1-1 draw at Everton on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799063-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799063-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799063-20250405.htm)
+
+---
+
 # China says US must 'stop using tariffs as a weapon'
 
 ![Foreign Ministry spokesperson Guo Jiakun wrote on Facebook that "the market has spoken," after Wall Street headed south two days in a row. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799060_1_20250405203120.jpg&q=90)
@@ -1413,29 +1437,5 @@ Canadian Prime Minister Mark Carney on Wednesday vowed to "fight" against US Pre
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm)
-
----
-
-# US trade tariff 'not act of a friend': Albanese
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798732_1_20250403082709.jpg&q=90)
-  
-
-Donald Trump's trade tariffs on close ally Australia are "not the act of a friend" and will hurt the two nations' relationship, Prime Minister Anthony Albanese said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm)
 
 ---

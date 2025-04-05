@@ -1,3 +1,27 @@
+# UTS網球賽首於亞洲舉行　10月啟德體藝館8球手競逐錦標
+
+![香港站賽事將由8名球手競逐錦標，包括澳洲球手迪文拿奧與中國球手張之臻等。（UTS網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799064_1_20250405223925.jpg&q=90)
+  
+
+中國香港網球總會宣布，網球賽事Ultimate Tennis Showdown（UTS）今年10月14至15日，在啟德體育園體藝館一連兩日上演，是這項賽事首度在亞洲舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm)
+
+---
+
 # 日本發生旅遊巴意外　據報47人受傷包括香港人
 
 ![日本發生旅遊巴意外　據報47人受傷包括香港人](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799062_1_20250405215151.jpg&q=90)

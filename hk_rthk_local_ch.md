@@ -1,3 +1,27 @@
+# UTS網球賽首於亞洲舉行　10月啟德體藝館8球手競逐錦標
+
+![香港站賽事將由8名球手競逐錦標，包括澳洲球手迪文拿奧與中國球手張之臻等。（UTS網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799064_1_20250405223925.jpg&q=90)
+  
+
+中國香港網球總會宣布，網球賽事Ultimate Tennis Showdown（UTS）今年10月14至15日，在啟德體育園體藝館一連兩日上演，是這項賽事首度在亞洲舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm)
+
+---
+
 # 林定國稱本港供水穩定全賴可靠東江水供應
 
 ![林定國參觀大型藝術展覽「舞動水滴展」。（林定國社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799058_1_20250405200412.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798850-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798850-20250403.htm)
-
----
-
-# 86歲老婦旺角失蹤　警方籲市民提供消息
-
-![警方呼籲市民提供在旺角失蹤婦人的消息。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798849_1_20250403201935.jpg&q=90)
-  
-
-警方呼籲市民提供一名在旺角失蹤婦人的消息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm)
 
 ---
