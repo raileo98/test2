@@ -1,3 +1,27 @@
+# 中柬兩軍啟動聯合演習　提高戰略協作水平
+
+![柬埔寨首相洪瑪奈（前中）出席中柬雲壤港聯合保障和訓練中心掛牌儀式。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799065_1_20250405230812.jpg&q=90)
+  
+
+中國和柬埔寨兩國的軍隊在中柬雲壤港聯合保障和訓練中心組織「金龍-2025」聯合演習啟動活動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799065-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799065-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799065-20250405.htm)
+
+---
+
 # UTS網球賽首於亞洲舉行　10月啟德體藝館8球手競逐錦標
 
 ![香港站賽事將由8名球手競逐錦標，包括澳洲球手迪文拿奧與中國球手張之臻等。（UTS網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799064_1_20250405223925.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798900-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798900-20250404.htm)
-
----
-
-# 《環看天下》：特朗普宣布對等關稅　分析料通脹加劇無可避免
-
-![特朗普宣布向全球多國及地區實施「對等關稅」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798894_1_20250404082028.jpg&q=90)
-  
-
-美國總統特朗普宣布，向全球多國實施「對等關稅」，包括向所有進口貨品，徵收10%「基準關稅」，個別國家的稅率更高，包括向中國貨品繼原有加徵20%關稅後，額外再加徵34%「對等關稅」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm)
 
 ---
