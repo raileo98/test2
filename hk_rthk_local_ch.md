@@ -1,3 +1,27 @@
+# 陳茂波：應視北都為產業導向發展而非房地產開發　投資回報期較長
+
+![陳茂波表示，不能視北部都會區發展為房地產開發概念，應視為產業導向發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799051_1_20250405181309.jpg&q=90)
+  
+
+財政司司長陳茂波表示，不能視北部都會區發展為房地產開發概念，應視為產業導向發展，而投資回報期會較長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799051-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799051-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799051-20250405.htm)
+
+---
+
 # 蔡若蓮：支持資優教育學院為資優生提供進階課程　鼓勵參加國際賽
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799044_1_20250405173422.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798837-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798837-20250403.htm)
-
----
-
-# 火炭謀殺案押後至5月29日再訊　被告還押
-
-![案件在沙田裁判法院首次提堂，裁判官應控方申請，將案件押後至5月29日再訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798836_1_20250403184710.jpg&q=80)
-  
-
-火炭上月發生一宗謀殺案，男被告下午在沙田裁判法院首次提堂。裁判官應控方申請，將案件押後至5月29日再訊，被告須還押候訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm)
 
 ---

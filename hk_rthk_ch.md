@@ -1,3 +1,27 @@
+# 陳茂波：應視北都為產業導向發展而非房地產開發　投資回報期較長
+
+![陳茂波表示，不能視北部都會區發展為房地產開發概念，應視為產業導向發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799051_1_20250405181309.jpg&q=90)
+  
+
+財政司司長陳茂波表示，不能視北部都會區發展為房地產開發概念，應視為產業導向發展，而投資回報期會較長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799051-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799051-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799051-20250405.htm)
+
+---
+
 # 蔡若蓮：支持資優教育學院為資優生提供進階課程　鼓勵參加國際賽
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799044_1_20250405173422.jpg&q=80)
@@ -963,7 +987,7 @@
 
 # 路透：中國因美國關稅拒絕批准分拆TikTok交易
 
-![其中一名知情人士說，有關交易的結構在星期三基本敲定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798994_1_20250405052506.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798994_1_20250405052506.jpg&q=90)
   
 
 路透社引述知情人士報道，美國總統特朗普宣布徵收對等關稅後，中國表示不會批准分拆字節跳動旗下短片分享平台TikTok在美資產的交易，有關交易被擱置。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm)
-
----
-
-# 美國網紅遊港多處有支持者等候　天后站有閘機被破壞港鐵已報警
-
-![這名美國網紅今日到港九多個地點，多處有支持者等候。（直播截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798970_1_20250404215538.jpg&q=90)
-  
-
-一名美國網紅近日來港，今日到港九多個地點，多處有大批他的支持者等候。期間在港鐵天后站，有設施被毀壞，港鐵已經報警，並譴責作出相關行為的人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm)
 
 ---
