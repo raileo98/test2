@@ -1,4 +1,4 @@
-# Water tariff review aims to make user pay: director
+# Water tariff review aims to make users pay: director
 
 ![Roger Wong says the review of water charges aims to achieve the principle of user pays. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799041_1_20250405161641.jpg&q=90)
   
