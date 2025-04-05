@@ -1,3 +1,26 @@
+# 南韓總統辦公室網站暫停運作　指正在維修
+
+  
+
+南韓總統辦公室網站暫停運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799030-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799030-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799030-20250405.htm)
+
+---
+
 # 國家統計局：今年1至2月份中國消費市場運行平穩向好
 
 ![國家統計局數據顯示，今年1月至2月份中國消費市場運行平穩向好。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799029_1_20250405134002.jpg&q=85)
@@ -69,11 +92,11 @@
 
 ---
 
-# 啟德青年驛站旅舍　由中國旅遊集團旗下博盛民旅營運須自負盈虧
+# 啟德青年驛站旅舍　由中國旅遊集團旗下博盛文旅營運須自負盈虧
 
   
 
-去年《施政報告》提出改造啟德社區隔離設施作為「青年驛站」旅舍，以及青年文化藝術與體育交流空間。民政及青年事務局局長麥美娟表示，標書審議工作已經完成，由中國旅遊集團旗下公司為主要股東的博盛民旅有限公司作為營運團體，香港中旅發展及帝盛酒店集團為協辦機構，合作營運青年發展設施，租約期為5年，營運團體需要自負盈虧。
+去年《施政報告》提出改造啟德社區隔離設施作為「青年驛站」旅舍，以及青年文化藝術與體育交流空間。民政及青年事務局局長麥美娟表示，標書審議工作已經完成，由中國旅遊集團旗下公司為主要股東的博盛文旅有限公司作為營運團體，香港中旅發展及帝盛酒店集團為協辦機構，合作營運青年發展設施，租約期為5年，營運團體需要自負盈虧。
 
   
 
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798957-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798957-20250404.htm)
-
----
-
-# 中方在世貿組織起訴美國對等關稅措施
-
-![商務部發言人表示，美方徵收所謂「對等關稅」，嚴重違反世貿組織規則，嚴重損害世貿組織成員正當合法權益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798956_1_20250404183848.jpg&q=75)
-  
-
-在北京，商務部表示，中方已在世貿組織爭端解決機制起訴美國「對等關稅」措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm)
 
 ---

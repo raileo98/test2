@@ -1,3 +1,26 @@
+# 南韓總統辦公室網站暫停運作　指正在維修
+
+  
+
+南韓總統辦公室網站暫停運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799030-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799030-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799030-20250405.htm)
+
+---
+
 # 內地商會促美方糾正損人不利己單邊霸凌
 
 ![內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799020_1_20250405132447.jpg&q=75)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798870-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798870-20250404.htm)
-
----
-
-# 再多一名中國人死於緬甸大地震
-
-![中國駐緬甸大使館確認，再多一名中國人死於緬甸中部大地震。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798862_1_20250403223629.jpg&q=90)
-  
-
-中國駐緬甸大使館確認，再多一名中國人死於緬甸中部大地震，至今共4名中國公民死亡，13人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm)
 
 ---
