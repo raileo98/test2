@@ -1,3 +1,26 @@
+# 陳茂波：美國加徵關稅易引市場情緒反應　政府有監察機制建立緩衝
+
+  
+
+財政司司長陳茂波說，國際投資者對中國和香港的投資意慾已經轉勢，由約兩年前認為不適合投資，變為現時「怕走雞」、「怕執輸」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm)
+
+---
+
 # 運輸署料今日較後時間及明日較多旅客陸路入境　籲預留充裕時間
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm)
-
----
-
-# 商務部對原產於美國、印度進口CT球管展開反傾銷調查
-
-![商務部對原產於美國、印度進口CT球管展開反傾銷調查。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798961_1_20250404190018.jpg&q=75)
-  
-
-在北京，商務部宣布對原產於美國、印度的進口相關醫用CT球管發起反傾銷立案調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798961-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798961-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798961-20250404.htm)
 
 ---

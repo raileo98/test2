@@ -1,3 +1,26 @@
+# 陳茂波：美國加徵關稅易引市場情緒反應　政府有監察機制建立緩衝
+
+  
+
+財政司司長陳茂波說，國際投資者對中國和香港的投資意慾已經轉勢，由約兩年前認為不適合投資，變為現時「怕走雞」、「怕執輸」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm)
+
+---
+
 # 運輸署料今日較後時間及明日較多旅客陸路入境　籲預留充裕時間
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm)
-
----
-
-# 香港律師會訪京　湯文龍稱任何對公職人員制裁都是對法治侮辱
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798824_1_20250403183643.jpg&q=80)
-  
-
-美國國務院早前宣布，對6名中央和香港特區官員實施制裁。香港律師會會長湯文龍表示，不以政治角度評論事件，就法律角度而言，任何對於公職人員的制裁都是對法治的侮辱。他説，任何人包括律政司司長，根據《基本法》下行使應有的權利，不應該受到干預和制裁。如果制裁是透過政治手段，作爲法律從業員，他們對此予以譴責。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm)
 
 ---
