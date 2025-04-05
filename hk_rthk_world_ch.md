@@ -1,3 +1,27 @@
+# 內塔尼亞周日啟程赴美與特朗普討論關稅等議題
+
+![以色列總理辦公室說，內塔尼亞胡將與特朗普討論關稅、推動被人質獲釋等一系列議題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799080_1_20250406054700.jpg&q=90)
+  
+
+以色列總理辦公室表示，應美國總統特朗普邀請，內塔尼亞胡將於周日啟程訪問華盛頓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799080-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799080-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799080-20250406.htm)
+
+---
+
 # 英法領袖通電話對美國關稅政策帶來影響表示擔憂
 
 ![首相施紀賢（左）與法國總統馬克龍通電話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799079_1_20250406051013.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm)
-
----
-
-# 尹錫悅被罷免總統職務　代總統指示保持戒備防北韓挑釁
-
-![尹錫悅成為南韓憲政史上第二位被罷免的總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798937_1_20250404153208.jpg&q=90)
-  
-
-南韓憲法法院通過對尹錫悅的彈劾案，尹錫悅即時被罷免總統職務。尹錫悅通過律師說，未能滿足國民期望，感到非常遺憾和抱歉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm)
 
 ---

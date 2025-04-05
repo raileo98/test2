@@ -1,3 +1,27 @@
+# 內塔尼亞周日啟程赴美與特朗普討論關稅等議題
+
+![以色列總理辦公室說，內塔尼亞胡將與特朗普討論關稅、推動被人質獲釋等一系列議題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799080_1_20250406054700.jpg&q=90)
+  
+
+以色列總理辦公室表示，應美國總統特朗普邀請，內塔尼亞胡將於周日啟程訪問華盛頓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799080-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799080-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799080-20250406.htm)
+
+---
+
 # 英法領袖通電話對美國關稅政策帶來影響表示擔憂
 
 ![首相施紀賢（左）與法國總統馬克龍通電話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799079_1_20250406051013.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799001-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799001-20250405.htm)
-
----
-
-# 美國10年期債息跌穿4厘　創半年新低
-
-![美國10年期債息跌穿4厘水平，低見3.86厘，創半年新低，尾市貼近4厘水平。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799002_1_20250405080153.jpg&q=90)
-  
-
-中國採取反制措施，應對美國對等關稅，美債孳息率下滑，但美國上月就業報告表現好過預期，紓緩債息跌勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799002-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799002-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799002-20250405.htm)
 
 ---
