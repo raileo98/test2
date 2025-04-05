@@ -119,7 +119,7 @@
 
 # 陳茂波指對等關稅對本港「間接影響遠大於直接」
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799049_1_20250405182532.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799049_2_20250405185202.jpg&q=85)
   
 
 美國宣布徵收對等關稅，財政司司長陳茂波認為，對本港帶來的「間接影響」，遠大於「直接影響」，認為本港要做好本分，以底線思維準備不同預案，亦不能低估其影響。
