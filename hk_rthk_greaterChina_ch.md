@@ -1,3 +1,26 @@
+# 內地商會促美方糾正損人不利己單邊霸凌
+
+  
+
+內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。中國醫藥保健品進出口商會表示，全球民眾健康權益不應受到不公平貿易措施侵害，堅決反對美方單邊貿易霸凌行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm)
+
+---
+
 # 內地賞花熱潮帶動經濟　西藏林芝「桃花第一村」花海改善村民生活
 
 ![西藏巴宜區嘎拉村被譽為「桃花第一村」，種植超過1250棵野生桃樹。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_1_20250405092358.jpg&q=15)
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm)
-
----
-
-# 羅淑佩拜會國務院港澳辦和國家體育總局
-
-![羅淑佩拜會國務院港澳辦和國家體育總局](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798682_1_20250402212217.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩展開北京行程，拜會國務院港澳辦和國家體育總局。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm)
 
 ---

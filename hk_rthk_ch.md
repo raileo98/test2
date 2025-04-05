@@ -1,3 +1,26 @@
+# 內地商會促美方糾正損人不利己單邊霸凌
+
+  
+
+內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。中國醫藥保健品進出口商會表示，全球民眾健康權益不應受到不公平貿易措施侵害，堅決反對美方單邊貿易霸凌行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm)
+
+---
+
 # 控煙酒辦在銅鑼灣酒吧向非法吸食水煙人士發三張定額罰款通知
 
 ![控煙酒辦昨晚派員到銅鑼灣進行代號「菸滅」的行動，共發出三張定額罰款通知書。人員在行動中檢取水煙。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799018_1_20250405111612.jpg&q=90)
@@ -24,7 +47,7 @@
 
 # 房協發新租約全面規管富戶　凌嘉勤：若不接受有4個月寬限期遷出
 
-![凌嘉勤說，推出富戶政策及加強打擊濫用公屋後，房協已收回140個單位。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799017_1_20250405111850.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799017_1_20250405111850.jpg&q=90)
   
 
 房協會向出租屋邨租戶發出新的租約，全面規管富戶。房協主席凌嘉勤出席本台節目《星期六問責》表示，新租約有附加條款，要求住戶需要定期申報入息和資產，如果不接受條款，住戶有4個月寬限期遷出單位。房協已陸續向住戶解釋，並計劃在9月前，舉辦超過100場解說會，向2萬5千個租戶講解新做法。
@@ -120,6 +143,7 @@
 
 # 霍啟剛歡迎政府調整精英體育資助　對香港成體育產業中心感樂觀
 
+![霍啟剛（左二）歡迎政府調整精英體育資助制度；鄭泳舜（右二）期望啟德體育園有更多商業運作。（商台直播截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799011_1_20250405112807.jpg&q=90)
   
 
 港協暨奧委會副會長、立法會議員霍啟剛表示，歡迎政府調整精英體育資助制度，支持運動員的發展，又認為政府是聆聽社會意見後作出彈性改動。
@@ -887,7 +911,7 @@
 
 ---
 
-# 英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕
+# 英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被控
 
 ![英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798974_1_20250404224512.jpg&q=90)
   
@@ -1412,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm)
-
----
-
-# 敏昂萊在曼谷晤佩通坦討論打擊跨境詐騙
-
-![到泰國曼谷出席地區峰會的緬甸軍政府領袖敏昂萊，與泰國總理佩通坦會談，重點討論共同打擊電訊和網絡詐騙集團。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798948_1_20250404171008.jpg&q=90)
-![緬甸軍政府領袖敏昂萊與印度總理莫迪會面，討論雙邊聯繫和基建合作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798948_2_20250404171008.jpg&q=90)
-  
-
-到泰國曼谷出席地區峰會的緬甸軍政府領袖敏昂萊，與泰國總理佩通坦會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm)
 
 ---

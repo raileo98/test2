@@ -1,3 +1,26 @@
+# 內地商會促美方糾正損人不利己單邊霸凌
+
+  
+
+內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。中國醫藥保健品進出口商會表示，全球民眾健康權益不應受到不公平貿易措施侵害，堅決反對美方單邊貿易霸凌行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm)
+
+---
+
 # 烏克蘭有住宅區被俄導彈轟炸　最少19死包括9名兒童
 
 ![克里維里赫巿一個住宅區，星期五被俄羅斯的導彈擊中，烏方官員說最少19人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799012_1_20250405104232.jpg&q=80)
@@ -502,7 +525,7 @@
 
 ---
 
-# 英國喜劇演員羅素布蘭德涉嫌襲擊和強姦
+# 英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被控
 
 ![英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798974_1_20250404224512.jpg&q=90)
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm)
-
----
-
-# 匈牙利宣布退出國際刑事法院
-
-![匈牙利拒執行國際刑事法院針對以色列總理內塔尼亞胡的拘捕令，並宣布退出國際刑事法院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798846_1_20250403193828.jpg&q=90)
-  
-
-匈牙利拒執行國際刑事法院針對以色列總理內塔尼亞胡的拘捕令，並宣布退出國際刑事法院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm)
 
 ---
