@@ -1,3 +1,27 @@
+# 陳茂波指對等關稅對本港「間接影響遠大於直接」
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799049_1_20250405182532.jpg&q=85)
+  
+
+美國宣布徵收對等關稅，財政司司長陳茂波認為，對本港帶來的「間接影響」，遠大於「直接影響」，認為本港要做好本分，以底線思維準備不同預案，亦不能低估其影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799049-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799049-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799049-20250405.htm)
+
+---
+
 # 陳茂波：應視北都為產業導向發展而非房地產開發　投資回報期較長
 
 ![陳茂波表示，不能視北部都會區發展為房地產開發概念，應視為產業導向發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799051_1_20250405181309.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798839-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798839-20250403.htm)
-
----
-
-# 李家超在政總主持學習全國兩會精神座談會　鄭雁雄出席
-
-![李家超表示，香港在「一國兩制」獨特優勢下，可以更大力度發揮內聯外通的橋樑作用，鞏固和歐美等傳統市場的經貿聯繫。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798837_1_20250403185430.jpg&q=90)
-  
-
-行政長官李家超在社交專頁表示，今天在政府總部主持學習全國兩會精神座談會，特別感謝中聯辦主任鄭雁雄出席，與一眾特區政府官員、港區全國人大代表、港區全國政協委員、行政會議成員、立法會議員等300多人分享學習全國兩會精神和重要內容。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798837-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798837-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798837-20250403.htm)
 
 ---

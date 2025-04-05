@@ -1,3 +1,27 @@
+# 泰國將倒塌大樓鋼筋樣本送往檢驗　中國大使館：反對詆毀抹黑中企
+
+![泰國當局將倒塌的國家審計署大樓鋼筋樣本送到實驗室檢驗，確認是否符合標準。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799046_1_20250405172826.jpg&q=35)
+  
+
+泰國曼谷在建的國家審計署大樓早前受緬甸大地震波及倒塌。泰國當局再將大樓不同區域收集到的鋼筋樣本送到實驗室檢驗，確認是否符合標準。當局又計劃採集大樓混凝土板樣本檢查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm)
+
+---
+
 # 柬埔寨雲壤海軍基地正式啟用　中柬派員維持正常運轉
 
 ![柬埔寨首相洪瑪奈（前左）和中共中央軍委聯合參謀部副參謀長曹青鋒（前右）共同主持雲壤海軍基地啟用儀式。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799035_1_20250405154619.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798875-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798875-20250404.htm)
-
----
-
-# 特朗普暗示關稅帶來衝擊但美國經濟將變得強勁　白宮籲相信總統
-
-![美國總統特朗普公布的對等關稅措施引發市場動盪。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798874_1_20250404014823.jpg&q=90)
-  
-
-美國總統特朗普公布的對等關稅措施引發市場動盪後，特朗普在社交平台貼文，指手術已結束，病人存活過來並正在康復，預計會比以前更強大。外電解讀為特朗普承認關稅帶來衝擊，但美國經濟仍將會變得更強勁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm)
 
 ---

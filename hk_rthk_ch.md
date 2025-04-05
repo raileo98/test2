@@ -1,3 +1,27 @@
+# 陳茂波指對等關稅對本港「間接影響遠大於直接」
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799049_1_20250405182532.jpg&q=85)
+  
+
+美國宣布徵收對等關稅，財政司司長陳茂波認為，對本港帶來的「間接影響」，遠大於「直接影響」，認為本港要做好本分，以底線思維準備不同預案，亦不能低估其影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799049-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799049-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799049-20250405.htm)
+
+---
+
 # 陳茂波：應視北都為產業導向發展而非房地產開發　投資回報期較長
 
 ![陳茂波表示，不能視北部都會區發展為房地產開發概念，應視為產業導向發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799051_1_20250405181309.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm)
-
----
-
-# 中國出多招反制美國　包括向原產美國的進口商品加34%關稅
-
-![中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798971_1_20250404220458.jpg&q=75)
-  
-
-中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm)
 
 ---
