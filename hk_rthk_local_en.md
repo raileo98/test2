@@ -1,3 +1,27 @@
+# Retaliatory tariffs on US goods 'aim to cause pain'
+
+![Lau Siu-kai, a consultant to the Chinese Association of Hong Kong and Macau Studies, said China's measures were not gestures. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799015_1_20250405103147.jpg&q=80)
+  
+
+A senior member of a leading national think tank says China's retaliatory tariffs on the US aim to cause pain. Lau Siu-kai, a consultant to the Chinese Association of Hong Kong and Macau Studies, said that given the difficult trade situation, China's retaliatory measures were not gestures, saying otherwise they would be meaningless.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm)
+
+---
+
 # Four men to appear in court over spate of burglaries
 
 ![Police allege that property totalling about HK$375,000 was taken during the thefts. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799007_1_20250405093500.jpg&q=70)
@@ -1415,29 +1439,5 @@ Rugby lovers from Hong Kong and beyond filled up the Kai Tak Stadium on Sunday t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm)
-
----
-
-# 'Hutchison deal won't stop family offices coming here'
-
-![Christopher Hui says the SAR is an attractive destination for capital and family offices. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798116_1_20250330155453.jpg&q=90)
-  
-
-The controversy over CK Hutchison's plans to sell dozens of ports won't affect family offices' interest in investing in Hong Kong, financial services minister Christopher Hui said on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm)
 
 ---

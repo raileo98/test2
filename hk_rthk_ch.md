@@ -1,5 +1,30 @@
+# 羅素布蘭德否認襲擊和強姦　警方稱調查仍進行
+
+![羅素布蘭德在社交平台發文，否認有關指控。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799019_1_20250405111008.jpg&q=90)
+  
+
+美國流行歌手Katy Perry的前夫、英國喜劇演員羅素布蘭德被控襲擊和強姦，將於下月提堂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799019-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799019-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799019-20250405.htm)
+
+---
+
 # 控煙酒辦在銅鑼灣酒吧向非法吸食水煙人士發三張定額罰款通知
 
+![控煙酒辦昨晚派員到銅鑼灣進行代號「菸滅」的行動，共發出三張定額罰款通知書。人員在行動中檢取水煙。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799018_1_20250405111612.jpg&q=90)
   
 
 衞生署控煙酒辦昨晚派員到銅鑼灣一間酒吧巡查和採取執法行動，向非法吸食水煙的人士，共發出3張定額罰款通知書。調查仍在進行，控煙酒辦會考慮向涉嫌協助及教唆吸煙罪行的酒吧經營者提出檢控，亦會將個案轉介酒牌局跟進。
@@ -23,6 +48,7 @@
 
 # 房協發新租約全面規管富戶　凌嘉勤：若不接受有4個月寬限期遷出
 
+![凌嘉勤說，推出富戶政策及加強打擊濫用公屋後，房協已收回140個單位。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799017_1_20250405111850.jpg&q=90)
   
 
 房協會向出租屋邨租戶發出新的租約，全面規管富戶。房協主席凌嘉勤出席本台節目《星期六問責》表示，新租約有附加條款，要求住戶需要定期申報入息和資產，如果不接受條款，住戶有4個月寬限期遷出單位。房協已陸續向住戶解釋，並計劃在9月前，舉辦超過100場解說會，向2萬5千個租戶講解新做法。
@@ -1409,30 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm)
-
----
-
-# 敏昂萊在曼谷晤佩通坦討論打擊跨境詐騙
-
-![到泰國曼谷出席地區峰會的緬甸軍政府領袖敏昂萊，與泰國總理佩通坦會談，重點討論共同打擊電訊和網絡詐騙集團。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798948_1_20250404171008.jpg&q=90)
-![緬甸軍政府領袖敏昂萊與印度總理莫迪會面，討論雙邊聯繫和基建合作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798948_2_20250404171008.jpg&q=90)
-  
-
-到泰國曼谷出席地區峰會的緬甸軍政府領袖敏昂萊，與泰國總理佩通坦會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm)
 
 ---

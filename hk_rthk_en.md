@@ -1,3 +1,27 @@
+# Retaliatory tariffs on US goods 'aim to cause pain'
+
+![Lau Siu-kai, a consultant to the Chinese Association of Hong Kong and Macau Studies, said China's measures were not gestures. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799015_1_20250405103147.jpg&q=80)
+  
+
+A senior member of a leading national think tank says China's retaliatory tariffs on the US aim to cause pain. Lau Siu-kai, a consultant to the Chinese Association of Hong Kong and Macau Studies, said that given the difficult trade situation, China's retaliatory measures were not gestures, saying otherwise they would be meaningless.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm)
+
+---
+
 # Alex Ovechkin matches Gretzky's NHL record
 
 ![Ovechkin tied Gretzky's monumental mark with a power-play goal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799014_1_20250405103308.jpg&q=90)
@@ -1414,29 +1438,5 @@ The Hong Kong and Macau Affairs Office (HKMAO) on Wednesday reposted an article 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm)
-
----
-
-# More arrests in Fo Tan murder case
-
-![Superintendent Li Muk-yik said officers were able to identify the suspects through surveillance cameras. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798670_1_20250402193112.jpg&q=90)
-  
-
-Police said on Wednesday more suspects have been arrested in connection with the murder of a 52-year-old man in Fo Tan last month.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798670-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798670-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798670-20250402.htm)
 
 ---
