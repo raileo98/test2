@@ -1,3 +1,26 @@
+# 蔡若蓮：支持資優教育學院為資優生提供進階課程　鼓勵參加國際賽
+
+  
+
+教育局局長蔡若蓮說，人才是發展新質生產力的重要資源，為支持香港發展成為國際國際創新科技中心，配合國家實施科教興國的戰略，局方在中小學大力推動STEAM教育外，亦非常重視資優教育，近年推動學校善用校本學生人才庫，裝備教師識別有潛能的學生，協助他們發展才能。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799044-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799044-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799044-20250405.htm)
+
+---
+
 # 文憑試英文科卷三聆聽及綜合能力今開考　考評局指各試場運作暢順
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm)
-
----
-
-# 入境處反非法勞工拘捕16人　包括兩名僱主
-
-![懷疑非法勞工在行動中被捕。（入境處提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798834_1_20250403184311.jpg&q=80)
-  
-
-入境處一連三日在多區展開反非法勞工行動，拘捕14名懷疑非法勞工及2名涉嫌聘用非法勞工的僱主。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm)
 
 ---

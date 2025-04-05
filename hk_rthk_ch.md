@@ -1,3 +1,26 @@
+# 蔡若蓮：支持資優教育學院為資優生提供進階課程　鼓勵參加國際賽
+
+  
+
+教育局局長蔡若蓮說，人才是發展新質生產力的重要資源，為支持香港發展成為國際國際創新科技中心，配合國家實施科教興國的戰略，局方在中小學大力推動STEAM教育外，亦非常重視資優教育，近年推動學校善用校本學生人才庫，裝備教師識別有潛能的學生，協助他們發展才能。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799044-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799044-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799044-20250405.htm)
+
+---
+
 # 柬埔寨雲壤海軍基地正式啟用　中柬派員維持正常運轉
 
 ![柬埔寨首相洪瑪奈（前左）和中共中央軍委聯合參謀部副參謀長曹青鋒（前右）共同主持雲壤海軍基地啟用儀式。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799035_1_20250405154619.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm)
-
----
-
-# 特朗普：中國對貿易戰驚慌失措　自己政策不會變
-
-![美國總統特朗普在社交平台指，自己政策不會變。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798969_1_20250404213821.jpg&q=90)
-  
-
-中國反制美國對等關稅措施後，美國總統特朗普在社交平台指，中國對貿易戰驚慌失措，他的政策不會變，又鼓勵外國增加在美國投資，指現時是投資致富的好時機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798969-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798969-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798969-20250404.htm)
 
 ---
