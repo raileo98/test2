@@ -1,3 +1,27 @@
+# Nick Rockett, at 33-1, wins the Grand National
+
+![Jockey Patrick Mullins reacts as he passes the finish line. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799082_1_20250406074831.jpg&q=90)
+  
+
+Nick Rockett, a 33-1 shot ridden by Patrick Mullins, won the Grand National steeplechase at Aintree on Saturday (April 5) in a top three sweep for horses trained by the Irish amateur jockey's father Willie.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799082-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799082-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799082-20250406.htm)
+
+---
+
 # Arsenal title bid almost over after draw at Everton
 
 ![Arsenal manager Mikel Arteta reacts on the pitch after the match between Everton and Arsenal at Goodison Park. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799081_1_20250406071657.jpg&q=90)
@@ -1428,29 +1452,5 @@ Son Heung-min blamed South Korea's shoddy pitches for their 2026 World Cup quali
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm)
-
----
-
-# Sabalenka sets up Paolini semis with win over Zheng
-
-![Aryna Sabalenka has a word with Zheng Qinwen after their Miami Open match at the Hard Rock Stadium. Mandatory Credit: Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797443_1_20250326112222.jpg&q=90)
-  
-
-World number one Aryna Sabalenka battled back in the second set to blast her way into the semi-finals of the Miami Open with a 6-2, 7-5 win over China's Zheng Qinwen.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm)
 
 ---
