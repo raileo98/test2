@@ -1,5 +1,30 @@
+# SpaceX團隊完成人類首次載人圍繞地球兩極飛行任務
+
+![搭載飛船的火箭上月底從佛羅里達州的航天中心發射升空。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799031_1_20250405142718.jpg&q=90)
+  
+
+美國太空探索技術公司SpaceX的私人宇航團隊，完成人類首次載人圍繞地球兩極的飛行任務，4名機組人員搭乘龍飛船成功降落太平洋。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm)
+
+---
+
 # 南韓總統辦公室網站暫停運作　指正在維修
 
+![南韓總統辦公室網站暫停運作。（南韓總統辦公室網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799030_1_20250405142745.jpg&q=90)
   
 
 南韓總統辦公室網站暫停運作。
@@ -47,6 +72,7 @@
 
 # 民青局資助約30個以「東江水供港60周年」為主題交流項目
 
+![麥美娟表示，民青局希望透過各式各樣以「東江水供港60周年」為主題的活動，增進青年人對東江水供港歷史的認識。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799028_1_20250405143324.jpg&q=90)
   
 
 民政及青年事務局局長麥美娟主持「東江水供港60周年」主題活動啟動禮。今年是東江水供港60周年，為紀念及慶祝這個重要的里程碑，民青局將為青年人舉辦及提供一系列相關主題活動。
@@ -94,6 +120,7 @@
 
 # 啟德青年驛站旅舍　由中國旅遊集團旗下博盛文旅營運須自負盈虧
 
+![麥美娟表示，標書審議工作已經完成，由中國旅遊集團旗下公司為主要股東的博盛文旅有限公司作為營運團體。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799025_1_20250405143248.jpg&q=80)
   
 
 去年《施政報告》提出改造啟德社區隔離設施作為「青年驛站」旅舍，以及青年文化藝術與體育交流空間。民政及青年事務局局長麥美娟表示，標書審議工作已經完成，由中國旅遊集團旗下公司為主要股東的博盛文旅有限公司作為營運團體，香港中旅發展及帝盛酒店集團為協辦機構，合作營運青年發展設施，租約期為5年，營運團體需要自負盈虧。
@@ -1411,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798958-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798958-20250404.htm)
-
----
-
-# 上水疑有狗隻遭毒殺4死2失蹤
-
-![上水疑有狗隻遭毒殺，4隻狗口吐白沫死亡。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798957_1_20250404184735.jpg&q=75)
-  
-
-上水古洞發生懷疑毒殺狗隻案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798957-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798957-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798957-20250404.htm)
 
 ---

@@ -1,5 +1,30 @@
+# SpaceX團隊完成人類首次載人圍繞地球兩極飛行任務
+
+![搭載飛船的火箭上月底從佛羅里達州的航天中心發射升空。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799031_1_20250405142718.jpg&q=90)
+  
+
+美國太空探索技術公司SpaceX的私人宇航團隊，完成人類首次載人圍繞地球兩極的飛行任務，4名機組人員搭乘龍飛船成功降落太平洋。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm)
+
+---
+
 # 南韓總統辦公室網站暫停運作　指正在維修
 
+![南韓總統辦公室網站暫停運作。（南韓總統辦公室網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799030_1_20250405142745.jpg&q=90)
   
 
 南韓總統辦公室網站暫停運作。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm)
-
----
-
-# 尹錫悅彈劾案今早宣判　警方啟動最高響應於首爾部署1.4萬人
-
-![彈劾案宣判前夕，警方在法院外加強戒備。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798870_1_20250403235349.jpg&q=85)
-  
-
-南韓憲法法院將於本港時間今早10時對總統尹錫悅彈劾案作出宣判，尹錫悅將不會出席，而是在總統官邸收看直播。如果彈劾案獲通過，尹錫悅將被罷免總統職務，相反如果彈劾案被否決，尹錫悅將立即恢復總統職務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798870-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798870-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798870-20250404.htm)
 
 ---
