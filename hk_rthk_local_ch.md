@@ -1,4 +1,50 @@
-# 楊何蓓茵到訪小灣　冀學校繼續發揮主導角色加強學生認識國情
+# 控煙酒辦在銅鑼灣酒吧向非法吸食水煙人士發三張定額罰款通知
+
+  
+
+衞生署控煙酒辦昨晚派員到銅鑼灣一間酒吧巡查和採取執法行動，向非法吸食水煙的人士，共發出3張定額罰款通知書。調查仍在進行，控煙酒辦會考慮向涉嫌協助及教唆吸煙罪行的酒吧經營者提出檢控，亦會將個案轉介酒牌局跟進。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799018-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799018-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799018-20250405.htm)
+
+---
+
+# 房協發新租約全面規管富戶　凌嘉勤：若不接受有4個月寬限期遷出
+
+  
+
+房協會向出租屋邨租戶發出新的租約，全面規管富戶。房協主席凌嘉勤出席本台節目《星期六問責》表示，新租約有附加條款，要求住戶需要定期申報入息和資產，如果不接受條款，住戶有4個月寬限期遷出單位。房協已陸續向住戶解釋，並計劃在9月前，舉辦超過100場解說會，向2萬5千個租戶講解新做法。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm)
+
+---
+
+# 楊何蓓茵到訪小學　冀學校繼續發揮主導角色加強學生認識國情
 
 ![楊何蓓茵日到訪小西灣培僑小學，了解校方推動國家安全教育的工作。（楊何蓓茵社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799016_1_20250405104535.jpg&q=90)
   
@@ -1389,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm)
-
----
-
-# 本港向緬甸捐贈逾20公噸救援物資　陳國基：全力支援救災賑災
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798799_1_20250403153645.jpg&q=85)
-  
-
-緬甸大地震造成大量人員傷亡和基礎設施受損，特區政府表示，針對災區需求，徵集了一批緊急救援物資。這批救援物資超過20公噸，由不同政府部門合作和協調，當中包括食物、飲用水、醫療包和臨時居所物料等關鍵物資，部分物資由社會熱心人士捐助。這批物資已移交緬甸駐港總領事，並安排付運當地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm)
-
----
-
-# 民建聯倡北都容許地價分期支付　放寬住宅預售期限制
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798794_1_20250403153436.jpg&q=90)
-  
-
-北部都會區三個「片區開發」試點，當局日前收到22份意向書。民建聯新界北立法會議員劉國勳說，反映市場歡迎新發展模式，但需要將意向書轉為投標的實際行動，關鍵在於招標條款是否符合市場運作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798794-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798794-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798794-20250403.htm)
 
 ---

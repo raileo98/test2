@@ -1,4 +1,50 @@
-# 楊何蓓茵到訪小灣　冀學校繼續發揮主導角色加強學生認識國情
+# 控煙酒辦在銅鑼灣酒吧向非法吸食水煙人士發三張定額罰款通知
+
+  
+
+衞生署控煙酒辦昨晚派員到銅鑼灣一間酒吧巡查和採取執法行動，向非法吸食水煙的人士，共發出3張定額罰款通知書。調查仍在進行，控煙酒辦會考慮向涉嫌協助及教唆吸煙罪行的酒吧經營者提出檢控，亦會將個案轉介酒牌局跟進。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799018-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799018-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799018-20250405.htm)
+
+---
+
+# 房協發新租約全面規管富戶　凌嘉勤：若不接受有4個月寬限期遷出
+
+  
+
+房協會向出租屋邨租戶發出新的租約，全面規管富戶。房協主席凌嘉勤出席本台節目《星期六問責》表示，新租約有附加條款，要求住戶需要定期申報入息和資產，如果不接受條款，住戶有4個月寬限期遷出單位。房協已陸續向住戶解釋，並計劃在9月前，舉辦超過100場解說會，向2萬5千個租戶講解新做法。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm)
+
+---
+
+# 楊何蓓茵到訪小學　冀學校繼續發揮主導角色加強學生認識國情
 
 ![楊何蓓茵日到訪小西灣培僑小學，了解校方推動國家安全教育的工作。（楊何蓓茵社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799016_1_20250405104535.jpg&q=90)
   
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm)
-
----
-
-# 全運會保齡球香港甄選賽明日起舉行
-
-![香港代表隊的甄選賽將會在明天、後天及下星期六，在啟德體育園啟德一號零售館的保齡球中心舉行。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798947_1_20250404172623.jpg&q=90)
-  
-
-第十五屆全運會年底舉行，首次將保齡球列為群眾賽事項目，並將在香港舉行。香港代表隊的甄選賽將會在明天、後天及下星期六，在啟德體育園啟德一號零售館的保齡球中心舉行，選出5男5女代表香港出賽。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm)
-
----
-
-# 投資500萬美元可獲美居留權　特朗普展示金卡設計
-
-![特朗普在總統專機上展示金卡計劃。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798946_1_20250404170421.jpg&q=90)
-  
-
-美國政府推出價值500萬美元的「金卡移民簽證計劃」，吸引富有的外國投資者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798946-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798946-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798946-20250404.htm)
 
 ---
