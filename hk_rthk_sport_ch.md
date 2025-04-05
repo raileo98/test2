@@ -1,3 +1,27 @@
+# 巴黎聖日耳門提早奪得法甲聯賽冠軍
+
+![聖日耳門球員賽後慶祝第13次在法甲封王。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799071_1_20250406012954.jpg&q=90)
+  
+
+巴黎聖日耳門在法國甲組足球聯賽，主場1:0擊敗昂熱，提早6輪奪得聯賽冠軍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799071-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799071-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799071-20250406.htm)
+
+---
+
 # 英超阿仙奴被愛華頓逼和1:1
 
 ![兵工廠和波失分，被愛華頓逼和1:1。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799067_1_20250406002505.jpg&q=85)
@@ -1433,29 +1457,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797223-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797223-20250325.htm)
-
----
-
-# 羅淑佩稱精英體育發展需考慮個別項目獨特性及彈性處理
-
-![羅淑佩說，新機制可以提供彈性，亦讓網球運動員有努力的目標。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797200_1_20250324201837.jpg&q=90)
-  
-
-政府宣布，桌球及網球未來兩年，將繼續保留為體育學院「A級」精英項目。另外，所有精英運動員的直接資助額，將會上調8.3%，今年4月1日起生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm)
 
 ---

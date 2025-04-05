@@ -1,3 +1,27 @@
+# 巴黎聖日耳門提早奪得法甲聯賽冠軍
+
+![聖日耳門球員賽後慶祝第13次在法甲封王。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799071_1_20250406012954.jpg&q=90)
+  
+
+巴黎聖日耳門在法國甲組足球聯賽，主場1:0擊敗昂熱，提早6輪奪得聯賽冠軍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799071-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799071-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799071-20250406.htm)
+
+---
+
 # 以軍首次在加沙「莫拉格走廊」採取軍事行動
 
 ![以軍說，部隊旨在搜尋並拆除剩餘的巴勒斯坦武裝組織軍事設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799070_1_20250406005343.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798993-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798993-20250405.htm)
-
----
-
-# 路透：中國因美國關稅拒絕批准分拆TikTok交易
-
-![其中一名知情人士說，有關交易的結構在星期三基本敲定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798994_1_20250405052506.jpg&q=90)
-  
-
-路透社引述知情人士報道，美國總統特朗普宣布徵收對等關稅後，中國表示不會批准分拆字節跳動旗下短片分享平台TikTok在美資產的交易，有關交易被擱置。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798994-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798994-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798994-20250405.htm)
 
 ---
