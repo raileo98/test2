@@ -1,3 +1,27 @@
+# Housing Society to complete tenant checks in late 2026
+
+![The Hong Kong Housing Society chairman Ling Kar-kan says so far only a few tenants have been classed as being well off. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799023_1_20250405122827.jpg&q=80)
+  
+
+The Hong Kong Housing Society on Saturday said it hopes to complete checks for well-off tenants by November of next year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799023-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799023-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799023-20250405.htm)
+
+---
+
 # Retaliatory tariffs on US goods 'aim to cause pain'
 
 ![Lau Siu-kai, a consultant to the Chinese Association of Hong Kong and Macau Studies, said China's measures were not gestures. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799015_1_20250405103147.jpg&q=80)
@@ -1414,29 +1438,5 @@ The Development Bureau announced on Wednesday that it is inviting expressions of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798669-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798669-20250402.htm)
-
----
-
-# HKMAO reposts another article on Hutchison deal
-
-![CK Hutchison has announced plans to sell its ports, including assets along the Panama Canal. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798683_1_20250402211035.jpg&q=80)
-  
-
-The Hong Kong and Macau Affairs Office (HKMAO) on Wednesday reposted an article by the Ta Kung Pao newspaper voicing opposition to CK Hutchison's plans to sell dozens of ports, including strategic assets along the Panama Canal.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm)
 
 ---

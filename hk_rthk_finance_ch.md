@@ -1,3 +1,50 @@
+# 啟德社區隔離設施改青年驛站旅舍　由「博盛民旅」營運須自負盈虧
+
+  
+
+去年《施政報告》提出改造啟德社區隔離設施作為「青年驛站」旅舍，以及青年文化藝術與體育交流空間。民政及青年事務局局長麥美娟表示，標書審議工作已經完成，由中國旅遊集團旗下公司為主要股東的博盛民旅有限公司作為營運團體，香港中旅發展及帝盛酒店集團為協辦機構，合作營運青年發展設施，租約期為5年，營運團體需要自負盈虧。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799025-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799025-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799025-20250405.htm)
+
+---
+
+# 香港工商界代表稱業界對美國大幅加徵關稅感無奈
+
+![有香港工商界代表，呼籲不要自亂陣腳，要積極開拓其他市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799024_1_20250405124607.jpg&q=90)
+  
+
+美國對全球多國徵收「對等關稅」，其中對華累計關稅增至54%。中國作出反制措施，下星期四起，對原產於美國的所有進口商品加徵34%關稅等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799024-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799024-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799024-20250405.htm)
+
+---
+
 # 凌嘉勤：房協兩資助出售房屋項目至今收逾４千申請　反映剛性需求
 
 ![凌嘉勤說，房協已啟動數個租住屋邨的重建計劃，如住戶想揀心儀資助出售單位，鼓勵他們及早提出申請。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799021_1_20250405114734.jpg&q=90)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm)
-
----
-
-# 美元指數一度失守102關口　創約半年新低
-
-![美元指數失守102關口，創去年10月初以來最低，低見101.95，較早時報102.1，跌幅逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798825_1_20250403173046.jpg&q=90)
-  
-
-美國對多個國家及地區徵收對等關稅，美元兌多個貨幣沽壓顯著。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798825-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798825-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798825-20250403.htm)
-
----
-
-# 美股3大指數期貨跌逾2%至3%　道指期貨挫逾千點
-
-![道瓊斯指數期貨一度跌逾1100點，較早時報41472點，跌1020點，跌幅2.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798821_1_20250403172029.jpg&q=90)
-  
-
-美國對多個國家同地區徵收對等關稅，美股指數期貨急挫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798821-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798821-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798821-20250403.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Housing Society to complete tenant checks in late 2026
+
+![The Hong Kong Housing Society chairman Ling Kar-kan says so far only a few tenants have been classed as being well off. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799023_1_20250405122827.jpg&q=80)
+  
+
+The Hong Kong Housing Society on Saturday said it hopes to complete checks for well-off tenants by November of next year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799023-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799023-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799023-20250405.htm)
+
+---
+
 # Retaliatory tariffs on US goods 'aim to cause pain'
 
 ![Lau Siu-kai, a consultant to the Chinese Association of Hong Kong and Macau Studies, said China's measures were not gestures. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799015_1_20250405103147.jpg&q=80)
@@ -1411,33 +1435,5 @@ A Cathay Pacific aircraft on Sunday flew near Kai Tak during the Hong Kong Seven
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm)
-
----
-
-# Who's who at the Rugby Sevens, and it's quite a cast!
-
-![Brian Hopkins (right) is celebrating his 40th birthday. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_2_20250330161122.jpg&q=90)
-![Brett Muntz, who's supporting Fiji, says the Sevens is "all about the people". Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_3_20250330161122.jpg&q=90)
-![Epeli Buliciri shows off his pin collection. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_4_20250330161122.jpg&q=90)
-![These Smurfs are confident that they have the best costume. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_5_20250330161122.jpg&q=90)
-![This group decides to draw inspiration from Freddy the weatherman. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_6_20250330161122.jpg&q=70)
-  
-
-Rugby lovers from Hong Kong and beyond filled up the Kai Tak Stadium on Sunday to enjoy a final day of sport and partying at the Hong Kong Sevens.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm)
 
 ---
