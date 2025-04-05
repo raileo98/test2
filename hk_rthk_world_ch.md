@@ -1,3 +1,27 @@
+# 柬埔寨雲壤海軍基地正式啟用　中柬派員維持正常運轉
+
+![柬埔寨首相洪瑪奈（前左）和中共中央軍委聯合參謀部副參謀長曹青鋒（前右）共同主持雲壤海軍基地啟用儀式。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799035_1_20250405154619.jpg&q=90)
+  
+
+由中國援助升級改造的柬埔寨雲壤海軍基地及訓練中心正式啟用，中國和柬埔寨將派駐必要人員共同維持中心正常運轉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm)
+
+---
+
 # 任天堂推遲Switch2在美預售時間　評估關稅影響
 
 ![日本任天堂公司推遲新款遊戲機Switch2在美國的預售日期，評估關稅影響。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799040_1_20250405160641.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm)
-
----
-
-# 世貿組織稱美國關稅措施或致全球商品貿易量今年萎縮約1%
-
-![伊維拉呼籲世貿成員防止貿易緊張局勢加劇。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798873_1_20250404012242.jpg&q=90)
-  
-
-世界貿易組織總幹事伊維拉表示，美國剛宣布的新關稅及今年年初以來推出的措施，可能導致今年全球商品貿易量整體萎縮約1%，較先前預測下調近四個百分點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm)
 
 ---

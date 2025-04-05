@@ -1,3 +1,27 @@
+# 柬埔寨雲壤海軍基地正式啟用　中柬派員維持正常運轉
+
+![柬埔寨首相洪瑪奈（前左）和中共中央軍委聯合參謀部副參謀長曹青鋒（前右）共同主持雲壤海軍基地啟用儀式。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799035_1_20250405154619.jpg&q=90)
+  
+
+由中國援助升級改造的柬埔寨雲壤海軍基地及訓練中心正式啟用，中國和柬埔寨將派駐必要人員共同維持中心正常運轉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm)
+
+---
+
 # 文憑試英文科卷三聆聽及綜合能力今開考　考評局指各試場運作暢順
 
   
@@ -47,7 +71,7 @@
 
 # 緬甸特區救援隊遇酷熱天氣及蚊患問題　入境處協調張羅蚊帳等物資
 
-![特區救援隊表示，暫時遇到最大的困難是當地酷熱的天氣及蚊患問題。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799039_1_20250405161538.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799039_1_20250405161538.jpg&q=90)
   
 
 正在緬甸協助救援的特區救援隊表示，暫時遇到最大的困難是當地酷熱的天氣及蚊患問題。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798969-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798969-20250404.htm)
-
----
-
-# 莊太量指中國反制或令美國及歐洲股市下跌　料美國難應付多國反制
-
-![莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798968_1_20250404205933.jpg&q=85)
-  
-
-國務院關稅稅則委員會宣布，本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。他相信，美股有機會繼續跌，近日有機會引發全球小股災。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm)
 
 ---

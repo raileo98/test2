@@ -1,3 +1,27 @@
+# 柬埔寨雲壤海軍基地正式啟用　中柬派員維持正常運轉
+
+![柬埔寨首相洪瑪奈（前左）和中共中央軍委聯合參謀部副參謀長曹青鋒（前右）共同主持雲壤海軍基地啟用儀式。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799035_1_20250405154619.jpg&q=90)
+  
+
+由中國援助升級改造的柬埔寨雲壤海軍基地及訓練中心正式啟用，中國和柬埔寨將派駐必要人員共同維持中心正常運轉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm)
+
+---
+
 # 人民日報評論指美國所謂「對等關稅」將反噬美國經濟
 
 ![人民日報發表評論文章，批評美國不知所云的所謂「對等關稅」，將反噬美國經濟。（人民網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799033_1_20250405151637.jpg&q=90)
@@ -1419,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm)
-
----
-
-# 中國救援隊伍在緬甸救出第九名倖存者　特區救援隊參與聯合救援
-
-![中國救援隊伍救出一名被困近125小時的52歲緬甸男性。（消防處FB圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798698_1_20250403002255.jpg&q=90)
-  
-
-中國救援隊伍在緬甸地震災區救出第九名倖存者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm)
 
 ---
