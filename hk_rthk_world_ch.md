@@ -1,3 +1,26 @@
+# 伊朗總統：願意與美國平等對話
+
+  
+
+伊朗總統佩澤希齊揚表示，伊朗願意與美國進行平等對話，但未有澄清德黑蘭是否會參加直接談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799072-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799072-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799072-20250406.htm)
+
+---
+
 # 以軍首次在加沙「莫拉格走廊」採取軍事行動
 
 ![以軍說，部隊旨在搜尋並拆除剩餘的巴勒斯坦武裝組織軍事設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799070_1_20250406005343.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798909-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798909-20250404.htm)
-
----
-
-# 南韓憲法法院開庭　就尹錫悅彈劾案宣判
-
-![南韓憲法法院外有警察把守。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798907_1_20250404101728.jpg&q=90)
-  
-
-南韓憲法法院本港時間早上10時就停職總統尹錫悅彈劾案開庭宣判，全程電視直播。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm)
 
 ---

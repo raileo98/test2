@@ -1,3 +1,26 @@
+# 伊朗總統：願意與美國平等對話
+
+  
+
+伊朗總統佩澤希齊揚表示，伊朗願意與美國進行平等對話，但未有澄清德黑蘭是否會參加直接談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799072-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799072-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799072-20250406.htm)
+
+---
+
 # 巴黎聖日耳門提早奪得法甲聯賽冠軍
 
 ![聖日耳門球員賽後慶祝第13次在法甲封王。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799071_1_20250406012954.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm)
-
----
-
-# 憂貿易戰升級　美股3大指數再挫近6%　道指低收2231點
-
-![美股連續兩日急挫，3大指數尾市跌幅擴大，跌近6%收市，齊創2020年3月以來最大兩日跌幅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798993_1_20250405052418.jpg&q=90)
-  
-
-美國對貿易夥伴徵收對等關稅，中國採取反制措施，貿易衝突升級令市場憂慮加劇，美股連續兩日急挫，3大指數尾市跌幅擴大，跌近6%收市，跌至逾10個月至逾11個月收市新低，並且齊創2020年3月以來最大兩日跌幅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798993-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798993-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798993-20250405.htm)
 
 ---
