@@ -1,3 +1,26 @@
+# 旺角失蹤86歲女子在尖沙咀梳士巴利道被尋回
+
+  
+
+日前在旺角失蹤的86歲女子梁玉蘭女子已被尋回。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799026-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799026-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799026-20250405.htm)
+
+---
+
 # 啟德社區隔離設施改青年驛站旅舍　由「博盛民旅」營運須自負盈虧
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm)
-
----
-
-# 涉攜武士刀進入法院男子缺席提堂　法庭發出拘捕令
-
-![案件原定今日提堂，但被告缺席，裁判官何慧嫻發出拘捕令。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798809_1_20250403162651.jpg&q=90)
-  
-
-一名男子涉嫌攜帶兩把武士刀進入西九龍裁判法院，被控一項管有攻擊武器罪，案件原定今日在西九龍裁判法院提堂，但被告缺席，裁判官何慧嫻發出拘捕令。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798809-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798809-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798809-20250403.htm)
 
 ---
