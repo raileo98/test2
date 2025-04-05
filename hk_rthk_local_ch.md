@@ -1,3 +1,73 @@
+# 黃恩諾：檢討水費調整冀做到收回成本及用者自付
+
+  
+
+水務署署長黃恩諾表示，仍在檢討水費調整，強調希望做到收回成本，用者自付，但要顧及民生和經濟情況，必須審慎考慮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799053-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799053-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799053-20250405.htm)
+
+---
+
+# 麥美娟：改造啟德社區隔離設施作青年發展設施最遲10月投入營運
+
+  
+
+民政及青年事務局局長麥美娟表示，改造啟德社區隔離設施作為青年發展設施，最遲10月有序投入營運。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799052-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799052-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799052-20250405.htm)
+
+---
+
+# 房協9月起全面實施富戶政策　凌嘉勤︰已徵詢法律意見
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799048_1_20250405182834.jpg&q=85)
+  
+
+房協主席凌嘉勤說，今年9月起會分階段，向約2.5萬個未納入富戶政策規管的租戶發出新租約，如果不接受相關條款，就要遷出單位。他說未有評估可以收回多少個單位，但相信數量不多。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799048-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799048-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799048-20250405.htm)
+
+---
+
 # 陳茂波指對等關稅對本港「間接影響遠大於直接」
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799049_1_20250405182532.jpg&q=85)
@@ -1367,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm)
-
----
-
-# 中電稱已制定應變方案減少山火對電力系統潛在風險
-
-![中電表示，已制定應變方案，減少山火對電力系統造成的潛在風險。（中電提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798844_1_20250403193210.jpg&q=80)
-  
-
-中電表示，正全方位加強山火防備工作，包括過去幾星期重點巡查山火黑點，加強農林管理，並會在超過400個地點進行電杆清理，移除附近的雜草和樹枝，避免山火影響電力設施。中電亦已制定應變方案，減少山火對電力系統造成的潛在風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798844-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798844-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798844-20250403.htm)
-
----
-
-# 天文台錄得相對濕度曾降至22%　平了1984年以來最低紀錄
-
-![天文台呼籲市民上山祭祖小心山火，勿留火種。（天文台社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798842_2_20250403192548.jpg&q=90)
-  
-
-天文台表示，受到乾燥偏東氣流影響，今日香港多區相對濕度下降到30%或以下，天文台總部錄得相對濕度更曾下降到22%，追平天文台自1984年設置自動氣象站以來、4月份最低紀錄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798842-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798842-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798842-20250403.htm)
-
----
-
-# 政府委任梁世光出任輔警總監　接替行將退休楊祖賜
-
-![警務處處長周一鳴（右）頒授委任狀予新委任香港輔助警察隊總監梁世光（左）。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798839_1_20250403185915.jpg&q=90)
-  
-
-政府宣布委任梁世光由本月7日起出任香港輔助警察隊總監，以接替行將退休的總監楊祖賜。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798839-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798839-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798839-20250403.htm)
 
 ---

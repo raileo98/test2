@@ -1,3 +1,98 @@
+# 麥美娟：改造啟德社區隔離設施作青年發展設施最遲10月投入營運
+
+  
+
+民政及青年事務局局長麥美娟表示，改造啟德社區隔離設施作為青年發展設施，最遲10月有序投入營運。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799052-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799052-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799052-20250405.htm)
+
+---
+
+# 美股連續兩個交易日急挫　鮑威爾：是否調整貨幣政策言之尚早
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799050_1_20250405182938.jpg&q=90)
+  
+
+市場憂慮貿易戰加劇，美股連續兩個交易日急挫，三大指數跌幅均逾5%，道瓊斯指數跌穿3萬9千點水平；至於納斯達克指數再跌近千點，技術上進入熊市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm)
+
+---
+
+# 房協9月起全面實施富戶政策　凌嘉勤︰已徵詢法律意見
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799048_1_20250405182834.jpg&q=85)
+  
+
+房協主席凌嘉勤說，今年9月起會分階段，向約2.5萬個未納入富戶政策規管的租戶發出新租約，如果不接受相關條款，就要遷出單位。他說未有評估可以收回多少個單位，但相信數量不多。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799048-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799048-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799048-20250405.htm)
+
+---
+
+# 泰國將倒塌大樓鋼筋樣本送往檢驗　中國大使館：反對詆毀抹黑中企
+
+![泰國當局將倒塌的國家審計署大樓鋼筋樣本送到實驗室檢驗，確認是否符合標準。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799046_1_20250405172826.jpg&q=35)
+  
+
+泰國曼谷在建的國家審計署大樓早前受緬甸大地震波及倒塌。泰國當局再將大樓不同區域收集到的鋼筋樣本送到實驗室檢驗，確認是否符合標準。當局又計劃採集大樓混凝土板樣本檢查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm)
+
+---
+
 # 陳茂波指對等關稅對本港「間接影響遠大於直接」
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799049_1_20250405182532.jpg&q=85)
@@ -1011,7 +1106,7 @@
 
 # 路透：中國因美國關稅拒絕批准分拆TikTok交易
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798994_1_20250405052506.jpg&q=90)
+![其中一名知情人士說，有關交易的結構在星期三基本敲定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798994_1_20250405052506.jpg&q=90)
   
 
 路透社引述知情人士報道，美國總統特朗普宣布徵收對等關稅後，中國表示不會批准分拆字節跳動旗下短片分享平台TikTok在美資產的交易，有關交易被擱置。
@@ -1366,77 +1461,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798976-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798976-20250405.htm)
-
----
-
-# 中國反制美國　道指早段曾瀉逾1700點
-
-![中國推出關稅措施反制美國，美股3大指數連續第二日下挫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798975_1_20250404230200.jpg&q=90)
-  
-
-中國推出關稅措施反制美國，美股3大指數連續第二日下挫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm)
-
----
-
-# 英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被控
-
-![英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798974_1_20250404224512.jpg&q=90)
-  
-
-美國流行歌手Katy Perry的前夫、英國喜劇演員羅素布蘭德被控襲擊和強姦。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798974-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798974-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798974-20250404.htm)
-
----
-
-# 劉兆佳指中方反制肯定不只是姿態　莊太量料或引發小股災
-
-![國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798972_1_20250404220059.jpg&q=80)
-  
-
-全國港澳研究會顧問劉兆佳分析，中方以組合拳方式反制美國，肯定不會只是姿態，形容一定要令對方感到痛苦。而香港亦要研究是否對美國進口貨品施加關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm)
 
 ---

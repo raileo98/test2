@@ -1,3 +1,27 @@
+# 美股連續兩個交易日急挫　鮑威爾：是否調整貨幣政策言之尚早
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799050_1_20250405182938.jpg&q=90)
+  
+
+市場憂慮貿易戰加劇，美股連續兩個交易日急挫，三大指數跌幅均逾5%，道瓊斯指數跌穿3萬9千點水平；至於納斯達克指數再跌近千點，技術上進入熊市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm)
+
+---
+
 # 泰國將倒塌大樓鋼筋樣本送往檢驗　中國大使館：反對詆毀抹黑中企
 
 ![泰國當局將倒塌的國家審計署大樓鋼筋樣本送到實驗室檢驗，確認是否符合標準。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799046_1_20250405172826.jpg&q=35)
@@ -336,7 +360,7 @@
 
 # 路透：中國因美國關稅拒絕批准分拆TikTok交易
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798994_1_20250405052506.jpg&q=90)
+![其中一名知情人士說，有關交易的結構在星期三基本敲定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798994_1_20250405052506.jpg&q=90)
   
 
 路透社引述知情人士報道，美國總統特朗普宣布徵收對等關稅後，中國表示不會批准分拆字節跳動旗下短片分享平台TikTok在美資產的交易，有關交易被擱置。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798877-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798877-20250404.htm)
-
----
-
-# 以軍周四轟炸加沙致過百死　哈馬斯籲國際社會向以色列施壓
-
-![加沙城有巴勒斯坦人響應以軍呼籲撤走。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798875_1_20250404021651.jpg&q=85)
-  
-
-以色列軍方持續轟炸加沙，巴勒斯坦方面說，以軍星期四的行動造成過百名巴勒斯坦人死亡，其中北部加沙城一間學校遇襲，巴勒斯坦武裝組織哈馬斯說，造成包括婦女和兒童在內的至少29人喪生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798875-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798875-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798875-20250404.htm)
 
 ---
