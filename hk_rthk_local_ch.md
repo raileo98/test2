@@ -1,3 +1,26 @@
+# 文憑試英文科卷三聆聽及綜合能力今開考　考評局指各試場運作暢順
+
+  
+
+文憑試英文科卷三聆聽及綜合能力考核今日開考。考評局表示，共有約5萬名考生於約430個一般試場及約680個特別試場應考，各試場學校的整體運作暢順。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799042-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799042-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799042-20250405.htm)
+
+---
+
 # 緬甸特區救援隊遇酷熱天氣及蚊患問題　入境處協調張羅蚊帳等物資
 
 ![特區救援隊表示，暫時遇到最大的困難是當地酷熱的天氣及蚊患問題。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799039_1_20250405161538.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm)
-
----
-
-# 特區救援隊指揮官趙汝珏：天氣炎熱惟救出傷者後士氣高昂
-
-![趙汝珏說，特區救援隊已經抵步第六日，當地天氣非常熱，日間超過40度，夜間超過30度，對體能消耗有一定壓力。(香港消防處社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798829_1_20250403181259.jpg&q=90)
-  
-
-緬甸大地震發生超過5日，中國救援隊伍經過3個多小時的救援工作，當地昨日下午5時許在曼德勒金色鄉村酒店救援點，成功救出一名被困近125小時的52歲緬甸男性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm)
 
 ---

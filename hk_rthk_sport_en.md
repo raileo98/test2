@@ -1,3 +1,27 @@
+# Verstappen snatches 'insane' pole for Japan GP
+
+![Red Bull's Max Verstappen celebrates smashing the track record at Suzuka. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799043_1_20250405162226.jpg&q=90)
+  
+
+Four-time world champion Max Verstappen smashed the track record to snatch pole position for Sunday's Japanese Grand Prix ahead of McLaren's Lando Norris, as Yuki Tsunoda qualified a lowly 15th on his Red Bull debut.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799043-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799043-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799043-20250405.htm)
+
+---
+
 # Alex Ovechkin matches Gretzky's NHL record
 
 ![Ovechkin tied Gretzky's monumental mark with a power-play goal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799014_1_20250405103308.jpg&q=90)
@@ -1428,29 +1452,5 @@ Argentina celebrated their 2026 World Cup qualification with a dazzling 4-1 thra
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm)
-
----
-
-# World Athletics approves swab test to determine gender
-
-![The president of the international track and field federation said the female category had to be protected. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797391_1_20250326033236.jpg&q=80)
-  
-
-World Athletics said on Tuesday it had approved the introduction of a cheek swab test to determine if an athlete is biologically female.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm)
 
 ---

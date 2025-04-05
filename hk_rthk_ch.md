@@ -1,3 +1,26 @@
+# 文憑試英文科卷三聆聽及綜合能力今開考　考評局指各試場運作暢順
+
+  
+
+文憑試英文科卷三聆聽及綜合能力考核今日開考。考評局表示，共有約5萬名考生於約430個一般試場及約680個特別試場應考，各試場學校的整體運作暢順。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799042-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799042-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799042-20250405.htm)
+
+---
+
 # 任天堂推遲Switch2在美預售時間　評估關稅影響
 
 ![日本任天堂公司推遲新款遊戲機Switch2在美國的預售日期，評估關稅影響。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799040_1_20250405160641.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm)
-
----
-
-# 劉兆佳指中方以組合拳反擊美國　認為不是姿態要令對方感到痛苦
-
-![劉兆佳分析，在眾多國家之中，中國最有實力對美國強硬反制，中國對美國有大量順差，美國買中國貨多於中國買美國貨。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798966_1_20250404205624.jpg&q=80)
-  
-
-國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施，包括對原產美國的進口商品加徵34%關稅，對7類中重稀土相關物項實施出口管制等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm)
 
 ---

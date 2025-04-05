@@ -1,3 +1,27 @@
+# Verstappen snatches 'insane' pole for Japan GP
+
+![Red Bull's Max Verstappen celebrates smashing the track record at Suzuka. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799043_1_20250405162226.jpg&q=90)
+  
+
+Four-time world champion Max Verstappen smashed the track record to snatch pole position for Sunday's Japanese Grand Prix ahead of McLaren's Lando Norris, as Yuki Tsunoda qualified a lowly 15th on his Red Bull debut.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799043-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799043-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799043-20250405.htm)
+
+---
+
 # Youth facilities to open in Kai Tak by October
 
 ![Secretary for Home and Youth Affairs Alice Mak says the organisation has to operate the facilities on a self-financing basis. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799037_1_20250405154953.jpg&q=80)
@@ -1413,29 +1437,5 @@ US President Donald Trump on Wednesday unveiled a raft of punishing tariffs targ
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm)
-
----
-
-# Stuttgart beat Leipzig to reach German Cup final
-
-![Stuttgart's Maximilian Mittelstädt celebrates after their 3-1 win over RB Leipzig. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798718_1_20250403054223.jpg&q=90)
-  
-
-Stuttgart set up a German Cup final clash with third-division Arminia Bielefeld after a 3-1 win over RB Leipzig.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798718-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798718-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798718-20250403.htm)
 
 ---
