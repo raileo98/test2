@@ -1,3 +1,27 @@
+# Water tariff review aims to make user pay: director
+
+![Roger Wong says the review of water charges aims to achieve the principle of user pays. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799041_1_20250405161641.jpg&q=90)
+  
+
+The Director of Water Supplies said on Saturday that while the department is still reviewing water charges, its objective is to achieve the principle of user pays.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm)
+
+---
+
 # Youth facilities to open in Kai Tak by October
 
 ![Secretary for Home and Youth Affairs Alice Mak says the organisation has to operate the facilities on a self-financing basis. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799037_1_20250405154953.jpg&q=80)
@@ -1411,29 +1435,5 @@ An SAR government rescue team is set to begin inspection work on the ground in e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798131-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798131-20250330.htm)
-
----
-
-# 'Bigger house, bigger party' in new Kai Tak experience
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798130_2_20250330181531.jpg&q=90)
-  
-
-The head of the Hong Kong, China Rugby Association, James Farndon, on Sunday hailed the first-ever Sevens at the Kai Tak Stadium, calling the event a massive success for the SAR.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm)
 
 ---

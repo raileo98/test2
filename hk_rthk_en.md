@@ -1,3 +1,27 @@
+# Water tariff review aims to make user pay: director
+
+![Roger Wong says the review of water charges aims to achieve the principle of user pays. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799041_1_20250405161641.jpg&q=90)
+  
+
+The Director of Water Supplies said on Saturday that while the department is still reviewing water charges, its objective is to achieve the principle of user pays.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm)
+
+---
+
 # Verstappen snatches 'insane' pole for Japan GP
 
 ![Red Bull's Max Verstappen celebrates smashing the track record at Suzuka. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799043_1_20250405162226.jpg&q=90)
@@ -1413,29 +1437,5 @@ Myanmar's junta announced a temporary ceasefire on Wednesday as the death toll f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm)
-
----
-
-# Trump unveils sweeping global tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798719_1_20250403055136.jpg&q=90)
-  
-
-US President Donald Trump on Wednesday unveiled a raft of punishing tariffs targeting countries around the world including some of its closest trading partners, in a move that risks sparking a ruinous trade war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm)
 
 ---
