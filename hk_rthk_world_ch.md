@@ -1,3 +1,27 @@
+# 以軍首次在加沙「莫拉格走廊」採取軍事行動
+
+![以軍說，部隊旨在搜尋並拆除剩餘的巴勒斯坦武裝組織軍事設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799070_1_20250406005343.jpg&q=90)
+  
+
+以色列國防軍稱，以軍第36師部隊已重返加沙地帶作戰，並開始在「莫拉格走廊」展開軍事行動。這是以色列國防軍首次在該區域展開行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799070-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799070-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799070-20250406.htm)
+
+---
+
 # 緬甸大地震增至3471人死亡
 
 ![緬甸大地震，曼德勒受災嚴重。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799069_1_20250406004522.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm)
-
----
-
-# 中國常駐聯合國代表敦促以色列立即停止對加沙軍事行動
-
-![傅聰說，實現持久停火才是拯救生命、讓人質回家的最好辦法。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798905_1_20250404101144.jpg&q=90)
-  
-
-中國常駐聯合國代表傅聰表示，近日以色列宣布將擴大地面進攻、佔領加沙領土，中方對此表示嚴重關切，敦促以色列立即停止對加沙的軍事行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm)
 
 ---
