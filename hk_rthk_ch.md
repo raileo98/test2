@@ -1,5 +1,6 @@
 # 日本東京以西發生涉旅遊巴意外　據報47人受傷
 
+![日本東京以西發生涉旅遊巴意外　據報47人受傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799059_1_20250405204212.jpg&q=90)
   
 
 日本東京以西一條高速公路發生涉及旅遊巴的意外，據報47人受傷，大部分是外國人。
