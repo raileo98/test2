@@ -1,3 +1,27 @@
+# Nick Rockett, at 33-1, wins the Grand National
+
+![Jockey Patrick Mullins reacts as he passes the finish line. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799082_1_20250406074831.jpg&q=90)
+  
+
+Nick Rockett, a 33-1 shot ridden by Patrick Mullins, won the Grand National steeplechase at Aintree on Saturday (April 5) in a top three sweep for horses trained by the Irish amateur jockey's father Willie.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799082-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799082-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799082-20250406.htm)
+
+---
+
 # Arsenal title bid almost over after draw at Everton
 
 ![Arsenal manager Mikel Arteta reacts on the pitch after the match between Everton and Arsenal at Goodison Park. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799081_1_20250406071657.jpg&q=90)
@@ -1413,29 +1437,5 @@ Hong Kong stocks sank more than two percent in opening trades on Thursday after 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm)
-
----
-
-# Tariffs target packages under US$800 from HK
-
-![US President Donald Trump holds a signed executive order on tariffs, in the Rose Garden at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798734_1_20250403084633.jpg&q=90)
-  
-
-US President Donald Trump signed an executive order on Wednesday that closes a trade exemption known as "de minimis" that has allowed low-value packages from mainland China and Hong Kong to enter the United States, free of duties.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm)
 
 ---
