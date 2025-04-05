@@ -1,3 +1,27 @@
+# 凌嘉勤：房協兩資助出售房屋項目至今收逾４千申請　反映剛性需求
+
+![凌嘉勤說，房協已啟動數個租住屋邨的重建計劃，如住戶想揀心儀資助出售單位，鼓勵他們及早提出申請。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799021_1_20250405114734.jpg&q=90)
+  
+
+房協推售兩個分別位於觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，提供1604個單位，售價約為市值7折，本月1日至14日接受合資格人士申請。房協主席凌嘉勤表示，目前已收到超過4000份申請，較供應單位數目翻倍，反映剛性置業需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm)
+
+---
+
 # 陳祖恒籲業界勿再奢望再取美國大訂單　史立德指最終美國民眾埋單
 
 ![多名商界人士在電台節目討論，美國加關稅對本港的影響。（商台直播截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799013_1_20250405112207.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798821-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798821-20250403.htm)
-
----
-
-# 本港二手樓價按周升逾1%　港島樓價急升近3.5%
-
-![中原城市領先指數（CCL）最新報136.82點，按周升1.12%，反映3月中旬個別新盤熱銷。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798823_1_20250403172334.jpg&q=70)
-  
-
-反映本港二手樓價走勢的中原城市領先指數（CCL）最新報136.82點，按周升1.12%，連升兩周，亦是12周以來最大單周升幅，反映3月中旬天水圍和大埔個別新盤熱銷的當周市況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798823-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798823-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798823-20250403.htm)
 
 ---

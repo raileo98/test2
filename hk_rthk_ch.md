@@ -1,3 +1,27 @@
+# 凌嘉勤：房協兩資助出售房屋項目至今收逾４千申請　反映剛性需求
+
+![凌嘉勤說，房協已啟動數個租住屋邨的重建計劃，如住戶想揀心儀資助出售單位，鼓勵他們及早提出申請。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799021_1_20250405114734.jpg&q=90)
+  
+
+房協推售兩個分別位於觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，提供1604個單位，售價約為市值7折，本月1日至14日接受合資格人士申請。房協主席凌嘉勤表示，目前已收到超過4000份申請，較供應單位數目翻倍，反映剛性置業需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm)
+
+---
+
 # 內地商會促美方糾正損人不利己單邊霸凌
 
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm)
-
----
-
-# 8位在韓志願軍烈士遺骸身份確認
-
-![去年11月28日， 第十一批在韓中國人民志願軍烈士遺骸回國。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798949_2_20250404175355.jpg&q=90)
-  
-
-央視新聞報道，從退役軍人事務部獲悉，8位在韓中國人民志願軍烈士遺骸的身份得以確認。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm)
 
 ---

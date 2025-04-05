@@ -1,3 +1,27 @@
+# 凌嘉勤：房協兩資助出售房屋項目至今收逾４千申請　反映剛性需求
+
+![凌嘉勤說，房協已啟動數個租住屋邨的重建計劃，如住戶想揀心儀資助出售單位，鼓勵他們及早提出申請。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799021_1_20250405114734.jpg&q=90)
+  
+
+房協推售兩個分別位於觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，提供1604個單位，售價約為市值7折，本月1日至14日接受合資格人士申請。房協主席凌嘉勤表示，目前已收到超過4000份申請，較供應單位數目翻倍，反映剛性置業需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm)
+
+---
+
 # 控煙酒辦在銅鑼灣酒吧向非法吸食水煙人士發三張定額罰款通知
 
 ![控煙酒辦昨晚派員到銅鑼灣進行代號「菸滅」的行動，共發出三張定額罰款通知書。人員在行動中檢取水煙。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799018_1_20250405111612.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm)
-
----
-
-# 崔建春約見梅儒瑞　就美國制裁中方官員提出嚴正交涉
-
-![崔建春昨日約見美國駐香港總領事梅儒瑞，就美國國務院宣布對6名中方官員實施無理制裁，並發布抹黑香港的《2025年香港政策法報告》提出嚴正交涉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798800_1_20250403161446.jpg&q=80)
-  
-
-外交部駐港特派員崔建春昨日約見美國駐香港總領事梅儒瑞，就美國國務院宣布對6名中方官員實施無理制裁，並發布抹黑香港的《2025年香港政策法報告》提出嚴正交涉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm)
 
 ---
