@@ -1,3 +1,27 @@
+# 緬甸大地震增至3471人死亡
+
+![緬甸大地震，曼德勒受災嚴重。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799069_1_20250406004522.jpg&q=90)
+  
+
+緬甸大地震，最新統計顯示，死亡人數增3471人，超過4000人受傷，另有214人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799069-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799069-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799069-20250406.htm)
+
+---
+
 # 俄羅斯國防部稱烏軍24小時襲擊俄方能源基礎設施14次
 
 ![俄羅斯國防部周六說，過去24小時，烏克蘭軍隊14次襲擊俄羅斯能源基礎設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799068_1_20250406003206.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm)
-
----
-
-# 懷疑精神錯亂男子美國首都華盛頓刺傷6人被捕
-
-![懷疑精神錯亂男子美國首都華盛頓刺傷6人被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798899_1_20250404094813.jpg&q=90)
-  
-
-美國首都華盛頓發生持刀傷人事件，造成6人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm)
 
 ---
