@@ -1,3 +1,27 @@
+# 馬斯克：希望美國與歐洲邁向零關稅
+
+![馬斯克向意大利極右政黨聯盟黨集會發表視像講話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799073_1_20250406022618.jpg&q=90)
+  
+
+美國富商馬斯克周六表示，希望歐洲和美國能夠達成共識，建立自由貿易區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799073-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799073-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799073-20250406.htm)
+
+---
+
 # 伊朗總統：願意與美國平等對話
 
 ![佩澤希齊揚表示，伊朗願意與美國進行平等對話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799072_1_20250406014705.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm)
-
----
-
-# 英美期油低收約7%或以上　OPEC+增產加劇油價跌勢
-
-![油價急挫，英美期油曾創4年新低，收市分別跌6.5%及7.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798995_1_20250405055022.jpg&q=90)
-  
-
-油價急挫，英美期油曾創4年新低，中國採取反制措施，對美國商品加徵關稅，市場憂慮全球貿易戰急劇升溫，引發經濟衰退。投資銀行摩根大通預料，今年底前，全球經濟衰退可能性由40%上升至60%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm)
 
 ---
