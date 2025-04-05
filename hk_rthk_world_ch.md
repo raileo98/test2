@@ -74,6 +74,7 @@
 
 ![組織者估計超過2萬人參加在華盛頓國家廣場舉行的集會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799076_1_20250406035721.jpg&q=75)
 ![示威者手持諷刺特朗普的標語。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799076_2_20250406062958.jpg&q=90)
+![在佛羅里達州棕櫚灘的示威中，有民眾帶同小狗抗議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799076_3_20250406070213.jpg&q=90)
   
 
 美國全國多地有民眾示威，反對總統特朗普的政策，是特朗普1月再度入主白宮以來最大規模的抗議活動。

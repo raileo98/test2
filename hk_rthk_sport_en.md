@@ -1,9 +1,9 @@
-# Liverpool closer to title as Everton hold Arsenal
+# Arsenal title bid almost over after draw at Everton
 
-![Ndiaye's penalty leaves the Gunners' title hopes in tatters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799063_1_20250405215706.jpg&q=75)
+![Arsenal manager Mikel Arteta reacts on the pitch after the match between Everton and Arsenal at Goodison Park. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799081_1_20250406071657.jpg&q=90)
   
 
-Arsenal's small remaining hope of a first Premier League title for 21 years was further diminished after a 1-1 draw at Everton on Saturday.
+Arsenal's faint hopes of catching Premier League leaders Liverpool are almost over after their 1-1 draw at Everton, while Aston Villa bolstered their bid for Champions League qualification with a 2-1 win against Nottingham Forest on Saturday.
 
   
 
@@ -11,14 +11,14 @@ Arsenal's small remaining hope of a first Premier League title for 21 years was 
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799063-20250405.htm>
+<https://news.rthk.hk/rthk/en/component/k2/1799081-20250406.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799063-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799063-20250405.htm)
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799081-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799081-20250406.htm)
 
 ---
 
