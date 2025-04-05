@@ -1,3 +1,27 @@
+# 美國多地有民眾示威　反對特朗普政策
+
+![組織者估計超過2萬人參加在華盛頓國家廣場舉行的集會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799076_1_20250406035721.jpg&q=75)
+  
+
+美國全國多地有民眾示威，反對總統特朗普的政策，是特朗普上任以來首次大規模的抗議活動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799076-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799076-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799076-20250406.htm)
+
+---
+
 # 馬克龍宣布將與約旦、埃及舉行三方峰會討論加沙局勢
 
 ![馬克龍將於星期一起訪問埃及兩天。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799074_1_20250406023527.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm)
-
----
-
-# 格奧爾基耶娃稱美國關稅對全球經濟前景構成重大風險
-
-![格奧爾基耶娃呼籲美國與貿易夥伴以建設性方式，努力紓緩緊張局勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798917_1_20250404123303.jpg&q=90)
-  
-
-國際貨幣基金組織總裁格奧爾基耶娃表示，現時全球經濟增長低迷，美國總統特朗普周三宣布的全面關稅措施，對全球經濟構成重大風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 美國多地有民眾示威　反對特朗普政策
+
+![組織者估計超過2萬人參加在華盛頓國家廣場舉行的集會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799076_1_20250406035721.jpg&q=75)
+  
+
+美國全國多地有民眾示威，反對總統特朗普的政策，是特朗普上任以來首次大規模的抗議活動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799076-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799076-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799076-20250406.htm)
+
+---
+
 # 英超阿士東維拉2:1挫諾定咸森林
 
 ![維拉球員慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799075_1_20250406024316.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm)
-
----
-
-# 德甲拜仁3:1反勝奧格斯堡　鞏固榜首位置
-
-![哈利簡尼（右）為球隊頂入反先一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798999_1_20250405073638.jpg&q=90)
-  
-
-德國甲組足球聯賽，拜仁慕尼黑作客3:1反勝奧格斯堡，鞏固榜首位置。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798999-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798999-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798999-20250405.htm)
 
 ---
