@@ -1,3 +1,27 @@
+# 南韓總統辦公室15名高級幕僚呈辭被駁回　總理稱避免治國空白期
+
+![韓悳洙駁回總統辦公室15名高級幕僚提交的辭呈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799009_1_20250405095539.jpg&q=90)
+  
+
+南韓總理辦公室表示，代行總統職務的總理韓悳洙，昨日駁回總統辦公室15名高級幕僚提交的辭呈。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799009-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799009-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799009-20250405.htm)
+
+---
+
 # 內地賞花熱潮帶動經濟　西藏林芝「桃花第一村」花海改善村民生活
 
 ![西藏巴宜區嘎拉村被譽為「桃花第一村」，種植超過1250棵野生桃樹。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_1_20250405092358.jpg&q=15)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm)
-
----
-
-# 警方薄扶林檢市值逾800萬元私煙
-
-![警方在薄扶林進行反走私行動，檢獲183箱懷疑私煙，估計總市值共約832萬元。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798936_1_20250404155440.jpg&q=75)
-  
-
-警方在薄扶林進行反走私行動，檢獲183箱懷疑私煙，估計總市值共約832萬元，暫時未有人被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm)
 
 ---

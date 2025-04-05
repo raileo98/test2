@@ -1,3 +1,27 @@
+# Van der Poel and Pogacar face off in Tour of Flanders
+
+![There are five ultra-long one-day bike races known as the Monuments, and the Tour of Flanders is considered the greatest. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799008_1_20250405095319.jpg&q=90)
+  
+
+Come rain or shine 750,000 fans are expected to turn out on Sunday for cycling's most revered one-day race, the Tour of Flanders, for a Tadej Pogacar and Mathieu van der Poel showdown.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799008-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799008-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799008-20250405.htm)
+
+---
+
 # Four men to appear in court over spate of burglaries
 
 ![Police allege that property totalling about HK$375,000 was taken during the thefts. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799007_1_20250405093500.jpg&q=70)
@@ -1414,29 +1438,5 @@ Rescue teams from the SAR and the mainland have joined hands in finding a surviv
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm)
-
----
-
-# Tibet tourist numbers soar to all-time high
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798638_1_20250402164919.jpg&q=85)
-  
-
-Visitor numbers to the Tibet region reached 63 million last year, its highest ever.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798638-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798638-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798638-20250402.htm)
 
 ---

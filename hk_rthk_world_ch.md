@@ -1,3 +1,27 @@
+# 南韓總統辦公室15名高級幕僚呈辭被駁回　總理稱避免治國空白期
+
+![韓悳洙駁回總統辦公室15名高級幕僚提交的辭呈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799009_1_20250405095539.jpg&q=90)
+  
+
+南韓總理辦公室表示，代行總統職務的總理韓悳洙，昨日駁回總統辦公室15名高級幕僚提交的辭呈。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799009-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799009-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799009-20250405.htm)
+
+---
+
 # 《華盛頓郵報》：美國國稅局將裁減2萬職位　佔員工總數四分一
 
 ![國稅局早前已流失多名高級管理層及數千名員工，包括負責稅務審計的專員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799005_1_20250405090311.jpg&q=70)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm)
-
----
-
-# 特區政府強烈不滿美國向香港產品加徵關稅　香港郵政不會代收關稅
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798827_2_20250403183942.jpg&q=80)
-  
-
-特區政府表示，強烈反對及不滿美國向香港產品加徵所謂對等關稅，並由5月2日起取消香港產品的小額免稅待遇及徵收關稅，再次嚴正要求美方撤回。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm)
 
 ---

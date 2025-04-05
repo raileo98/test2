@@ -1,3 +1,27 @@
+# Van der Poel and Pogacar face off in Tour of Flanders
+
+![There are five ultra-long one-day bike races known as the Monuments, and the Tour of Flanders is considered the greatest. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799008_1_20250405095319.jpg&q=90)
+  
+
+Come rain or shine 750,000 fans are expected to turn out on Sunday for cycling's most revered one-day race, the Tour of Flanders, for a Tadej Pogacar and Mathieu van der Poel showdown.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799008-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799008-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799008-20250405.htm)
+
+---
+
 # De Bruyne to leave City at the end of the season
 
 ![Kevin De Bruyne has won 14 major trophies since joining Man City in 2015. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798963_2_20250404213306.jpg&q=90)
@@ -1428,29 +1452,5 @@ Hong Kong, China and hosts Singapore battled to a goalless draw on Tuesday night
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm)
-
----
-
-# China's World Cup qualifying hopes take a big hit
-
-![The national team stayed at the bottom of the group of six, seven points behind second place Australia with two matches remaining. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797366_1_20250325213048.jpg&q=80)
-  
-
-China's hopes of directly qualifying for the 2026 World Cup took a hit after suffering a 2-0 defeat against Australia on Tuesday night.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm)
 
 ---
