@@ -1,3 +1,27 @@
+# 俄羅斯國防部稱烏軍24小時襲擊俄方能源基礎設施14次
+
+![俄羅斯國防部周六說，過去24小時，烏克蘭軍隊14次襲擊俄羅斯能源基礎設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799068_1_20250406003206.jpg&q=90)
+  
+
+俄羅斯國防部周六說，過去24小時，烏克蘭軍隊14次襲擊俄羅斯能源基礎設施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799068-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799068-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799068-20250406.htm)
+
+---
+
 # 英超阿仙奴被愛華頓逼和1:1
 
 ![兵工廠和波失分，被愛華頓逼和1:1。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799067_1_20250406002505.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798989-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798989-20250405.htm)
-
----
-
-# 英德意同意貿易戰不符合任何人利益　歐盟稱美國關稅具破壞性
-
-![施紀賢重申，英國不會急於對美國的關稅政策採取報復措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798988_1_20250405032426.jpg&q=90)
-  
-
-英國首相施紀賢分別與澳洲總理阿爾巴內塞及意大利總理梅洛尼通電話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm)
 
 ---

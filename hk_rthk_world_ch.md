@@ -1,3 +1,27 @@
+# 俄羅斯國防部稱烏軍24小時襲擊俄方能源基礎設施14次
+
+![俄羅斯國防部周六說，過去24小時，烏克蘭軍隊14次襲擊俄羅斯能源基礎設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799068_1_20250406003206.jpg&q=90)
+  
+
+俄羅斯國防部周六說，過去24小時，烏克蘭軍隊14次襲擊俄羅斯能源基礎設施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799068-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799068-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799068-20250406.htm)
+
+---
+
 # 中柬兩軍啟動聯合演習　提高戰略協作水平
 
 ![柬埔寨首相洪瑪奈（前中）出席中柬雲壤港聯合保障和訓練中心掛牌儀式。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799065_1_20250405230812.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm)
-
----
-
-# 烏克蘭稱俄羅斯無人機襲擊哈爾科夫至少3人死亡
-
-![哈爾科夫有住宅在襲擊中損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798900_1_20250404094202.jpg&q=85)
-  
-
-烏克蘭當局說，俄羅斯以無人機空襲東部城巿哈爾科夫，造成最少3人死亡，數十人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798900-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798900-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798900-20250404.htm)
 
 ---
