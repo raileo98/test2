@@ -1,3 +1,26 @@
+# 新華社：中國政府強烈譴責和堅決反對美國濫施關稅
+
+  
+
+中國強烈譴責和堅決反對美國濫施關稅，指施壓和威脅不是同中方打交道的正確方式。中方將採取堅決措施，維護自身主權安全發展利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm)
+
+---
+
 # 黃恩諾：檢討水費調整冀做到收回成本及用者自付
 
   

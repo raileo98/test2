@@ -1,3 +1,26 @@
+# 新華社：中國政府強烈譴責和堅決反對美國濫施關稅
+
+  
+
+中國強烈譴責和堅決反對美國濫施關稅，指施壓和威脅不是同中方打交道的正確方式。中方將採取堅決措施，維護自身主權安全發展利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm)
+
+---
+
 # 美股連續兩個交易日急挫　鮑威爾：是否調整貨幣政策言之尚早
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799050_1_20250405182938.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798878-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798878-20250404.htm)
-
----
-
-# 馬克龍呼籲暫停對美投資　歐盟成員國下周表決鋼鋁關稅反制措施
-
-![馬克龍會見工業界代表時形容，新關稅是野蠻而且毫無根據。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798877_1_20250404032220.jpg&q=90)
-  
-
-美國總統特朗普公布對等關稅措施，引起多國不滿，法國總統馬克龍呼籲暫停對美投資。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798877-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798877-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798877-20250404.htm)
 
 ---
