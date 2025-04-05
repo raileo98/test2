@@ -1,5 +1,56 @@
+# 內地賞花熱潮帶動經濟　西藏林芝「桃花第一村」花海改善村民生活
+
+![西藏巴宜區嘎拉村被譽為「桃花第一村」，種植超過1250棵野生桃樹。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_1_20250405092358.jpg&q=15)
+![不少北京居民及遊客到訪玉淵潭公園打卡留念。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_2_20250405092358.jpg&q=35)
+![玉淵潭公園是北京著名賞櫻勝地，目前正值櫻花盛開季節。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_3_20250405092358.jpg&q=55)
+  
+
+踏入春季，全國多個城市正值花期，各地推動賞花經濟。在北京，賞櫻熱點之一的玉淵潭公園，吸引不少民眾及遊客賞花打卡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799006-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799006-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799006-20250405.htm)
+
+---
+
+# 《華盛頓郵報》：美國國稅局將裁減2萬職位　佔員工總數四分一
+
+![國稅局早前已流失多名高級管理層及數千名員工，包括負責稅務審計的專員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799005_1_20250405090311.jpg&q=70)
+  
+
+《華盛頓郵報》報道，美國國稅局將大規模裁員，預計裁減2萬個工作崗位，佔國稅局員工總數四分之一。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm)
+
+---
+
 # 以軍稱近期行動剷除巴勒斯坦武裝組織兩名高級成員
 
+![以軍近期持續對加沙採取軍事行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799004_1_20250405093840.jpg&q=80)
   
 
 以色列國防軍與國家安全總局發表聯合聲明指出，在近期對加沙地帶的軍事行動中，剷除巴勒斯坦武裝組織兩名高級成員。
@@ -1387,56 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm)
-
----
-
-# 全運會場地單車測試賽本月舉行　逾150名選手參與
-
-![聶偉文說，有來自澳門、廣東、雲南和吉林車手來港比賽。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_1_20250404155354.jpg&q=80)
-![貝鈞奇表示，市民可以欣賞高水平賽事。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_2_20250404155354.jpg&q=80)
-![李思穎說，未來兩個星期會進入場地訓練好好備戰。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_3_20250404155354.jpg&q=90)
-![繆正賢說，剛從河南回港，狀態不俗。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_4_20250404155354.jpg&q=90)
-  
-
-2025香港國際場地盃暨第15屆全運會場地自行車測試賽，將於本月19至21日在將軍澳香港單車館舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm)
-
----
-
-# 運輸署料下午東壩回程路段交通非常繁忙
-
-![運輸署預計下午離開東壩通往北潭涌的西貢萬宜路交通會非常繁忙。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798933_1_20250404150207.jpg&q=90)
-  
-
-運輸署表示，現時在萬宜水庫東壩的遊人眾多，預計下午離開該處通往北潭涌的西貢萬宜路交通會非常繁忙。署方說，由萬宜水庫東壩開出，往北潭涌的專線小巴第9A號線已進一步加強服務和班次，應對乘客需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798933-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798933-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798933-20250404.htm)
 
 ---

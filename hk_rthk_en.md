@@ -1,3 +1,27 @@
+# Four men to appear in court over spate of burglaries
+
+![Police allege that property totalling about HK$375,000 was taken during the thefts. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799007_1_20250405093500.jpg&q=70)
+  
+
+Four mainland men, arrested in Yuen Long on Thursday on suspicion of burglary and illegal entry, will have their case brought up in court on Saturday in Kwun Tong.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799007-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799007-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799007-20250405.htm)
+
+---
+
 # Tariffs to raise inflation, cool growth: Fed Chair
 
 ![Jerome Powell said on Friday that he expected the current uncertainty to decline in the coming months. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798991_1_20250405044209.jpg&q=90)
@@ -1414,29 +1438,5 @@ Visitor numbers to the Tibet region reached 63 million last year, its highest ev
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798638-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798638-20250402.htm)
-
----
-
-# Teen held over mass killings plan outside mosques
-
-![The 17-year-old is alleged to have targeted five mosques in Singapore as part of his plan to kill at least 100 Muslims. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798653_1_20250402175858.jpg&q=75)
-  
-
-A Singaporean teenager allegedly planning to kill dozens of Muslims outside several mosques has been detained, the city-state's Internal Security Department (ISD) said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm)
 
 ---

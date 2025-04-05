@@ -1,3 +1,29 @@
+# 內地賞花熱潮帶動經濟　西藏林芝「桃花第一村」花海改善村民生活
+
+![西藏巴宜區嘎拉村被譽為「桃花第一村」，種植超過1250棵野生桃樹。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_1_20250405092358.jpg&q=15)
+![不少北京居民及遊客到訪玉淵潭公園打卡留念。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_2_20250405092358.jpg&q=35)
+![玉淵潭公園是北京著名賞櫻勝地，目前正值櫻花盛開季節。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_3_20250405092358.jpg&q=55)
+  
+
+踏入春季，全國多個城市正值花期，各地推動賞花經濟。在北京，賞櫻熱點之一的玉淵潭公園，吸引不少民眾及遊客賞花打卡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799006-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799006-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799006-20250405.htm)
+
+---
+
 # 劉兆佳指中方反制肯定不只是姿態　莊太量料或引發小股災
 
 ![國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798972_1_20250404220059.jpg&q=80)
@@ -1416,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm)
-
----
-
-# 特區救援隊救出一名生還者　指揮官：只要有一個機會也不會放棄
-
-![救援隊指揮官表示，能夠在地震發生6日後找到生還者，救援隊感到非常鼓舞和振奮。（香港消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798678_1_20250402210137.jpg&q=85)
-  
-
-正在緬甸地震災區協助搜救工作的特區救援隊，今日成功救出一名生還者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm)
 
 ---

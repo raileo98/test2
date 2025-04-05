@@ -1,3 +1,27 @@
+# Four men to appear in court over spate of burglaries
+
+![Police allege that property totalling about HK$375,000 was taken during the thefts. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799007_1_20250405093500.jpg&q=70)
+  
+
+Four mainland men, arrested in Yuen Long on Thursday on suspicion of burglary and illegal entry, will have their case brought up in court on Saturday in Kwun Tong.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799007-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799007-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799007-20250405.htm)
+
+---
+
 # HK International Track Cup to attract 150 cyclists
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798942_1_20250404160739.jpg&q=85)
@@ -1415,29 +1439,5 @@ The controversy over CK Hutchison's plans to sell dozens of ports won't affect f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm)
-
----
-
-# Hong Kong Super March is a big draw: Paul Chan
-
-![Paul Chan says he hopes more people will do business in Hong Kong apart from enjoying art. Image courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798103_1_20250330133135.jpg&q=90)
-  
-
-Financial Secretary Paul Chan said "Super March" has attracted more than 3.4 million visitors to Hong Kong, a 12 percent increase from a year ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm)
 
 ---

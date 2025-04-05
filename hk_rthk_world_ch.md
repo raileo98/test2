@@ -1,5 +1,30 @@
+# 《華盛頓郵報》：美國國稅局將裁減2萬職位　佔員工總數四分一
+
+![國稅局早前已流失多名高級管理層及數千名員工，包括負責稅務審計的專員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799005_1_20250405090311.jpg&q=70)
+  
+
+《華盛頓郵報》報道，美國國稅局將大規模裁員，預計裁減2萬個工作崗位，佔國稅局員工總數四分之一。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm)
+
+---
+
 # 以軍稱近期行動剷除巴勒斯坦武裝組織兩名高級成員
 
+![以軍近期持續對加沙採取軍事行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799004_1_20250405093840.jpg&q=80)
   
 
 以色列國防軍與國家安全總局發表聯合聲明指出，在近期對加沙地帶的軍事行動中，剷除巴勒斯坦武裝組織兩名高級成員。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm)
-
----
-
-# 香港律師會訪京　湯文龍稱任何對公職人員制裁都是對法治侮辱
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798824_1_20250403183643.jpg&q=80)
-  
-
-美國國務院早前宣布，對6名中央和香港特區官員實施制裁。香港律師會會長湯文龍表示，不以政治角度評論事件，就法律角度而言，任何對於公職人員的制裁都是對法治的侮辱。他説，任何人包括律政司司長，根據《基本法》下行使應有的權利，不應該受到干預和制裁。如果制裁是透過政治手段，作爲法律從業員，他們對此予以譴責。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm)
 
 ---
