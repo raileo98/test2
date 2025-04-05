@@ -46,7 +46,7 @@ Wall Street stocks suffered another bruising sell-off on Friday as major indices
 
 ---
 
-# Trump extend TikTok deadline to find buyer
+# Trump extends TikTok deadline to find buyer
 
 ![The new 75-day delay pushes the deadline to June 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798987_1_20250405031437.jpg&q=90)
   

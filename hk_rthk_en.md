@@ -1,3 +1,27 @@
+# Alex Ovechkin matches Gretzky's NHL record
+
+![Ovechkin tied Gretzky's monumental mark with a power-play goal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799014_1_20250405103308.jpg&q=90)
+  
+
+Alex Ovechkin scored twice to tie Wayne Gretzky's record of 894 NHL career goals on Friday, matching a mark that once seemed unassailable.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799014-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799014-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799014-20250405.htm)
+
+---
+
 # Van der Poel and Pogacar face off in Tour of Flanders
 
 ![There are five ultra-long one-day bike races known as the Monuments, and the Tour of Flanders is considered the greatest. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799008_1_20250405095319.jpg&q=90)
@@ -94,7 +118,7 @@ Wall Street stocks suffered another bruising sell-off on Friday as major indices
 
 ---
 
-# Trump extend TikTok deadline to find buyer
+# Trump extends TikTok deadline to find buyer
 
 ![The new 75-day delay pushes the deadline to June 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798987_1_20250405031437.jpg&q=90)
   
@@ -1414,29 +1438,5 @@ Police said on Wednesday more suspects have been arrested in connection with the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798670-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798670-20250402.htm)
-
----
-
-# Mainland, SAR rescuers find quake survivor in Mandalay
-
-![A 52-year-old man has been rescued from the rubble of a hotel in Mandalay. Photo: Chris Tang's Facebook page](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798679_1_20250402204310.jpg&q=85)
-  
-
-Rescue teams from the SAR and the mainland have joined hands in finding a survivor in the quake-rattled Myanmar city of Mandalay.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 陳祖恒籲業界勿再奢望再取美國大訂單　史立德指最終美國民眾埋單
+
+  
+
+美國對全球多國徵收「對等關稅」，其中美國對華加徵34%關稅，累計關稅增至54%。中國作出反制，下星期四起，對原產於美國的所有進口商品加徵34%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm)
+
+---
+
+# 霍啟剛歡迎政府調整精英體育資助　對香港成體育產業中心感樂觀
+
+  
+
+港協暨奧委會副會長、立法會議員霍啟剛表示，歡迎政府調整精英體育資助制度，支持運動員的發展，又認為政府是聆聽社會意見後作出彈性改動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm)
+
+---
+
 # 劉兆佳指中方反制肯定不只是姿態　莊太量料或引發小股災
 
 ![國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798972_1_20250404220059.jpg&q=80)
@@ -1391,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798789-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798789-20250403.htm)
-
----
-
-# 港股下午初段跌360點
-
-![恒生指數較早時報22841點，跌360點，跌幅1.55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798784_1_20250403130628.jpg&q=80)
-  
-
-港股下午初段繼續向下，恒生指數較早時報22841點，跌360點，跌幅1.55%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm)
-
----
-
-# 有立會議員稱美方關稅措施影響全球貿易導致利率高企
-
-![特朗普簽署行政命令，取消中國內地和香港的小額包裹豁免關稅政策 。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798771_1_20250403124051.jpg&q=90)
-  
-
-因應美國對中國進口產品徵收新關稅安排，並取消中國內地和香港的小額包裹豁免關稅政策 。有立法會議員批評美方的做法，影響全球貿易，將導致利率高企，影響經商。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798771-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798771-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798771-20250403.htm)
 
 ---

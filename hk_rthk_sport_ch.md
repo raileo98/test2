@@ -1,3 +1,26 @@
+# 霍啟剛歡迎政府調整精英體育資助　對香港成體育產業中心感樂觀
+
+  
+
+港協暨奧委會副會長、立法會議員霍啟剛表示，歡迎政府調整精英體育資助制度，支持運動員的發展，又認為政府是聆聽社會意見後作出彈性改動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm)
+
+---
+
 # 西甲愛斯賓奴4:0華歷簡奴　紓緩降班壓力
 
 ![西甲愛斯賓奴4:0華歷簡奴　紓緩降班壓力](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799000_1_20250405082115.jpg&q=90)
@@ -1435,29 +1458,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797079-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797079-20250324.htm)
-
----
-
-# 香港打吡大賽逾6.1萬人入沙田馬場創賽事新高
-
-![馬場導賞團吸引不少內地旅客參加。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797055_1_20250323212139.jpg&q=85)
-  
-
-沙田馬場今日舉行香港打吡大賽，賽事吸引近7.2萬人入場，當中沙田入場人數為超過6.1萬人，內地及海外旅客的入場人數超過9000人，兩者均創下歷來香港打吡大賽新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm)
 
 ---

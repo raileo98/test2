@@ -1,3 +1,73 @@
+# 陳祖恒籲業界勿再奢望再取美國大訂單　史立德指最終美國民眾埋單
+
+  
+
+美國對全球多國徵收「對等關稅」，其中美國對華加徵34%關稅，累計關稅增至54%。中國作出反制，下星期四起，對原產於美國的所有進口商品加徵34%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm)
+
+---
+
+# 霍啟剛歡迎政府調整精英體育資助　對香港成體育產業中心感樂觀
+
+  
+
+港協暨奧委會副會長、立法會議員霍啟剛表示，歡迎政府調整精英體育資助制度，支持運動員的發展，又認為政府是聆聽社會意見後作出彈性改動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm)
+
+---
+
+# 《環看天下》：美國推動和平   俄烏戰場持續交戰
+
+![烏克蘭部分地區近日仍然受到襲擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799010_1_20250405101301.jpg&q=90)
+  
+
+美國致力斡旋俄烏和平。美烏官員在布魯塞爾會晤，雙方討論烏俄停火，以及兩國礦產合作等問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm)
+
+---
+
 # 南韓總統辦公室15名高級幕僚呈辭被駁回　總理稱避免治國空白期
 
 ![韓悳洙駁回總統辦公室15名高級幕僚提交的辭呈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799009_1_20250405095539.jpg&q=90)
@@ -1366,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798941-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798941-20250404.htm)
-
----
-
-# 流行文化節本月起展開　未來兩日有免費戶外音樂嘉年華
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798940_1_20250404162714.jpg&q=80)
-  
-
-康文署本月起將開展第三屆香港流行文化節，提供超過20項活動，涵蓋音樂、影像和文字等不同內容。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm)
-
----
-
-# 特區救援隊與國家隊義診緬甸地震災民
-
-![救援隊帶災民到醫療帳篷接受診治。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798938_2_20250404155558.jpg&q=65)
-  
-
-正在緬甸協助救援的特區救援隊，聯同國家隊在災區設置帳篷義診，帶同醫療裝備，例如量度維生指數的儀器、處理傷口的消毒用品等，協助災民處理傷患及提供藥物。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm)
-
----
-
-# 尹錫悅被罷免總統職務　代總統指示保持戒備防北韓挑釁
-
-![尹錫悅成為南韓憲政史上第二位被罷免的總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798937_1_20250404153208.jpg&q=90)
-  
-
-南韓憲法法院通過對尹錫悅的彈劾案，尹錫悅即時被罷免總統職務。尹錫悅通過律師說，未能滿足國民期望，感到非常遺憾和抱歉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm)
 
 ---

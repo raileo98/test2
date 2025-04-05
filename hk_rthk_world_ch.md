@@ -1,3 +1,27 @@
+# 《環看天下》：美國推動和平   俄烏戰場持續交戰
+
+![烏克蘭部分地區近日仍然受到襲擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799010_1_20250405101301.jpg&q=90)
+  
+
+美國致力斡旋俄烏和平。美烏官員在布魯塞爾會晤，雙方討論烏俄停火，以及兩國礦產合作等問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm)
+
+---
+
 # 南韓總統辦公室15名高級幕僚呈辭被駁回　總理稱避免治國空白期
 
 ![韓悳洙駁回總統辦公室15名高級幕僚提交的辭呈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799009_1_20250405095539.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm)
-
----
-
-# 特區救援隊指揮官趙汝珏：天氣炎熱惟救出傷者後士氣高昂
-
-![趙汝珏說，特區救援隊已經抵步第六日，當地天氣非常熱，日間超過40度，夜間超過30度，對體能消耗有一定壓力。(香港消防處社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798829_1_20250403181259.jpg&q=90)
-  
-
-緬甸大地震發生超過5日，中國救援隊伍經過3個多小時的救援工作，當地昨日下午5時許在曼德勒金色鄉村酒店救援點，成功救出一名被困近125小時的52歲緬甸男性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm)
 
 ---

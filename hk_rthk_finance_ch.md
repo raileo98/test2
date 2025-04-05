@@ -1,3 +1,26 @@
+# 陳祖恒籲業界勿再奢望再取美國大訂單　史立德指最終美國民眾埋單
+
+  
+
+美國對全球多國徵收「對等關稅」，其中美國對華加徵34%關稅，累計關稅增至54%。中國作出反制，下星期四起，對原產於美國的所有進口商品加徵34%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm)
+
+---
+
 # 美元兌多個貨幣反彈　兌澳元創5年新高
 
 ![美元兌多個貨幣反彈，澳元兌美元一度低見0.5987，創5年新低。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799001_1_20250405074310.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798823-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798823-20250403.htm)
-
----
-
-# 美元指數失守103　兌日圓跌穿147　人民幣兌美元失守7.3
-
-![美元指數失守103水平，一度跌1%，較早時報102.17，跌幅0.96%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798816_1_20250403170058.jpg&q=85)
-  
-
-美國對多個國家及地區徵收對等關稅，美元指數失守103水平，一度跌1%，較早時報102.17，跌幅0.96%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798816-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798816-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798816-20250403.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Alex Ovechkin matches Gretzky's NHL record
+
+![Ovechkin tied Gretzky's monumental mark with a power-play goal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799014_1_20250405103308.jpg&q=90)
+  
+
+Alex Ovechkin scored twice to tie Wayne Gretzky's record of 894 NHL career goals on Friday, matching a mark that once seemed unassailable.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799014-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799014-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799014-20250405.htm)
+
+---
+
 # Van der Poel and Pogacar face off in Tour of Flanders
 
 ![There are five ultra-long one-day bike races known as the Monuments, and the Tour of Flanders is considered the greatest. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799008_1_20250405095319.jpg&q=90)
@@ -1428,29 +1452,5 @@ World Athletics said on Tuesday it had approved the introduction of a cheek swab
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm)
-
----
-
-# HK open Asian Cup final round qualifier with draw
-
-![The goalless draw ended the SAR's record seven-match winning run. Image courtesy of Hong Kong Football Association](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797379_2_20250326053556.jpg&q=90)
-  
-
-Hong Kong, China and hosts Singapore battled to a goalless draw on Tuesday night as they began the final round of their AFC Asian Cup football qualifying campaign.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm)
 
 ---
