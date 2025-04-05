@@ -1,3 +1,26 @@
+# 運輸署料今日較後時間及明日較多旅客陸路入境　籲預留充裕時間
+
+  
+
+運輸署預料今日較後時間及明日，將有較多跨境旅客使用各陸路管制站回港，呼籲入境旅客及早規劃行程，預留充裕交通時間，盡量選擇於非繁忙時段出行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm)
+
+---
+
 # 人民日報評論指美國所謂「對等關稅」將反噬美國經濟
 
 ![人民日報發表評論文章，批評美國不知所云的所謂「對等關稅」，將反噬美國經濟。（人民網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799033_1_20250405151637.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798961-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798961-20250404.htm)
-
----
-
-# 中方暫停6家美國企業產品輸華資質
-
-![中方暫停6家美國企業產品輸華資質](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798962_1_20250404191436.jpg&q=90)
-  
-
-國家海關總署公布，暫停6家美國企業產品輸華資質。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798962-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798962-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798962-20250404.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 運輸署料今日較後時間及明日較多旅客陸路入境　籲預留充裕時間
+
+  
+
+運輸署預料今日較後時間及明日，將有較多跨境旅客使用各陸路管制站回港，呼籲入境旅客及早規劃行程，預留充裕交通時間，盡量選擇於非繁忙時段出行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm)
+
+---
+
 # 民青局資助約30個以「東江水供港60周年」為主題交流項目
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799028_1_20250405143324.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm)
-
----
-
-# 約5萬考生應考文憑試英文科卷一及卷二　考評局：各試場運作暢順
-
-![考評局表示，各試場學校整體運作暢順，考試順利按時完成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798820_1_20250403185812.jpg&q=85)
-  
-
-中學文憑試英國語文科卷一及卷二考試早上舉行。考評局表示，約50000名考生在約430個一般試場及逾540個特別試場應考，各試場學校整體運作暢順，考試順利按時完成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm)
 
 ---
