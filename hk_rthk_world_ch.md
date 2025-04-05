@@ -1,3 +1,26 @@
+# 美國和巴拿馬官員討論長和經營巴拿馬運河港口審計問題
+
+  
+
+美國副國務卿蘭多與巴拿馬外長馬丁內斯阿查通話，討論長和集團經營巴拿馬運河港口的審計問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799032-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799032-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799032-20250405.htm)
+
+---
+
 # SpaceX團隊完成人類首次載人圍繞地球兩極飛行任務
 
 ![搭載飛船的火箭上月底從佛羅里達州的航天中心發射升空。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799031_1_20250405142718.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798872-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798872-20250404.htm)
-
----
-
-# 加拿大反制　向不符合美墨加協定的美國進口汽車徵收25%關稅
-
-![卡尼指出，加拿大對美國貿易的嚴重依賴已經結束。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798871_1_20250404003303.jpg&q=90)
-  
-
-加拿大總理卡尼宣布，對所有不符合美墨加協定的美國進口汽車徵收25%關稅，回應美國從星期四起對所有進口汽車徵收25%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm)
 
 ---
