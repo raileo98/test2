@@ -1,3 +1,27 @@
+# 日本發生旅遊巴意外　據報47人受傷包括香港人
+
+![日本發生旅遊巴意外　據報47人受傷包括香港人](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799062_1_20250405215151.jpg&q=90)
+  
+
+日本東京以西一條高速公路發生涉及旅遊巴的意外，據報47人受傷，包括香港人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799062-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799062-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799062-20250405.htm)
+
+---
+
 # 特朗普指關稅措施打擊中國多於美國
 
 ![美國總統特朗普指關稅措施打擊中國多於美國。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799061_1_20250405212003.jpg&q=90)
