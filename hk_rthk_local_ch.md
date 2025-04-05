@@ -1,8 +1,32 @@
-# 陳茂波：美國加徵關稅易引市場情緒反應　政府有監察機制建立緩衝
+# 緬甸特區救援隊遇酷熱天氣及蚊患問題　入境處協調張羅蚊帳等物資
 
   
 
-財政司司長陳茂波說，國際投資者對中國和香港的投資意慾已經轉勢，由約兩年前認為不適合投資，變為現時「怕走雞」、「怕執輸」。
+正在緬甸協助救援的特區救援隊表示，暫時遇到最大的困難是當地酷熱的天氣及蚊患問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799039-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799039-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799039-20250405.htm)
+
+---
+
+# 陳茂波：美國加徵關稅易引市場情緒反應　政府有監察機制建立緩衝
+
+![陳茂波表示，美國總統特朗普向全球各國加徵關稅，特區政府已有監察機制，期望及早識別出問題，然後化解，以及建立一個較大的緩衝。（陳豊贊攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799038_1_20250405155621.jpg&q=90)
+  
+
+財政司司長陳茂波出席香港新聞博覽館舉辦的論壇時表示，美國總統特朗普向全球各國加徵對等關稅，容易引起市場情緒反應，特別是在金融市場，特區政府已有監察機制，期望及早識別出問題，然後化解，以及建立一個較大的緩衝。
 
   
 
@@ -23,6 +47,7 @@
 
 # 運輸署料今日較後時間及明日較多旅客陸路入境　籲預留充裕時間
 
+![運輸署預料今日較後時間及明日，將有較多跨境旅客使用各陸路管制站回港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799036_1_20250405155929.jpg&q=85)
   
 
 運輸署預料今日較後時間及明日，將有較多跨境旅客使用各陸路管制站回港，呼籲入境旅客及早規劃行程，預留充裕交通時間，盡量選擇於非繁忙時段出行。
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm)
-
----
-
-# 特區政府強烈不滿美國向香港產品加徵關稅　香港郵政不會代收關稅
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798827_2_20250403183942.jpg&q=80)
-  
-
-特區政府表示，強烈反對及不滿美國向香港產品加徵所謂對等關稅，並由5月2日起取消香港產品的小額免稅待遇及徵收關稅，再次嚴正要求美方撤回。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm)
 
 ---

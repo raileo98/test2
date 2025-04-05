@@ -1,3 +1,27 @@
+# 陳茂波：美國加徵關稅易引市場情緒反應　政府有監察機制建立緩衝
+
+![陳茂波表示，美國總統特朗普向全球各國加徵關稅，特區政府已有監察機制，期望及早識別出問題，然後化解，以及建立一個較大的緩衝。（陳豊贊攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799038_1_20250405155621.jpg&q=90)
+  
+
+財政司司長陳茂波出席香港新聞博覽館舉辦的論壇時表示，美國總統特朗普向全球各國加徵對等關稅，容易引起市場情緒反應，特別是在金融市場，特區政府已有監察機制，期望及早識別出問題，然後化解，以及建立一個較大的緩衝。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm)
+
+---
+
 # 國家統計局：今年1至2月份中國消費市場運行平穩向好
 
 ![國家統計局數據顯示，今年1月至2月份中國消費市場運行平穩向好。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799029_1_20250405134002.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798833-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798833-20250403.htm)
-
----
-
-# 中證監召開民營科企座談會　將加快推動新一輪資本市場改革開放
-
-![吳清表示，民營經濟是國民經濟的重要組成部分，是推動科技創新的重要力量，將加快推動新一輪資本市場改革開放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798831_1_20250403181034.jpg&q=90)
-  
-
-中國證監會近日召開深化資本市場投融資綜合改革民營科技企業座談會。中證監主席吳清表示，民營經濟是國民經濟的重要組成部分，是推動科技創新的重要力量，將加快推動新一輪資本市場改革開放。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm)
 
 ---
