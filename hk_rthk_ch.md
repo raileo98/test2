@@ -1,3 +1,50 @@
+# 英法領袖通電話對美國關稅政策帶來影響表示擔憂
+
+  
+
+英國首相辦公室表示，首相施紀賢天與法國總統馬克龍通電話，雙方均對美國新關稅政策帶來的經濟和安全影響表達擔憂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799079-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799079-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799079-20250406.htm)
+
+---
+
+# 聯合國稱加沙百萬兒童一個多月無法獲得援助物資
+
+![聯合國兒童基金會說，救助物資持續受阻將會導致加沙地帶的兒童營養不良和疾病激增，並增加兒童死亡率。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799078_1_20250406045514.jpg&q=85)
+  
+
+聯合國兒童基金會表示，加沙地帶超過100萬兒童已有長達一個多月無法獲得救生和援助物資，救助物資持續受阻將會導致加沙地帶的兒童營養不良和疾病激增，並增加兒童死亡率。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799078-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799078-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799078-20250406.htm)
+
+---
+
 # 美國多地有民眾示威　反對特朗普政策
 
 ![組織者估計超過2萬人參加在華盛頓國家廣場舉行的集會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799076_1_20250406035721.jpg&q=75)
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799002-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799002-20250405.htm)
-
----
-
-# 西甲愛斯賓奴4:0華歷簡奴　紓緩降班壓力
-
-![西甲愛斯賓奴4:0華歷簡奴　紓緩降班壓力](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799000_1_20250405082115.jpg&q=90)
-  
-
-西班牙甲組足球聯賽方面，愛斯賓奴4:0大勝華歷簡奴，紓緩降班壓力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799000-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799000-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799000-20250405.htm)
-
----
-
-# 美國3月非農業新增職位勝預期　分析料關稅影響最早4月數據反映
-
-![分析估計，對等關稅帶來的影響，最快在4月美國非農業就業報告顯現。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798998_1_20250405072254.jpg&q=90)
-  
-
-美國3月非農業新增職位22.8萬個，遠高於市場預期的13.5萬個，亦高於2月向下修訂的11.7萬個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm)
 
 ---

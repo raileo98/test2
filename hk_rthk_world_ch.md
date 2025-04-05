@@ -1,3 +1,26 @@
+# 英法領袖通電話對美國關稅政策帶來影響表示擔憂
+
+  
+
+英國首相辦公室表示，首相施紀賢天與法國總統馬克龍通電話，雙方均對美國新關稅政策帶來的經濟和安全影響表達擔憂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799079-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799079-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799079-20250406.htm)
+
+---
+
 # 聯合國稱加沙百萬兒童一個多月無法獲得援助物資
 
 ![聯合國兒童基金會說，救助物資持續受阻將會導致加沙地帶的兒童營養不良和疾病激增，並增加兒童死亡率。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799078_1_20250406045514.jpg&q=85)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm)
-
----
-
-# 被彈劾下台後　尹錫悅向國民稱未能達到預期感遺憾抱歉
-
-![尹錫悅成為繼朴謹惠後第二位被彈劾下台的總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798929_1_20250404131635.jpg&q=90)
-  
-
-南韓憲法法院通過對尹錫悅的彈劾案，尹錫悅被罷免總統職務，尹錫悅通過律師發表對國民談話表示，沒能達到國民預期，非常遺憾，深感抱歉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm)
 
 ---
