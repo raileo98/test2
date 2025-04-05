@@ -1,27 +1,3 @@
-# 羅素布蘭德否認襲擊和強姦　警方稱調查仍進行
-
-![羅素布蘭德在社交平台發文，否認有關指控。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799019_1_20250405111008.jpg&q=90)
-  
-
-美國流行歌手Katy Perry的前夫、英國喜劇演員羅素布蘭德被控襲擊和強姦，將於下月提堂。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799019-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799019-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799019-20250405.htm)
-
----
-
 # 控煙酒辦在銅鑼灣酒吧向非法吸食水煙人士發三張定額罰款通知
 
 ![控煙酒辦昨晚派員到銅鑼灣進行代號「菸滅」的行動，共發出三張定額罰款通知書。人員在行動中檢取水煙。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799018_1_20250405111612.jpg&q=90)
@@ -120,6 +96,7 @@
 
 # 陳祖恒籲業界勿再奢望再取美國大訂單　史立德指最終美國民眾埋單
 
+![多名商界人士在電台節目討論，美國加關稅對本港的影響。（商台直播截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799013_1_20250405112207.jpg&q=90)
   
 
 美國對全球多國徵收「對等關稅」，其中美國對華加徵34%關稅，累計關稅增至54%。中國作出反制，下星期四起，對原產於美國的所有進口商品加徵34%關稅。
@@ -915,7 +892,7 @@
 ![英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798974_1_20250404224512.jpg&q=90)
   
 
-英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕。
+美國流行歌手Katy Perry的前夫、英國喜劇演員羅素布蘭德被控襲擊和強姦。
 
   
 
@@ -1435,5 +1412,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm)
+
+---
+
+# 敏昂萊在曼谷晤佩通坦討論打擊跨境詐騙
+
+![到泰國曼谷出席地區峰會的緬甸軍政府領袖敏昂萊，與泰國總理佩通坦會談，重點討論共同打擊電訊和網絡詐騙集團。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798948_1_20250404171008.jpg&q=90)
+![緬甸軍政府領袖敏昂萊與印度總理莫迪會面，討論雙邊聯繫和基建合作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798948_2_20250404171008.jpg&q=90)
+  
+
+到泰國曼谷出席地區峰會的緬甸軍政府領袖敏昂萊，與泰國總理佩通坦會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm)
 
 ---
