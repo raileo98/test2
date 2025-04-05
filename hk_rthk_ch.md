@@ -1,3 +1,26 @@
+# 以軍稱近期行動剷除巴勒斯坦武裝組織兩名高級成員
+
+  
+
+以色列國防軍與國家安全總局發表聯合聲明指出，在近期對加沙地帶的軍事行動中，剷除巴勒斯坦武裝組織兩名高級成員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799004-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799004-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799004-20250405.htm)
+
+---
+
 # 金正恩視察軍訓基地　要求採取措施高度發展特戰能力
 
 ![金正恩視察時強調要通過高強度訓練鞏固實戰能力。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799003_1_20250405082952.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798933-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798933-20250404.htm)
-
----
-
-# 學者稱郵輪以香港為母港正逐漸增加
-
-![黃家榮稱郵輪旅遊從疫後復蘇，以香港為母港的郵輪佔香港停泊郵輪數目一半。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798930_1_20250404131309.jpg&q=85)
-  
-
-旅遊發展局表示，3月總共有17艘國際郵輪訪港，帶來數以千計遊客。去年共有30家郵輪公司派船來港，比前一年增加12家；郵輪旅客總流量35.5萬人次，按年上升63%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm)
 
 ---
