@@ -1,3 +1,27 @@
+# China says US must 'stop using tariffs as a weapon'
+
+![Foreign Ministry spokesperson Guo Jiakun wrote on Facebook that "the market has spoken," after Wall Street headed south two days in a row. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799060_1_20250405203120.jpg&q=90)
+  
+
+China said on Saturday "the market has spoken" in rejecting US President Donald Trump's tariffs, and called on Washington for "equal-footed consultation" after global markets plunged in reaction to the trade levies that drew Chinese retaliation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm)
+
+---
+
 # China to impose tariffs of 34pc on all US goods
 
 ![The authorities in Beijing say the countermeasure will be effective from April 10. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798960_1_20250404190851.jpg&q=90)
@@ -1415,29 +1439,5 @@ Premier Li Qiang told a gathering of business executives in Beijing on Sunday th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797024-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797024-20250323.htm)
-
----
-
-# FS encourages mainland firms to use city's advantages
-
-![Paul Chan encouraged one AI firm to utilise Hong Kong's capital, talent, and professional services to expand internationally. Photo: GIS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796969_1_20250322222525.jpg&q=90)
-  
-
-Financial Secretary Paul Chan visited two mainland firms in Beijing on Friday, highlighting Hong Kong's role as a gateway for business expansion and global market access.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm)
 
 ---

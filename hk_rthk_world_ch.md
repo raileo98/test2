@@ -1,4 +1,27 @@
-# 外交部：中國政府強烈譴責和堅決反對美國濫施關稅
+# 日本東京以西發生涉旅遊巴意外　據報47人受傷
+
+  
+
+日本東京以西一條高速公路發生涉及旅遊巴的意外，據報47人受傷，大部分是外國人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799059-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799059-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799059-20250405.htm)
+
+---
+
+# 外交部：中國政府強烈譴責美國濫施關稅　將採措施維護利益
 
 ![中國強烈譴責和堅決反對美國濫施關稅，指施壓和威脅不是同中方打交道的正確方式。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799055_1_20250405191815.jpg&q=80)
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798883-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798883-20250404.htm)
-
----
-
-# 內塔尼亞胡讚揚匈牙利退出國際刑事法院是大膽和有原則
-
-![歐爾班與內塔尼亞胡見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798878_1_20250404034254.jpg&q=90)
-  
-
-到訪布達佩斯的以色列總理內塔尼亞胡，讚揚匈牙利退出國際刑事法院是大膽及有原則的決定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798878-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798878-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798878-20250404.htm)
 
 ---

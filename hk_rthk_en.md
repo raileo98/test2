@@ -1,3 +1,27 @@
+# China says US must 'stop using tariffs as a weapon'
+
+![Foreign Ministry spokesperson Guo Jiakun wrote on Facebook that "the market has spoken," after Wall Street headed south two days in a row. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799060_1_20250405203120.jpg&q=90)
+  
+
+China said on Saturday "the market has spoken" in rejecting US President Donald Trump's tariffs, and called on Washington for "equal-footed consultation" after global markets plunged in reaction to the trade levies that drew Chinese retaliation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm)
+
+---
+
 # India's Modi signs defence, energy deals in Sri Lanka
 
 ![Indian Prime Minister Narendra Modi received the Mithra Vibhushana medal from Sri Lankan President Anura Kumara Dissanayake as a sign of their friendship. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799057_1_20250405194538.jpg&q=90)
@@ -1413,29 +1437,5 @@ Donald Trump's trade tariffs on close ally Australia are "not the act of a frien
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm)
-
----
-
-# Barca oust Atlético, set up Clasico Copa del Rey final
-
-![Ferran Torres celebrates scoring the opening goal during the Spanish Copa del Rey semi-final second leg. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798723_1_20250403061233.jpg&q=90)
-  
-
-Barcelona will face rivals Real Madrid in the Copa del Rey final after Ferran Torres secured them a 1-0 win at Atlético Madrid, progressing 5-4 on aggregate from the semi-final tie.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm)
 
 ---
