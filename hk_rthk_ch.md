@@ -1,3 +1,49 @@
+# 國家統計局：今年1至2月份中國消費市場運行平穩向好
+
+  
+
+國家統計局數據顯示，今年1月至2月份中國消費市場運行平穩向好，當中社會消費品零售按年增長4.0%，總額83731億元，增長速度較去年全年加快0.5個百分點。其中商品零售額增長3.9%，加快0.7個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799029-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799029-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799029-20250405.htm)
+
+---
+
+# 民青局資助約30個以「東江水供港60周年」為主題交流項目
+
+  
+
+民政及青年事務局局長麥美娟主持「東江水供港60周年」主題活動啟動禮。今年是東江水供港60周年，為紀念及慶祝這個重要的里程碑，民青局將為青年人舉辦及提供一系列相關主題活動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799028-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799028-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799028-20250405.htm)
+
+---
+
 # 旺角失蹤86歲女子在尖沙咀梳士巴利道被尋回
 
 ![86歲女子日前離開大角咀道住所後便告失蹤，家人向警方報案，現已尋回。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799026_1_20250405125846.jpg&q=60)
@@ -22,7 +68,7 @@
 
 ---
 
-# 啟德社區隔離設施改青年驛站旅舍　由「博盛民旅」營運須自負盈虧
+# 啟德青年驛站旅舍　由中國旅遊集團旗下博盛民旅營運須自負盈虧
 
   
 
@@ -95,7 +141,7 @@
 
 # 凌嘉勤：房協兩資助出售房屋項目至今收逾４千申請　反映剛性需求
 
-![凌嘉勤說，房協已啟動數個租住屋邨的重建計劃，如住戶想揀心儀資助出售單位，鼓勵他們及早提出申請。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799021_1_20250405114734.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799021_1_20250405114734.jpg&q=90)
   
 
 房協推售兩個分別位於觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，提供1604個單位，售價約為市值7折，本月1日至14日接受合資格人士申請。房協主席凌嘉勤表示，目前已收到超過4000份申請，較供應單位數目翻倍，反映剛性置業需求。
@@ -119,6 +165,7 @@
 
 # 內地商會促美方糾正損人不利己單邊霸凌
 
+![內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799020_1_20250405132447.jpg&q=75)
   
 
 內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。中國醫藥保健品進出口商會表示，全球民眾健康權益不應受到不公平貿易措施侵害，堅決反對美方單邊貿易霸凌行為。
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm)
-
----
-
-# 中方將16間美國實體列入出口管制管控名單
-
-![商務部將16間美國實體列入出口管制管控名單。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798954_1_20250404183809.jpg&q=75)
-  
-
-在北京，商務部表示，為維護國家安全和利益，履行防擴散等國際義務，根據《出口管制法》及《兩用物項出口管制條例》等規定，決定將高點航空技術公司等16間美國實體列入出口管制管控名單，即日起禁止向有關美國實體出口兩用物項，正在開展的相關出口活動應立即停止；特殊情況下確需出口的，出口經營者應當向商務部提出申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm)
-
----
-
-# 中方對中重稀土相關物項實施出口管制
-
-![發言人說，相關物項具有軍民兩用屬性，實施出口管制是國際通行做法。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798955_1_20250404184355.jpg&q=90)
-  
-
-商務部、海關總署發布公告，對中重稀土相關物項實施出口管制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798955-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798955-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798955-20250404.htm)
 
 ---

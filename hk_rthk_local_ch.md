@@ -1,3 +1,26 @@
+# 民青局資助約30個以「東江水供港60周年」為主題交流項目
+
+  
+
+民政及青年事務局局長麥美娟主持「東江水供港60周年」主題活動啟動禮。今年是東江水供港60周年，為紀念及慶祝這個重要的里程碑，民青局將為青年人舉辦及提供一系列相關主題活動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799028-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799028-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799028-20250405.htm)
+
+---
+
 # 旺角失蹤86歲女子在尖沙咀梳士巴利道被尋回
 
 ![86歲女子日前離開大角咀道住所後便告失蹤，家人向警方報案，現已尋回。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799026_1_20250405125846.jpg&q=60)
@@ -22,7 +45,7 @@
 
 ---
 
-# 啟德社區隔離設施改青年驛站旅舍　由「博盛民旅」營運須自負盈虧
+# 啟德青年驛站旅舍　由中國旅遊集團旗下博盛民旅營運須自負盈虧
 
   
 
@@ -95,7 +118,7 @@
 
 # 凌嘉勤：房協兩資助出售房屋項目至今收逾４千申請　反映剛性需求
 
-![凌嘉勤說，房協已啟動數個租住屋邨的重建計劃，如住戶想揀心儀資助出售單位，鼓勵他們及早提出申請。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799021_1_20250405114734.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799021_1_20250405114734.jpg&q=90)
   
 
 房協推售兩個分別位於觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，提供1604個單位，售價約為市值7折，本月1日至14日接受合資格人士申請。房協主席凌嘉勤表示，目前已收到超過4000份申請，較供應單位數目翻倍，反映剛性置業需求。
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm)
-
----
-
-# 廉署起訴一名銀行職員兩名保險經紀　涉受賄助客戶開立銀行戶口
-
-![廉政公署落案起訴一名銀行職員和一對保險經紀兼中介夫婦，涉嫌串謀收受賄款超過15萬元，以協助中介的客戶開立銀行戶口。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798813_1_20250403171553.jpg&q=90)
-  
-
-廉政公署落案起訴一名銀行職員和一對保險經紀兼中介夫婦，涉嫌串謀收受賄款超過15萬元，以協助中介的客戶開立銀行戶口。案件下星期一在東區裁判法院提訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm)
 
 ---

@@ -1,5 +1,29 @@
+# 國家統計局：今年1至2月份中國消費市場運行平穩向好
+
+  
+
+國家統計局數據顯示，今年1月至2月份中國消費市場運行平穩向好，當中社會消費品零售按年增長4.0%，總額83731億元，增長速度較去年全年加快0.5個百分點。其中商品零售額增長3.9%，加快0.7個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799029-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799029-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799029-20250405.htm)
+
+---
+
 # 內地商會促美方糾正損人不利己單邊霸凌
 
+![內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799020_1_20250405132447.jpg&q=75)
   
 
 內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。中國醫藥保健品進出口商會表示，全球民眾健康權益不應受到不公平貿易措施侵害，堅決反對美方單邊貿易霸凌行為。
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm)
-
----
-
-# 夏寶龍晤滙豐主席杜嘉祺　冀集團向國際社會講好中國故事
-
-![中央港澳辦、國務院港澳辦主任夏寶龍（右）下午會見滙豐集團主席杜嘉祺（左），希望滙豐集團在中國更好發展。（中央港澳辦）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798684_1_20250402222247.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍下午會見滙豐集團主席杜嘉祺，指希望滙豐集團在中國更好發展，更積極助力香港鞏固提升國際金融中心地位，繼續發揮自身優勢做好中英關係的重要橋樑紐帶，向國際社會講好「中國故事」「香港故事」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm)
 
 ---

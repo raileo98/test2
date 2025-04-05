@@ -1,6 +1,30 @@
+# Manufacturers told to look for markets outside US
+
+![Allen Shi (right) was speaking on a Commercial Radio programme. Photo courtesy of Commercial Radio.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799027_1_20250405130110.jpg&q=90)
+  
+
+The former president of the Chinese Manufacturers' Association of Hong Kong has called on entrepreneurs to look for new markets away from the US.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799027-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799027-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799027-20250405.htm)
+
+---
+
 # Housing Society to complete tenant checks in late 2026
 
-![The Hong Kong Housing Society chairman Ling Kar-kan says so far only a few tenants have been classed as being well off. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799023_1_20250405122827.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799023_1_20250405122827.jpg&q=80)
   
 
 The Hong Kong Housing Society on Saturday said it hopes to complete checks for well-off tenants by November of next year.
@@ -1411,29 +1435,5 @@ Culture, sports and tourism minister Rosanna Law said operators of Kai Tak Sport
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798129-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798129-20250330.htm)
-
----
-
-# Cathay plane flyover marks old airport's centennial
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798127_1_20250330171537.jpg&q=90)
-  
-
-A Cathay Pacific aircraft on Sunday flew near Kai Tak during the Hong Kong Sevens, an area where the city's former international airport began operations 100 years ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm)
 
 ---
