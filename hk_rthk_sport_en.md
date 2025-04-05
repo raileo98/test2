@@ -1,3 +1,27 @@
+# Thomas Müller to leave Bayern Munich after this season
+
+![Müller came through the Bayern junior system and has won two Champions Leagues along with 12 Bundesliga titles. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799054_1_20250405184900.jpg&q=90)
+  
+
+Thomas Müller will leave Bayern Munich this summer after a 25-year career at the German club.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799054-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799054-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799054-20250405.htm)
+
+---
+
 # Verstappen snatches 'insane' pole for Japan GP
 
 ![Red Bull's Max Verstappen celebrates smashing the track record at Suzuka. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799043_1_20250405162226.jpg&q=90)
@@ -1428,29 +1452,5 @@ Novak Djokovic cruised into the quarter-finals of the Miami Open with a 6-2, 6-2
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm)
-
----
-
-# Argentina qualify for 2026 World Cup in style
-
-![Brazil's midfielder Joao Gomes walks off the pitch downcast as Argentina's players celebrate their win over Brazil at the Mas Monumental stadium in Buenos Aires. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797405_2_20250326110003.jpg&q=90)
-  
-
-Argentina celebrated their 2026 World Cup qualification with a dazzling 4-1 thrashing of arch-rivals Brazil in Buenos Aires.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm)
 
 ---

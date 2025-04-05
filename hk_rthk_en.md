@@ -1,3 +1,27 @@
+# Thomas Müller to leave Bayern Munich after this season
+
+![Müller came through the Bayern junior system and has won two Champions Leagues along with 12 Bundesliga titles. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799054_1_20250405184900.jpg&q=90)
+  
+
+Thomas Müller will leave Bayern Munich this summer after a 25-year career at the German club.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799054-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799054-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799054-20250405.htm)
+
+---
+
 # HK won't impose countermeasures against US tariffs: FS
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799045_1_20250405170141.jpg&q=80)
@@ -1413,29 +1437,5 @@ US stocks whipped through another dizzying day on Wednesday in the final hours b
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798722-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798722-20250403.htm)
-
----
-
-# Tesla sales slump as pressure piles on Musk
-
-![The number of autos delivered globally dropped by 13 percent in the first three months of 2025. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798709_1_20250403033051.jpg&q=90)
-  
-
-Tesla's worldwide sales tumbled in the first quarter, figures showed on Wednesday, piling further pressure on CEO Elon Musk who faces a growing backlash for his role overseeing US federal spending cuts under President Donald Trump.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm)
 
 ---
