@@ -1,5 +1,29 @@
+# 黃恩諾：檢討水費調整冀做到收回成本及用者自付
+
+  
+
+水務署署長黃恩諾表示，仍在檢討水費調整，強調希望做到收回成本，用者自付，但要顧及民生和經濟情況，必須審慎考慮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799053-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799053-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799053-20250405.htm)
+
+---
+
 # 麥美娟：改造啟德社區隔離設施作青年發展設施最遲10月投入營運
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799052_1_20250405183711.jpg&q=90)
   
 
 民政及青年事務局局長麥美娟表示，改造啟德社區隔離設施作為青年發展設施，最遲10月有序投入營運。
