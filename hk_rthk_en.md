@@ -1,3 +1,27 @@
+# HK won't impose countermeasures against US tariffs: FS
+
+![Financial Secretary Paul Chan says foreign investors have reassessed the potential of the nation's innovation and technological companies. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799045_1_20250405170141.jpg&q=80)
+  
+
+Financial Secretary Paul Chan on Saturday said Hong Kong will not impose countermeasures even though the United States announced sweeping tariffs on countries around the world.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799045-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799045-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799045-20250405.htm)
+
+---
+
 # Water tariff review aims to make users pay: director
 
 ![Roger Wong says the review of water charges aims to achieve the principle of user pays. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799041_1_20250405161641.jpg&q=90)
@@ -1413,29 +1437,5 @@ Tesla's worldwide sales tumbled in the first quarter, figures showed on Wednesda
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm)
-
----
-
-# Myanmar junta declares quake ceasefire
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798707_1_20250403032440.jpg&q=50)
-  
-
-Myanmar's junta announced a temporary ceasefire on Wednesday as the death toll from a devastating earthquake rose and desperate survivors pleaded for more help amid frantic scenes of aid distribution.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm)
 
 ---
