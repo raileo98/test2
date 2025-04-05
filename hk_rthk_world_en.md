@@ -1,3 +1,27 @@
+# India's Modi signs defence, energy deals in Sri Lanka
+
+![Indian Prime Minister Narendra Modi received the Mithra Vibhushana medal from Sri Lankan President Anura Kumara Dissanayake as a sign of their friendship. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799057_1_20250405194538.jpg&q=90)
+  
+
+India secured defence and energy deals with neighbouring Sri Lanka on Saturday during Prime Minister Narendra Modi's visit.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799057-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799057-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799057-20250405.htm)
+
+---
+
 # Myanmar quake death toll passes 3,300
 
 ![Many people have to sleep outdoors because their homes were destroyed. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799034_1_20250405153937.jpg&q=85)
@@ -1411,29 +1435,5 @@ A French court on Monday banned far-right leader Marine Le Pen from running for 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798290-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798290-20250331.htm)
-
----
-
-# Myanmar marks quake with week of mourning
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798284_1_20250331171253.jpg&q=75)
-  
-
-Myanmar's ruling junta declared a week of national mourning on Monday for the country's devastating earthquake, which has killed more than 1,700 people, as hopes faded of finding more survivors in the rubble of ruined buildings.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm)
 
 ---

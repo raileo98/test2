@@ -1,3 +1,27 @@
+# India's Modi signs defence, energy deals in Sri Lanka
+
+![Indian Prime Minister Narendra Modi received the Mithra Vibhushana medal from Sri Lankan President Anura Kumara Dissanayake as a sign of their friendship. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799057_1_20250405194538.jpg&q=90)
+  
+
+India secured defence and energy deals with neighbouring Sri Lanka on Saturday during Prime Minister Narendra Modi's visit.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799057-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799057-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799057-20250405.htm)
+
+---
+
 # Thomas Müller to leave Bayern Munich after this season
 
 ![Müller came through the Bayern junior system and has won two Champions Leagues along with 12 Bundesliga titles. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799054_1_20250405184900.jpg&q=90)
@@ -1413,29 +1437,5 @@ Barcelona will face rivals Real Madrid in the Copa del Rey final after Ferran To
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm)
-
----
-
-# Wall Street rises in another jittery day
-
-![More volatility is expected, with US futures moving decisively lower late Wednesday after Trump announced his tariffs plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798722_1_20250403060921.jpg&q=75)
-  
-
-US stocks whipped through another dizzying day on Wednesday in the final hours before President Donald Trump’s unveiling of tariffs promised as part of his Liberation Day.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798722-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798722-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798722-20250403.htm)
 
 ---
