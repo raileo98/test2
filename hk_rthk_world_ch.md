@@ -1,3 +1,27 @@
+# 金正恩視察軍訓基地　要求採取措施高度發展特戰能力
+
+![金正恩視察時強調要通過高強度訓練鞏固實戰能力。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799003_1_20250405082952.jpg&q=85)
+  
+
+北韓領袖金正恩視察人民軍特戰部隊訓練基地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm)
+
+---
+
 # 憂貿易戰升級　美股3大指數再挫近6%　道指低收2231點
 
 ![美股連續兩日急挫，3大指數尾市跌幅擴大，跌近6%收市，齊創2020年3月以來最大兩日跌幅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798993_1_20250405052418.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798817-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798817-20250403.htm)
-
----
-
-# 商務部稱願與美方通過平等對話磋商　解決各自的關切
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
-  
-
-美方宣布對所有貿易夥伴徵收對等關稅。在北京，商務部新聞發言人何亞東表示，中美兩國經貿部門一直保持溝通，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm)
 
 ---

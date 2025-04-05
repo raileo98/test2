@@ -1,3 +1,51 @@
+# 美元兌多個貨幣反彈　兌澳元創5年新高
+
+![美元兌多個貨幣反彈，澳元兌美元一度低見0.5987，創5年新低。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799001_1_20250405074310.jpg&q=85)
+  
+
+美元指數反覆向上，一度低見101.53，跌約0.5%，尾市報102.92，升約0.9%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799001-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799001-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799001-20250405.htm)
+
+---
+
+# 美國10年期債息跌穿4厘　創半年新低
+
+![美國10年期債息跌穿4厘水平，低見3.86厘，創半年新低，尾市貼近4厘水平。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799002_1_20250405080153.jpg&q=90)
+  
+
+中國採取反制措施，應對美國對等關稅，美債孳息率下滑，但美國上月就業報告表現好過預期，紓緩債息跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799002-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799002-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799002-20250405.htm)
+
+---
+
 # 美國3月非農業新增職位勝預期　分析料關稅影響最早4月數據反映
 
 ![分析估計，對等關稅帶來的影響，最快在4月美國非農業就業報告顯現。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798998_1_20250405072254.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798816-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798816-20250403.htm)
-
----
-
-# 港股低收352點　本周累計跌近2.5%
-
-![恒生指數收市報22849點，跌352點，跌幅約1.52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798811_1_20250403163254.jpg&q=15)
-  
-
-美國對多個國家及地區實施對等關稅，港股跟隨區內股市向下，失守23000點水平。恒生指數低開逾560點，跌至22638點，是全日低位，跌幅其後收窄至204點，收市報22849點，跌352點，跌幅約1.5%，創逾1個月收市新低，主板成交額約2895億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798811-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798811-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798811-20250403.htm)
-
----
-
-# 英法德股市初段跌逾1%至逾2%
-
-![英國、法國和德國股市在開市初段跌逾1%至逾2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798803_1_20250403153700.jpg&q=90)
-  
-
-歐洲主要股市初段下跌，美國對多個國家及地區徵收對等關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm)
 
 ---

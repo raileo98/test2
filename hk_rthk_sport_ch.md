@@ -1,5 +1,6 @@
 # 西甲愛斯賓奴4:0華歷簡奴　紓緩降班壓力
 
+![西甲愛斯賓奴4:0華歷簡奴　紓緩降班壓力](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799000_1_20250405082115.jpg&q=90)
   
 
 西班牙甲組足球聯賽方面，愛斯賓奴4:0大勝華歷簡奴，紓緩降班壓力。

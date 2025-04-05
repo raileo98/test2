@@ -1,5 +1,78 @@
+# 金正恩視察軍訓基地　要求採取措施高度發展特戰能力
+
+![金正恩視察時強調要通過高強度訓練鞏固實戰能力。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799003_1_20250405082952.jpg&q=85)
+  
+
+北韓領袖金正恩視察人民軍特戰部隊訓練基地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm)
+
+---
+
+# 美元兌多個貨幣反彈　兌澳元創5年新高
+
+![美元兌多個貨幣反彈，澳元兌美元一度低見0.5987，創5年新低。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799001_1_20250405074310.jpg&q=85)
+  
+
+美元指數反覆向上，一度低見101.53，跌約0.5%，尾市報102.92，升約0.9%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799001-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799001-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799001-20250405.htm)
+
+---
+
+# 美國10年期債息跌穿4厘　創半年新低
+
+![美國10年期債息跌穿4厘水平，低見3.86厘，創半年新低，尾市貼近4厘水平。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799002_1_20250405080153.jpg&q=90)
+  
+
+中國採取反制措施，應對美國對等關稅，美債孳息率下滑，但美國上月就業報告表現好過預期，紓緩債息跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799002-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799002-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799002-20250405.htm)
+
+---
+
 # 西甲愛斯賓奴4:0華歷簡奴　紓緩降班壓力
 
+![西甲愛斯賓奴4:0華歷簡奴　紓緩降班壓力](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799000_1_20250405082115.jpg&q=90)
   
 
 西班牙甲組足球聯賽方面，愛斯賓奴4:0大勝華歷簡奴，紓緩降班壓力。
@@ -1366,77 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm)
-
----
-
-# 被彈劾下台後　尹錫悅向國民稱未能達到預期感遺憾抱歉
-
-![尹錫悅成為繼朴謹惠後第二位被彈劾下台的總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798929_1_20250404131635.jpg&q=90)
-  
-
-南韓憲法法院通過對尹錫悅的彈劾案，尹錫悅被罷免總統職務，尹錫悅通過律師發表對國民談話表示，沒能達到國民預期，非常遺憾，深感抱歉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm)
-
----
-
-# 陳美寶：積極推進本港海空貨物聯運發展
-
-![陳美寶說，特區政府會繼續與機管局及業界攜手，加強機場的貨物處理能力和效率。（陳美寶社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798928_1_20250404135708.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶說，特區政府會繼續與機管局及業界攜手，加強機場的貨物處理能力和效率，積極推進「海空貨物聯運」發展，為大灣區貨物提供更無縫便捷的國際空運網絡，並提升機場的貨運設備，積極配合轉運、跨境電商及高價值溫控空運貨物的發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm)
-
----
-
-# 警拘7人涉兒童色情物品案　少年疑拍攝11歲胞妹不雅照
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798926_1_20250404131142.jpg&q=90)
-  
-
-本港警方拘捕7人，懷疑他們與兒童色情物品案件有關。被捕人介乎16至49歲，警方共檢獲7部手提電話及11部電腦或外置儲存裝置，內有162段兒童色情影片及230張相片。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm)
 
 ---
