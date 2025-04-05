@@ -1,4 +1,28 @@
-# 新華社：中國政府強烈譴責和堅決反對美國濫施關稅
+# 林定國稱本港供水穩定全賴可靠東江水供應
+
+![林定國參觀大型藝術展覽「舞動水滴展」。（林定國社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799058_1_20250405200412.jpg&q=90)
+  
+
+律政司司長林定國說，香港在落實用水權方面表現亮麗，香港的供水穩定，水質安全可靠。按「國際水協會」去年公佈，調查2023年世界245個城市的水價，最後計算39個首都或大城市的水費，由最昂貴起計，香港排在第30名，比澳門略便宜，亦明顯低於其他大城市，例如首爾、東京、羅馬、巴黎、柏林、華盛頓等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799058-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799058-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799058-20250405.htm)
+
+---
+
+# 外交部：中國政府強烈譴責和堅決反對美國濫施關稅
 
 ![中國強烈譴責和堅決反對美國濫施關稅，指施壓和威脅不是同中方打交道的正確方式。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799055_1_20250405191815.jpg&q=80)
   

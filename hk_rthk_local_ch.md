@@ -1,3 +1,27 @@
+# 林定國稱本港供水穩定全賴可靠東江水供應
+
+![林定國參觀大型藝術展覽「舞動水滴展」。（林定國社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799058_1_20250405200412.jpg&q=90)
+  
+
+律政司司長林定國說，香港在落實用水權方面表現亮麗，香港的供水穩定，水質安全可靠。按「國際水協會」去年公佈，調查2023年世界245個城市的水價，最後計算39個首都或大城市的水費，由最昂貴起計，香港排在第30名，比澳門略便宜，亦明顯低於其他大城市，例如首爾、東京、羅馬、巴黎、柏林、華盛頓等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799058-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799058-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799058-20250405.htm)
+
+---
+
 # 黃恩諾：檢討水費調整冀做到收回成本及用者自付
 
 ![黃恩諾表示，仍在檢討水費調整，強調希望做到收回成本。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799053_1_20250405192058.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm)
-
----
-
-# 鄭雁雄指要加強教育對科技和人才的支撐作用
-
-![鄭雁雄表示，特區要全面把握中共總書記習近平重要講話精神，進一步強化教育對科技和人才的支撐作用。（中聯辦相片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798848_1_20250403195407.jpg&q=90)
-  
-
-特區政府舉辦學習全國兩會精神座談會，行政長官李家超主持。中聯辦主任鄭雁雄應邀出席並作交流分享。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm)
 
 ---
