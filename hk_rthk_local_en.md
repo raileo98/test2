@@ -24,7 +24,7 @@ The Director of Water Supplies said on Saturday that while the department is sti
 
 # Youth facilities to open in Kai Tak by October
 
-![Secretary for Home and Youth Affairs Alice Mak says the organisation has to operate the facilities on a self-financing basis. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799037_1_20250405154953.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799037_1_20250405154953.jpg&q=80)
   
 
 Secretary for Home and Youth Affairs Alice Mak on Saturday said youth facilities will be set up at the original site of an isolation facility in Kai Tak by October this year.
@@ -48,7 +48,7 @@ Secretary for Home and Youth Affairs Alice Mak on Saturday said youth facilities
 
 # Manufacturers told to look for markets outside US
 
-![Allen Shi (right) was speaking on a Commercial Radio programme. Photo courtesy of Commercial Radio.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799027_1_20250405130110.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799027_1_20250405130110.jpg&q=90)
   
 
 The former president of the Chinese Manufacturers' Association of Hong Kong has called on entrepreneurs to look for new markets away from the US.
