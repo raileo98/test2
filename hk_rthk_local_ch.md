@@ -1,3 +1,27 @@
+# 楊何蓓茵到訪小灣　冀學校繼續發揮主導角色加強學生認識國情
+
+![楊何蓓茵日到訪小西灣培僑小學，了解校方推動國家安全教育的工作。（楊何蓓茵社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799016_1_20250405104535.jpg&q=90)
+  
+
+本月15日將會迎來第10個「全民國家安全教育日」，公務員事務局局長楊何蓓茵表示，學生是未來社會棟樑，學校透過不同階段的學習經歷，幫助學生整全地學習國家安全的內容。期望學校繼續發揮主導角色，透過教學和全方位學習活動，加強學生認識國情，明白保障國家安全的重要性，持續加深對《憲法》和《基本法》的認識，並提升國民身份認同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm)
+
+---
+
 # 陳祖恒籲業界勿再奢望再取美國大訂單　史立德指最終美國民眾埋單
 
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798794-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798794-20250403.htm)
-
----
-
-# 林健鋒：美國全球關稅措施打擊港商部署　吳永嘉：影響電商運作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798789_1_20250403150540.jpg&q=80)
-  
-
-美國公布針對全球的對等關稅措施，除了早前徵收的20%關稅外，還會對中國進口產品徵收34%對等關稅，令新徵稅總額達到54%。另外，美國取消對來自中國內地和香港的小額包裹豁免關稅政策，5月2日起生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798789-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798789-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798789-20250403.htm)
 
 ---

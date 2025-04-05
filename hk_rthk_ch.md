@@ -1,3 +1,51 @@
+# 楊何蓓茵到訪小灣　冀學校繼續發揮主導角色加強學生認識國情
+
+![楊何蓓茵日到訪小西灣培僑小學，了解校方推動國家安全教育的工作。（楊何蓓茵社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799016_1_20250405104535.jpg&q=90)
+  
+
+本月15日將會迎來第10個「全民國家安全教育日」，公務員事務局局長楊何蓓茵表示，學生是未來社會棟樑，學校透過不同階段的學習經歷，幫助學生整全地學習國家安全的內容。期望學校繼續發揮主導角色，透過教學和全方位學習活動，加強學生認識國情，明白保障國家安全的重要性，持續加深對《憲法》和《基本法》的認識，並提升國民身份認同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm)
+
+---
+
+# 烏克蘭有住宅區被俄導彈轟炸　最少19死包括9名兒童
+
+![克里維里赫巿一個住宅區，星期五被俄羅斯的導彈擊中，烏方官員說最少19人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799012_1_20250405104232.jpg&q=80)
+  
+
+烏克蘭克里維里赫巿一個住宅區，星期五被俄羅斯的導彈擊中，烏方官員說最少19人死亡，當中包括9名兒童，俄方就說行動是針對於當地進行的一個軍事會議。遇襲後市內發生火警，有住宅樓宇受損。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm)
+
+---
+
 # 陳祖恒籲業界勿再奢望再取美國大訂單　史立德指最終美國民眾埋單
 
   
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798946-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798946-20250404.htm)
-
----
-
-# 美日韓外長會談　對俄朝推進軍事合作表示嚴重關切
-
-![美日韓外長在比利時布魯塞爾舉行三國外長會談。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798943_1_20250404163844.jpg&q=90)
-  
-
-美國國務卿魯比奧、日本外相岩屋毅與南韓外長趙兌烈在比利時布魯塞爾出席北約外長會期間，舉行三國外長會談，對北韓核與導彈開發及俄朝推進軍事合作表示嚴重關切，商定合作以實現北韓完全無核化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm)
-
----
-
-# 本港截至早上10時17萬人次出境　逾8萬人次入境
-
-![出境方面，以羅湖口岸最多，有超過3萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798941_1_20250404162745.jpg&q=90)
-  
-
-清明節3天長假期首日，截至早上10時，經各口岸出境的人次超過17萬，入境人次超過8萬，合計超過25萬人次進出本港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798941-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798941-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798941-20250404.htm)
 
 ---

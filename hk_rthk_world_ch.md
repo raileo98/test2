@@ -1,3 +1,27 @@
+# 烏克蘭有住宅區被俄導彈轟炸　最少19死包括9名兒童
+
+![克里維里赫巿一個住宅區，星期五被俄羅斯的導彈擊中，烏方官員說最少19人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799012_1_20250405104232.jpg&q=80)
+  
+
+烏克蘭克里維里赫巿一個住宅區，星期五被俄羅斯的導彈擊中，烏方官員說最少19人死亡，當中包括9名兒童，俄方就說行動是針對於當地進行的一個軍事會議。遇襲後市內發生火警，有住宅樓宇受損。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm)
+
+---
+
 # 《環看天下》：美國推動和平   俄烏戰場持續交戰
 
 ![烏克蘭部分地區近日仍然受到襲擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799010_1_20250405101301.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm)
-
----
-
-# 美國對華徵收34%對等關稅　特朗普任內稅率增至54%
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798830_1_20250403183937.jpg&q=90)
-  
-
-美國總統特朗普簽署他形容為歷史性的行政命令，向多個與美國有貿易往來的國家及地區實施對等關稅，下星期三生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm)
 
 ---
