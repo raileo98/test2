@@ -1,3 +1,27 @@
+# 特朗普指關稅措施打擊中國多於美國
+
+![美國總統特朗普指關稅措施打擊中國多於美國。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799061_1_20250405212003.jpg&q=90)
+  
+
+美國總統特朗普回應對所有國家進口商品加徵關稅，指中國遭受的打擊比美國嚴重得多，又指中國和許多國家過往對美國採取惡劣態度，如今美國不再無助。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799061-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799061-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799061-20250405.htm)
+
+---
+
 # 日本東京以西發生涉旅遊巴意外　據報47人受傷
 
 ![日本東京以西發生涉旅遊巴意外　據報47人受傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799059_1_20250405204212.jpg&q=90)
