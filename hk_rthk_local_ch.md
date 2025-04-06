@@ -1,3 +1,26 @@
+# 盧寵茂：公立醫院收費改革有如送市民保險
+
+  
+
+公立醫院收費改革首階段明年元旦起實施，醫務衞生局局長盧寵茂在一個電視台節目表示，有關收費改革已討論多年，強調能夠幫助到全港700多萬市民，就像政府送出一份保險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799107-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799107-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799107-20250406.htm)
+
+---
+
 # Coldplay啟德演唱會周二展開　運輸署籲過境旅客預早計劃
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm)
-
----
-
-# 當局就生態旅遊發展片區邀發展商交意向書　有議員倡改善交通配套
-
-![發展局就三個生態旅遊發展片區項目，邀請發展商提交意向書。（立法會文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798919_1_20250404123341.jpg&q=90)
-  
-
-發展局就三個生態旅遊發展片區項目，邀請發展商提交意向書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm)
 
 ---
