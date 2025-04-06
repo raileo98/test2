@@ -1,5 +1,30 @@
+# 北韓官媒簡要報道尹錫悅被罷免　分析指欲與韓方保持一定距離
+
+![朝中社有報道尹錫悅的消息，但未加以評論。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799113_1_20250406143359.jpg&q=90)
+  
+
+北韓官方朝中社昨日簡要報道南韓憲法法院前一天裁定罷免尹錫悅總統職務的消息，未加以評論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799113-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799113-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799113-20250406.htm)
+
+---
+
 # 尹錫悅再發表立場　稱雖不再擔任總統但會一直守護大家
 
+![尹錫悅向支持自己的組織「國民律師團」發出的感謝信。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799112_1_20250406143244.jpg&q=90)
   
 
 在南韓被罷免總統職務的尹錫悅向支持者發表感謝信，是他被罷免後第二次發表立場。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798969-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798969-20250404.htm)
-
----
-
-# 莊太量指中國反制或令美國及歐洲股市下跌　料美國難應付多國反制
-
-![莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798968_1_20250404205933.jpg&q=85)
-  
-
-國務院關稅稅則委員會宣布，本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。他相信，美股有機會繼續跌，近日有機會引發全球小股災。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm)
 
 ---

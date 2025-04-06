@@ -1,5 +1,30 @@
+# 北韓官媒簡要報道尹錫悅被罷免　分析指欲與韓方保持一定距離
+
+![朝中社有報道尹錫悅的消息，但未加以評論。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799113_1_20250406143359.jpg&q=90)
+  
+
+北韓官方朝中社昨日簡要報道南韓憲法法院前一天裁定罷免尹錫悅總統職務的消息，未加以評論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799113-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799113-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799113-20250406.htm)
+
+---
+
 # 尹錫悅再發表立場　稱雖不再擔任總統但會一直守護大家
 
+![尹錫悅向支持自己的組織「國民律師團」發出的感謝信。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799112_1_20250406143244.jpg&q=90)
   
 
 在南韓被罷免總統職務的尹錫悅向支持者發表感謝信，是他被罷免後第二次發表立場。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm)
-
----
-
-# 美國和巴拿馬官員討論長和經營巴拿馬運河港口審計問題
-
-![美國副國務卿蘭多與巴拿馬外長馬丁內斯阿查通話，討論長和經營巴拿馬運河港口的審計問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799032_1_20250405160827.jpg&q=65)
-  
-
-美國副國務卿蘭多與巴拿馬外長馬丁內斯阿查通話，討論長和集團經營巴拿馬運河港口的審計問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799032-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799032-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799032-20250405.htm)
 
 ---
