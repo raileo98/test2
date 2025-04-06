@@ -1,3 +1,26 @@
+# 施紀賢回應美國對等關稅　指大家所知世界不復存在
+
+  
+
+英國首相施紀賢表示，伴隨著美國所謂對等關稅生效，大家所知道的世界已經不復存在。他說將繼續推動與美國達成經濟協議，以避免部分關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm)
+
+---
+
 # 清明假期內地全社會跨區域人員流動量創新高
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799062-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799062-20250405.htm)
-
----
-
-# 特朗普指關稅措施打擊中國多於美國
-
-![美國總統特朗普指關稅措施打擊中國多於美國。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799061_1_20250405212003.jpg&q=90)
-  
-
-美國總統特朗普回應對所有國家進口商品加徵關稅，指中國遭受的打擊比美國嚴重得多，又指中國和許多國家過往對美國採取惡劣態度，如今美國不再無助。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799061-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799061-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799061-20250405.htm)
 
 ---

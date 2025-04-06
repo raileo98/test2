@@ -1,3 +1,26 @@
+# 施紀賢回應美國對等關稅　指大家所知世界不復存在
+
+  
+
+英國首相施紀賢表示，伴隨著美國所謂對等關稅生效，大家所知道的世界已經不復存在。他說將繼續推動與美國達成經濟協議，以避免部分關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm)
+
+---
+
 # 清明假期內地全社會跨區域人員流動量創新高
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm)
-
----
-
-# 渣打料中國或加大政策力度應對美國關稅措施
-
-![渣打認為，美國仍有手段避過特朗普關稅政策帶來經濟衰退，例如聯儲局繼續減息。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798780_1_20250403123622.jpg&q=90)
-  
-
-美國對多個國家同地區徵收對等關稅。渣打中國宏觀策略部主管劉潔預期，中國將會加大政策支持力度，以應對關稅對出口的影響。她估計，中方亦將採取反制措施，或對美國商品徵收關稅，甚至涉及服務貿易、減持美債等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798780-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798780-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798780-20250403.htm)
 
 ---
