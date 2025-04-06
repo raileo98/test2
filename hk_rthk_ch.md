@@ -1,3 +1,26 @@
+# 美國及越南商界促華盛頓推遲對越南商品徵收46%對等關稅
+
+  
+
+美國及越南商界向華盛頓方面請求推遲對越南商品徵收46%「對等關稅」，指出徵稅將損害商界及兩地商業關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm)
+
+---
+
 # 內地鐵路部門採取措施應對清明假期返程客流高峰
 
 ![國家鐵路集團預計，今日全國鐵路預計發送旅客2000萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799122_1_20250406165744.jpg&q=85)
@@ -73,6 +96,7 @@
 
 # 德國發現疑似二戰遺留未爆炸彈散逾1萬5千人　列車服務受限
 
+![德國北部發現疑似二戰遺留的未爆炸彈，當局疏散超過1萬5千人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799119_1_20250406172508.jpg&q=80)
   
 
 德國北部發現疑似二戰遺留的未爆炸彈，當局疏散超過1萬5千人。
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799051-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799051-20250405.htm)
-
----
-
-# 蔡若蓮：支持資優教育學院為資優生提供進階課程　鼓勵參加國際賽
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799044_1_20250405173422.jpg&q=80)
-  
-
-教育局局長蔡若蓮說，人才是發展新質生產力的重要資源，為支持香港發展成為國際國際創新科技中心，配合國家實施科教興國的戰略，局方在中小學大力推動STEAM教育外，亦非常重視資優教育，近年推動學校善用校本學生人才庫，裝備教師識別有潛能的學生，協助他們發展才能。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799044-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799044-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799044-20250405.htm)
 
 ---

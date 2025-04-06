@@ -1,3 +1,26 @@
+# 美國及越南商界促華盛頓推遲對越南商品徵收46%對等關稅
+
+  
+
+美國及越南商界向華盛頓方面請求推遲對越南商品徵收46%「對等關稅」，指出徵稅將損害商界及兩地商業關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm)
+
+---
+
 # 南韓一架直升機在協助撲救山火期間墜毀　一名機師死亡
 
 ![南韓近期山火頻頻，大量房屋及建築物損毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799121_1_20250406162748.jpg&q=90)
@@ -24,6 +47,7 @@
 
 # 德國發現疑似二戰遺留未爆炸彈散逾1萬5千人　列車服務受限
 
+![德國北部發現疑似二戰遺留的未爆炸彈，當局疏散超過1萬5千人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799119_1_20250406172508.jpg&q=80)
   
 
 德國北部發現疑似二戰遺留的未爆炸彈，當局疏散超過1萬5千人。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm)
-
----
-
-# 英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被控
-
-![英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798974_1_20250404224512.jpg&q=90)
-  
-
-美國流行歌手Katy Perry的前夫、英國喜劇演員羅素布蘭德被控襲擊和強姦。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798974-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798974-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798974-20250404.htm)
 
 ---
