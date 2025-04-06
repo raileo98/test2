@@ -1,3 +1,26 @@
+# 美國宣布吊銷所有南蘇丹護照持有者簽證　並限制進一步簽發簽證
+
+  
+
+美國國務卿魯比奧宣布，由於南蘇丹過渡政府未能及時接受遣返公民，美國決定吊銷所有南蘇丹護照持有者的簽證，並限制進一步簽發簽證，以防止他們進入美國，措施立即生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799083-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799083-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799083-20250406.htm)
+
+---
+
 # 內塔尼亞周日啟程赴美與特朗普討論關稅等議題
 
 ![以色列總理辦公室說，內塔尼亞胡將與特朗普討論關稅、推動被人質獲釋等一系列議題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799080_1_20250406054700.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm)
-
----
-
-# 美元兌多個貨幣反彈　兌澳元創5年新高
-
-![美元兌多個貨幣反彈，澳元兌美元一度低見0.5987，創5年新低。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799001_1_20250405074310.jpg&q=85)
-  
-
-美元指數反覆向上，一度低見101.53，跌約0.5%，尾市報102.92，升約0.9%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799001-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799001-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799001-20250405.htm)
 
 ---

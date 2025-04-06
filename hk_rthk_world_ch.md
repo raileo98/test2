@@ -1,3 +1,26 @@
+# 美國宣布吊銷所有南蘇丹護照持有者簽證　並限制進一步簽發簽證
+
+  
+
+美國國務卿魯比奧宣布，由於南蘇丹過渡政府未能及時接受遣返公民，美國決定吊銷所有南蘇丹護照持有者的簽證，並限制進一步簽發簽證，以防止他們進入美國，措施立即生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799083-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799083-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799083-20250406.htm)
+
+---
+
 # 內塔尼亞周日啟程赴美與特朗普討論關稅等議題
 
 ![以色列總理辦公室說，內塔尼亞胡將與特朗普討論關稅、推動被人質獲釋等一系列議題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799080_1_20250406054700.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm)
-
----
-
-# 特區救援隊與國家隊義診緬甸地震災民
-
-![救援隊帶災民到醫療帳篷接受診治。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798938_2_20250404155558.jpg&q=65)
-  
-
-正在緬甸協助救援的特區救援隊，聯同國家隊在災區設置帳篷義診，帶同醫療裝備，例如量度維生指數的儀器、處理傷口的消毒用品等，協助災民處理傷患及提供藥物。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm)
 
 ---
