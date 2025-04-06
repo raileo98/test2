@@ -1,5 +1,6 @@
 # 伊朗外長重申只能與美國間接談判
 
+![阿拉格齊說，與美國只能是間接談判，至今尚未舉行任何一輪談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799154_1_20250407033749.jpg&q=90)
   
 
 伊朗外阿拉格齊說，伊朗願意與美國談判，但只能以間接方式進行。
