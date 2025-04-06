@@ -1,3 +1,27 @@
+# 華府官員稱關稅措施公布後逾50個國家與美國展開貿易談判
+
+![貝森特認為，特朗普為自己創造了最大的籌碼。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799151_1_20250407021853.jpg&q=90)
+  
+
+美國財長貝森特表示，自從總統特朗普宣布對等關稅措施以來，已有超過50個國家與美國展開談判，讓特朗普處於有利地位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799151-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799151-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799151-20250407.htm)
+
+---
+
 # 美商務部長：關稅政策數天以至數周內維持不變
 
 ![盧特尼克（右）日前陪同特朗普公布向全球貿易伙伴徵收對等關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799150_1_20250407011035.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798989-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798989-20250405.htm)
-
----
-
-# 英德意同意貿易戰不符合任何人利益　歐盟稱美國關稅具破壞性
-
-![施紀賢重申，英國不會急於對美國的關稅政策採取報復措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798988_1_20250405032426.jpg&q=90)
-  
-
-英國首相施紀賢分別與澳洲總理阿爾巴內塞及意大利總理梅洛尼通電話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm)
 
 ---

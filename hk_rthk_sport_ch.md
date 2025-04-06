@@ -1,3 +1,27 @@
+# 英超曼聯主場與曼城賽和0:0
+
+![曼徹斯特打吡和氣收場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799152_1_20250407022746.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，曼徹斯特打吡，曼聯主場與曼城踢成0:0。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799152-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799152-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799152-20250407.htm)
+
+---
+
 # 英超利物浦2:3不敵富咸　修咸頓落敗篤定降班
 
 ![利物浦不敵富咸，今季聯賽第二次落敗。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799146_1_20250407003512.jpg&q=90)
@@ -1435,29 +1459,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797459-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797459-20250326.htm)
-
----
-
-# 世界盃外圍賽　埃及主場1:0小勝塞拉利昂
-
-![埃及主場1:0小勝塞拉利昂。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797406_1_20250326071907.jpg&q=90)
-  
-
-世界盃外圍賽非洲區A組，埃及主場1:0小勝塞拉利昂。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797406-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797406-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797406-20250326.htm)
 
 ---

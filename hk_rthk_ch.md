@@ -1,3 +1,51 @@
+# 英超曼聯主場與曼城賽和0:0
+
+![曼徹斯特打吡和氣收場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799152_1_20250407022746.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，曼徹斯特打吡，曼聯主場與曼城踢成0:0。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799152-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799152-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799152-20250407.htm)
+
+---
+
+# 華府官員稱關稅措施公布後逾50個國家與美國展開貿易談判
+
+![貝森特認為，特朗普為自己創造了最大的籌碼。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799151_1_20250407021853.jpg&q=90)
+  
+
+美國財長貝森特表示，自從總統特朗普宣布對等關稅措施以來，已有超過50個國家與美國展開談判，讓特朗普處於有利地位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799151-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799151-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799151-20250407.htm)
+
+---
+
 # 美商務部長：關稅政策數天以至數周內維持不變
 
 ![盧特尼克（右）日前陪同特朗普公布向全球貿易伙伴徵收對等關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799150_1_20250407011035.jpg&q=90)
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799075-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799075-20250406.htm)
-
----
-
-# 馬克龍宣布將與約旦、埃及舉行三方峰會討論加沙局勢
-
-![馬克龍將於星期一起訪問埃及兩天。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799074_1_20250406023527.jpg&q=90)
-  
-
-法國總統馬克龍出訪埃及前夕宣布，將與埃及總統塞西及約旦國王阿卜杜拉二世就加沙局勢舉行三方峰會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799074-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799074-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799074-20250406.htm)
-
----
-
-# 馬斯克：希望美國與歐洲邁向零關稅
-
-![馬斯克向意大利極右政黨聯盟黨集會發表視像講話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799073_1_20250406022618.jpg&q=90)
-  
-
-美國總統特朗普的顧問、富商馬斯克周六表示，希望歐洲和美國能夠達成共識，建立自由貿易區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799073-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799073-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799073-20250406.htm)
 
 ---
