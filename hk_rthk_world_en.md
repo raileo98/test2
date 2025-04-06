@@ -1,3 +1,27 @@
+# UK says Israel's detention of their MPs 'unacceptable'
+
+![Demonstrators are seen while thousands of pro-Palestine protestors gather in front of the U.S. Capitol in Washington DC, on April 5, 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799127_1_20250406174947.jpg&q=90)
+  
+
+Britain's Foreign Secretary David Lammy said on Saturday it was "unacceptable" and deeply concerning that Israel had detained two UK lawmakers and denied them entry.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799127-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799127-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799127-20250406.htm)
+
+---
+
 # Rain complicates recovery in quake-hit Myanmar
 
 ![Rescue workers stand on the street next to a collapsed building in Mandalay. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799123_1_20250406170802.jpg&q=85)
@@ -1411,29 +1435,5 @@ OpenAI on Monday said it raised US$40 billion in a new funding round that valued
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm)
-
----
-
-# Trump will 'be kind' over further tariffs this week
-
-![US President Donald Trump speaks to reporters aboard Air Force One. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798346_1_20250401021518.jpg&q=90)
-  
-
-US President Donald Trump said Monday he would be "very kind" to trading partners when he unveils further tariffs this week, risking global turmoil to address what he says are unfair trade imbalances.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm)
 
 ---

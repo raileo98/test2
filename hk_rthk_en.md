@@ -1,3 +1,27 @@
+# UK says Israel's detention of their MPs 'unacceptable'
+
+![Demonstrators are seen while thousands of pro-Palestine protestors gather in front of the U.S. Capitol in Washington DC, on April 5, 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799127_1_20250406174947.jpg&q=90)
+  
+
+Britain's Foreign Secretary David Lammy said on Saturday it was "unacceptable" and deeply concerning that Israel had detained two UK lawmakers and denied them entry.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799127-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799127-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799127-20250406.htm)
+
+---
+
 # Rain complicates recovery in quake-hit Myanmar
 
 ![Rescue workers stand on the street next to a collapsed building in Mandalay. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799123_1_20250406170802.jpg&q=85)
@@ -1412,29 +1436,5 @@ China urged the United States to correct its wrongful imposition of reciprocal t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm)
-
----
-
-# Tariffs will rebound on US: economists
-
-![The punitive 54 percent tariffs heaped on Chinese exports from such ports as Qingdao in Shandong can be counterbalanced by pro-active promotions of domestic consumption, says an economist. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798796_1_20250403160427.jpg&q=40)
-  
-
-The latest tariffs imposed by the United States will add to the country's own economic pains, complicate already heightened global trade and geopolitical tensions, and result in a backlash from many nations, according to economists.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm)
 
 ---
