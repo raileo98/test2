@@ -1,3 +1,27 @@
+# 'Packaging reduction charter better than legislation'
+
+![The Environmental Protection Department launched a 'Packaging Reduction Charter' on March 31. Photo courtesy of Information Services Department.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799098_1_20250406112620.jpg&q=90)
+  
+
+Environment minister Tse Chin-wan has rejected the idea of legislation to force businesses to cut down on their use of packaging, saying many are willing to sign up to the cause voluntarily.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799098-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799098-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799098-20250406.htm)
+
+---
+
 # 'AI guidelines push is to help prevent data leaks'
 
 ![Privacy Commissioner Ada Chung says companies need to be careful about how much information they offer up to generative AI. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799103_1_20250406121958.jpg&q=85)
@@ -1411,29 +1435,5 @@ An SAR government rescue team is on its way to quake-hit Mandalay in Myanmar.
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm)
-
----
-
-# CK Hutchison says no decision made on telecom spin-off
-
-![Reuters had cited sources as saying the company was mulling a spin-off of global telecom assets. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798206_1_20250331100402.jpg&q=90)
-  
-
-The board of Hong Kong conglomerate CK Hutchison said on Monday it has not made any decision on its global telecommunications business, in response to media reports about a potential spin-off listing of the assets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798206-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798206-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798206-20250331.htm)
 
 ---

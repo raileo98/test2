@@ -1,3 +1,27 @@
+# 'Packaging reduction charter better than legislation'
+
+![The Environmental Protection Department launched a 'Packaging Reduction Charter' on March 31. Photo courtesy of Information Services Department.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799098_1_20250406112620.jpg&q=90)
+  
+
+Environment minister Tse Chin-wan has rejected the idea of legislation to force businesses to cut down on their use of packaging, saying many are willing to sign up to the cause voluntarily.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799098-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799098-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799098-20250406.htm)
+
+---
+
 # Romantic Warrior finishes second in top Dubai race
 
 ![Romantic Warrior (no.8) came agonisingly close to winning the Dubai Turf. Photo courtesy of the Hong Kong Jockey Club.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799101_1_20250406120651.jpg&q=90)
@@ -1412,29 +1436,5 @@ After a 7.7 magnitude earthquake shook Myanmar on Friday, killing more than 2,80
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm)
-
----
-
-# EU to prepare countermeasures to US reciprocal tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798769_1_20250403114610.jpg&q=90)
-  
-
-European Commission President Ursula von der Leyen described US President Donald Trump's universal tariffs as a major blow to the world economy and said that the European Union was prepared to respond with countermeasures if negotiations failed.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm)
 
 ---
