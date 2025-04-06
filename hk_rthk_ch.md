@@ -1,3 +1,121 @@
+# 港大醫學院與團體辦外傭免費體檢活動　逾百人參與
+
+  
+
+港大醫學院和中風研究組首次在醫學院校園，舉辦外傭免費健康檢查活動，以提升外傭對中風的關注度和認識，從而積極預防並及早治療，過百名外傭到場參加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799120-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799120-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799120-20250406.htm)
+
+---
+
+# 德國發現疑似二戰遺留未爆炸彈散逾1萬5千人　列車服務受限
+
+  
+
+德國北部發現疑似二戰遺留的未爆炸彈，當局疏散超過1萬5千人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm)
+
+---
+
+# 哥倫比亞政府與「南方公社」武裝簽和平協議　組織上繳武器彈藥
+
+  
+
+哥倫比亞政府與一個武裝組織舉行和平協議簽署儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm)
+
+---
+
+# 旅發局促成逾50大型國際會展活動在港舉辦　料共26萬人次參與
+
+![考察團到香港會議展覽中心參觀展覽場地和會議室，作為日後選址香港舉辦會展活動的參考。（政府新聞網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799117_1_20250406161237.jpg&q=80)
+![成穎詩表示，隨着會展旅遊強勁復蘇和國際航空運力進一步恢復，相信會迎來更多會展旅客。（政府新聞網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799117_2_20250406161237.jpg&q=90)
+  
+
+旅發局表示，已成功競投和促成56個大型國際會展活動今年在港舉辦，其中16個活動是首度落戶香港，涵蓋金融科技、創科、醫療科學、航空等領域。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm)
+
+---
+
+# 前旺角街市大樓改建地區康健中心　近日取得入伙紙
+
+![康健中心面向亞皆老街方向採用落地大玻璃設計。（市建網誌設計構想圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799116_1_20250406160819.jpg&q=90)
+  
+
+市建局行政總監韋志成在網誌表示，市建局將前旺角街市大樓翻新成地區康健中心的工程，最近取得「入伙紙」及消防處批出的「消防紙」，未來數月加緊內部裝修及執修，配合今年內將油尖旺區地區康健站提升為地區康健中心的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799116-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799116-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799116-20250406.htm)
+
+---
+
 # 北韓官媒簡要報道尹錫悅被罷免　分析指欲與韓方保持一定距離
 
 ![朝中社有報道尹錫悅的消息，但未加以評論。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799113_1_20250406143359.jpg&q=90)
@@ -1319,125 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799042-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799042-20250405.htm)
-
----
-
-# 任天堂推遲Switch2在美預售時間　評估關稅影響
-
-![日本任天堂公司推遲新款遊戲機Switch2在美國的預售日期，評估關稅影響。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799040_1_20250405160641.jpg&q=90)
-  
-
-日本共同社報道，日本任天堂公司推遲新款遊戲機Switch2在美國的預售日期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm)
-
----
-
-# 緬甸特區救援隊遇酷熱天氣及蚊患問題　入境處協調張羅蚊帳等物資
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799039_1_20250405161538.jpg&q=90)
-  
-
-正在緬甸協助救援的特區救援隊表示，暫時遇到最大的困難是當地酷熱的天氣及蚊患問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799039-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799039-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799039-20250405.htm)
-
----
-
-# 陳茂波：美國加徵關稅易引市場情緒反應　政府有監察機制建立緩衝
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799038_1_20250405155621.jpg&q=90)
-  
-
-財政司司長陳茂波出席香港新聞博覽館舉辦的論壇時表示，美國總統特朗普向全球各國加徵對等關稅，容易引起市場情緒反應，特別是在金融市場，特區政府已有監察機制，期望及早識別出問題，然後化解，以及建立一個較大的緩衝。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm)
-
----
-
-# 運輸署料今日較後時間及明日較多旅客陸路入境　籲預留充裕時間
-
-![運輸署預料今日較後時間及明日，將有較多跨境旅客使用各陸路管制站回港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799036_1_20250405155929.jpg&q=85)
-  
-
-運輸署預料今日較後時間及明日，將有較多跨境旅客使用各陸路管制站回港，呼籲入境旅客及早規劃行程，預留充裕交通時間，盡量選擇於非繁忙時段出行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm)
-
----
-
-# 人民日報評論指美國所謂「對等關稅」將反噬美國經濟
-
-![人民日報發表評論文章，批評美國不知所云的所謂「對等關稅」，將反噬美國經濟。（人民網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799033_1_20250405151637.jpg&q=90)
-  
-
-美國今日起對所有出口到美國的商品徵收至少10%對等關稅，當中中國的關稅是34%。人民日報發表評論文章，批評美國不知所云的所謂「對等關稅」，是赤裸裸的單邊貿易保護主義政策，不僅將反噬美國經濟，更將嚴重破壞多邊貿易體制，衝擊全球產業鏈供應鏈，加劇國際貿易緊張和全球經濟分裂。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm)
 
 ---

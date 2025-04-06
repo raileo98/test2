@@ -1,3 +1,28 @@
+# 旅發局促成逾50大型國際會展活動在港舉辦　料共26萬人次參與
+
+![考察團到香港會議展覽中心參觀展覽場地和會議室，作為日後選址香港舉辦會展活動的參考。（政府新聞網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799117_1_20250406161237.jpg&q=80)
+![成穎詩表示，隨着會展旅遊強勁復蘇和國際航空運力進一步恢復，相信會迎來更多會展旅客。（政府新聞網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799117_2_20250406161237.jpg&q=90)
+  
+
+旅發局表示，已成功競投和促成56個大型國際會展活動今年在港舉辦，其中16個活動是首度落戶香港，涵蓋金融科技、創科、醫療科學、航空等領域。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm)
+
+---
+
 # 陳茂波堅決反對美國加徵關稅　本港保持警惕作好準備應對
 
 ![陳茂波表示，地緣局勢發展困擾全球貿易前景，香港短期內亦難免會受到一定影響。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799097_1_20250406121315.jpg&q=90)
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798859-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798859-20250403.htm)
-
----
-
-# 財政部指惠譽下調中國主權信用評級偏頗深表遺憾
-
-![惠譽將中國主權信用評級由「A+」下調至「A」，財政部回應指，有失偏頗，對此深表遺憾、不予認可。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798856_1_20250403211045.jpg&q=85)
-  
-
-財政部回應評級機構惠譽下調中國主權信用評級，指有關分析有失偏頗，不能充分客觀反映中國實際情況，以及國際國內市場對中國經濟回升向好的一致認知，對此深表遺憾、不予認可。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm)
 
 ---

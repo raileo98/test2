@@ -1,3 +1,75 @@
+# 港大醫學院與團體辦外傭免費體檢活動　逾百人參與
+
+  
+
+港大醫學院和中風研究組首次在醫學院校園，舉辦外傭免費健康檢查活動，以提升外傭對中風的關注度和認識，從而積極預防並及早治療，過百名外傭到場參加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799120-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799120-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799120-20250406.htm)
+
+---
+
+# 旅發局促成逾50大型國際會展活動在港舉辦　料共26萬人次參與
+
+![考察團到香港會議展覽中心參觀展覽場地和會議室，作為日後選址香港舉辦會展活動的參考。（政府新聞網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799117_1_20250406161237.jpg&q=80)
+![成穎詩表示，隨着會展旅遊強勁復蘇和國際航空運力進一步恢復，相信會迎來更多會展旅客。（政府新聞網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799117_2_20250406161237.jpg&q=90)
+  
+
+旅發局表示，已成功競投和促成56個大型國際會展活動今年在港舉辦，其中16個活動是首度落戶香港，涵蓋金融科技、創科、醫療科學、航空等領域。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm)
+
+---
+
+# 前旺角街市大樓改建地區康健中心　近日取得入伙紙
+
+![康健中心面向亞皆老街方向採用落地大玻璃設計。（市建網誌設計構想圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799116_1_20250406160819.jpg&q=90)
+  
+
+市建局行政總監韋志成在網誌表示，市建局將前旺角街市大樓翻新成地區康健中心的工程，最近取得「入伙紙」及消防處批出的「消防紙」，未來數月加緊內部裝修及執修，配合今年內將油尖旺區地區康健站提升為地區康健中心的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799116-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799116-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799116-20250406.htm)
+
+---
+
 # 中國國際救援隊聯同中國救援隊及中國香港救援隊續於緬甸災區義診
 
 ![央視新聞報道，中國國際救援隊聯同中國救援隊及中國香港救援隊，繼續在緬甸曼德勒市受災群眾安置點義診。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799109_1_20250406141841.jpg&q=85)
@@ -1368,77 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm)
-
----
-
-# 陳美寶：積極推進本港海空貨物聯運發展
-
-![陳美寶說，特區政府會繼續與機管局及業界攜手，加強機場的貨物處理能力和效率。（陳美寶社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798928_1_20250404135708.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶說，特區政府會繼續與機管局及業界攜手，加強機場的貨物處理能力和效率，積極推進「海空貨物聯運」發展，為大灣區貨物提供更無縫便捷的國際空運網絡，並提升機場的貨運設備，積極配合轉運、跨境電商及高價值溫控空運貨物的發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm)
-
----
-
-# 警拘7人涉兒童色情物品案　少年疑拍攝11歲胞妹不雅照
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798926_1_20250404131142.jpg&q=90)
-  
-
-本港警方拘捕7人，懷疑他們與兒童色情物品案件有關。被捕人介乎16至49歲，警方共檢獲7部手提電話及11部電腦或外置儲存裝置，內有162段兒童色情影片及230張相片。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm)
-
----
-
-# 運輸署：往萬宜水庫東壩　交通非常繁忙
-
-![運輸署表示，通往萬宜水庫東壩的西貢萬宜路交通非常繁忙。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798923_1_20250404125231.jpg&q=80)
-  
-
-西貢北潭涌小巴總站往萬宜水庫東壩的小巴站，早上有大批市民及旅客排隊等候，營辦商安排多部專線小巴疏導乘客，排隊人龍有待消化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798923-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798923-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798923-20250404.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 德國發現疑似二戰遺留未爆炸彈散逾1萬5千人　列車服務受限
+
+  
+
+德國北部發現疑似二戰遺留的未爆炸彈，當局疏散超過1萬5千人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm)
+
+---
+
+# 哥倫比亞政府與「南方公社」武裝簽和平協議　組織上繳武器彈藥
+
+  
+
+哥倫比亞政府與一個武裝組織舉行和平協議簽署儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm)
+
+---
+
 # 北韓官媒簡要報道尹錫悅被罷免　分析指欲與韓方保持一定距離
 
 ![朝中社有報道尹錫悅的消息，但未加以評論。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799113_1_20250406143359.jpg&q=90)
@@ -1391,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm)
-
----
-
-# 中國出多招反制美國　包括向原產美國的進口商品加34%關稅
-
-![中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798971_1_20250404220458.jpg&q=75)
-  
-
-中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm)
-
----
-
-# 特朗普：中國對貿易戰驚慌失措　自己政策不會變
-
-![美國總統特朗普在社交平台指，自己政策不會變。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798969_1_20250404213821.jpg&q=90)
-  
-
-中國反制美國對等關稅措施後，美國總統特朗普在社交平台指，中國對貿易戰驚慌失措，他的政策不會變，又鼓勵外國增加在美國投資，指現時是投資致富的好時機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798969-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798969-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798969-20250404.htm)
 
 ---
