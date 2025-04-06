@@ -1,3 +1,27 @@
+# 日圓兌美元升逾1%　油價跌3%或以上
+
+![日圓兌美元升逾1%，較早時報145.09日圓。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799163_1_20250407070022.jpg&q=80)
+  
+
+美國對貿易夥伴徵收對等關稅，外圍金融市場在亞洲交易時段初段繼續波動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799163-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799163-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799163-20250407.htm)
+
+---
+
 # 數據顯示過去3日假期10大屋苑成交不足20宗
 
 ![代理數據顯示，過去3日假期10大屋苑成交不足20宗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799161_1_20250407061814.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798869-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798869-20250403.htm)
-
----
-
-# 道指曾跌近1600點　納指跌逾5%
-
-![道瓊斯指數一度跌近1600點，較早時報40723點，跌1501點，跌幅3.56%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798868_1_20250403224545.jpg&q=90)
-  
-
-美股3大指數跌幅擴大，大型科技股急挫。美國宣布對多個國家及地區徵收對等關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798868-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798868-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798868-20250403.htm)
 
 ---

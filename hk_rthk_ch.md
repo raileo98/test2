@@ -1,3 +1,27 @@
+# 日圓兌美元升逾1%　油價3%或以上
+
+![日圓兌美元升逾1%，較早時報145.09日圓。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799163_1_20250407070022.jpg&q=80)
+  
+
+美國對貿易夥伴徵收對等關稅，外圍金融市場在亞洲交易時段初段繼續波動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799163-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799163-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799163-20250407.htm)
+
+---
+
 # 警方太子道東截查私家車檢獲毒品拘捕3人
 
 ![警方在東九龍打擊酒後駕駛。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799162_1_20250407065413.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm)
-
----
-
-# 鍾麗玲冀制定指引有助企業釋放AI最大威力
-
-![鍾麗玲期望制定內部政策，讓員工能更安全使用，釋放AI最大威力。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799088_1_20250406102032.jpg&q=90)
-  
-
-個人資料私隱專員公署日前公布指引，協助機構制定使用生成式人工智能的內部政策。私隱專員鍾麗玲表示，留意到生成式AI越來越普及，很多人在老闆未必知道的情況下使用，期望清單協助企業制定內部政策，讓員工能更安全使用，釋放AI最大威力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm)
 
 ---
