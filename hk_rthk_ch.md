@@ -1,3 +1,50 @@
+# 《人民日報》再發文指中國有強大抗壓能力面對美國關稅霸凌衝擊
+
+  
+
+明日出版的《人民日報》再發表評論員文章，指美國對中國商品加徵34%的關稅，加上此前加徵的關稅，將嚴重抑制雙邊貿易，短期內不可避免地對中國出口造成負面影響，加大經濟下行壓力，但中國是超大規模經濟體，面對美國的關稅霸凌衝擊，具有強大的抗壓能力，對美出口下降不會對整體經濟造成顛覆性影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm)
+
+---
+
+# 休班警涉酒後駕駛被檢控明早提堂
+
+![警方表示，該名男警已被停職。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799139_1_20250406211945.jpg&q=40)
+  
+
+一名休班男警去年10月11日凌晨，在元朗公路駕駛電單車期間懷疑失控並翻側，警方到場後在他身上發現酒氣，其後證實他的血液酒精濃度超標。該名休班警員已被控一項「在血液中的酒精濃度超過訂明限度的情況下駕駛汽車」罪，案件明日上午在粉嶺判法院提堂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm)
+
+---
+
 # 施紀賢回應美國對等關稅　指大家所知世界不復存在
 
   
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799065-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799065-20250405.htm)
-
----
-
-# UTS網球賽首於亞洲舉行　10月啟德體藝館8球手競逐錦標
-
-![香港站賽事將由8名球手競逐錦標，包括澳洲球手迪文拿奧與中國球手張之臻等。（UTS網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799064_1_20250405223925.jpg&q=90)
-  
-
-中國香港網球總會宣布，網球賽事Ultimate Tennis Showdown（UTS）今年10月14至15日，在啟德體育園體藝館一連兩日上演，是這項賽事首度在亞洲舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm)
-
----
-
-# 日本發生旅遊巴意外　據報47人受傷包括香港人
-
-![日本發生旅遊巴意外　據報47人受傷包括香港人](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799062_1_20250405215151.jpg&q=90)
-  
-
-日本東京以西一條高速公路發生涉及旅遊巴的意外，據報47人受傷，包括香港人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799062-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799062-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799062-20250405.htm)
 
 ---

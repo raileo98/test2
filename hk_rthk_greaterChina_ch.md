@@ -1,3 +1,26 @@
+# 《人民日報》再發文指中國有強大抗壓能力面對美國關稅霸凌衝擊
+
+  
+
+明日出版的《人民日報》再發表評論員文章，指美國對中國商品加徵34%的關稅，加上此前加徵的關稅，將嚴重抑制雙邊貿易，短期內不可避免地對中國出口造成負面影響，加大經濟下行壓力，但中國是超大規模經濟體，面對美國的關稅霸凌衝擊，具有強大的抗壓能力，對美出口下降不會對整體經濟造成顛覆性影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm)
+
+---
+
 # 施紀賢回應美國對等關稅　指大家所知世界不復存在
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm)
-
----
-
-# 中國政府第二批援助緬甸物資運抵仰光機場
-
-![中國政府向緬甸提供的第二批緊急人道救災援助物資抵達仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798791_1_20250403144239.jpg&q=90)
-  
-
-緬甸大地震搜救工作持續，國家管理委員會說，截至當地時間今天上午8時，強震已導致3085人死亡，4715人受傷，另有341人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm)
 
 ---

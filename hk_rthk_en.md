@@ -1,3 +1,27 @@
+# Le Pen invokes MLK ahead of far-right Paris rally
+
+![Protesters gathered during a rally in Paris in support of President of Rassemblement National parliamentary group Marine Le Pen, after she was convicted. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799140_1_20250406211858.jpg&q=90)
+  
+
+France's Marine Le Pen on Sunday invoked Martin Luther King's struggle for civil rights as her far-right party planned to rally its supporters after she was convicted of embezzlement and banned from public office.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm)
+
+---
+
 # Foreigners run in Pyongyang Marathon, first in 6 years
 
 ![Participants take part in the 31st Pyongyang International Marathon in Pyongyang. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799137_1_20250406204551.jpg&q=85)
@@ -1411,29 +1435,5 @@ A boxing coach charged with murdering a man in Fo Tan last month appeared in Sha
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798826-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798826-20250403.htm)
-
----
-
-# SAR women's cycling team wins Tour of Thailand
-
-![The Hong Kong, China, team finished in an overall time of 19 hours, 43 minutes and 37 seconds. Photo courtesy of The Princess Maha Chakri Sirindhorn's Cup Tour of Thailand](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798818_1_20250403171524.jpg&q=80)
-  
-
-The Hong Kong, China, women's cycling team rode their way to victory at the three-day women's Tour of Thailand, while rising star Ceci Lee claimed second place in the individual general classification.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm)
 
 ---

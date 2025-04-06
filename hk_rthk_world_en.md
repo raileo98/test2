@@ -1,3 +1,27 @@
+# Le Pen invokes MLK ahead of far-right Paris rally
+
+![Protesters gathered during a rally in Paris in support of President of Rassemblement National parliamentary group Marine Le Pen, after she was convicted. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799140_1_20250406211858.jpg&q=90)
+  
+
+France's Marine Le Pen on Sunday invoked Martin Luther King's struggle for civil rights as her far-right party planned to rally its supporters after she was convicted of embezzlement and banned from public office.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm)
+
+---
+
 # Recovering Pope makes surprise appearance in Vatican
 
 ![Pope Francis gestures as he appears for the first time since his return to the Vatican, in Saint Peter square, at the Vatican. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799132_1_20250406183756.jpg&q=90)
@@ -1411,29 +1435,5 @@ Harvard University has become the latest target in the Trump administration’s 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm)
-
----
-
-# Over 320 children killed in Gaza in 10 days, says UN
-
-![A mourner carries the body of a Palestinian child killed in Israeli strikes, at Nasser hospital, in Khan Younis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798373_1_20250401083731.jpg&q=85)
-  
-
-Israel's renewed offensive in Gaza has reportedly left at least 322 children dead and 609 wounded in the Palestinian territory in the past 10 days, UNICEF said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm)
 
 ---

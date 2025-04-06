@@ -1,3 +1,27 @@
+# 休班警涉酒後駕駛被檢控明早提堂
+
+![警方表示，該名男警已被停職。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799139_1_20250406211945.jpg&q=40)
+  
+
+一名休班男警去年10月11日凌晨，在元朗公路駕駛電單車期間懷疑失控並翻側，警方到場後在他身上發現酒氣，其後證實他的血液酒精濃度超標。該名休班警員已被控一項「在血液中的酒精濃度超過訂明限度的情況下駕駛汽車」罪，案件明日上午在粉嶺判法院提堂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm)
+
+---
+
 # 將軍澳有鋁窗從高處墮下　女途人被玻璃碎片濺中頸部受傷
 
 ![將軍澳富麗花園有一扇鋁窗下午懷疑從高處墮下。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799135_1_20250406201513.jpg&q=75)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798941-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798941-20250404.htm)
-
----
-
-# 流行文化節本月起展開　未來兩日有免費戶外音樂嘉年華
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798940_1_20250404162714.jpg&q=80)
-  
-
-康文署本月起將開展第三屆香港流行文化節，提供超過20項活動，涵蓋音樂、影像和文字等不同內容。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm)
 
 ---
