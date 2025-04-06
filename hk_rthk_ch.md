@@ -1,5 +1,29 @@
+# 尹錫悅再發表立場　稱雖不再擔任總統但會一直守護大家
+
+  
+
+在南韓被罷免總統職務的尹錫悅向支持者發表感謝信，是他被罷免後第二次發表立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799112-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799112-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799112-20250406.htm)
+
+---
+
 # 基輔遇襲防空系統作出防禦　市長籲民眾做好安全防護
 
+![烏克蘭首都基輔遭受導彈攻擊，防空系統作出防禦。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799111_1_20250406141927.jpg&q=85)
   
 
 烏克蘭首都基輔遭受導彈攻擊，防空系統作出防禦。
@@ -23,6 +47,7 @@
 
 # 中國國際救援隊聯同中國救援隊及中國香港救援隊續於緬甸災區義診
 
+![央視新聞報道，中國國際救援隊聯同中國救援隊及中國香港救援隊，繼續在緬甸曼德勒市受災群眾安置點義診。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799109_1_20250406141841.jpg&q=85)
   
 
 央視新聞報道，中國國際救援隊聯同中國救援隊及中國香港救援隊，繼續在緬甸曼德勒市受災群眾安置點義診，派出內科、外科、兒科、心理諮詢等專業醫療專家及護士超過20人，以心電圖機、可携式X光機等檢查設備，為災民量血壓及進行超聲波等檢查，並免費發放藥品，昨日共診治180多人次、輔助檢查化驗59人次。
@@ -94,6 +119,7 @@
 
 # 中國海警艦艇驅離一艘非法進入釣魚島領海日本漁船
 
+![中國海警局表示，釣魚島及其附屬島嶼是中國固有領土。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799099_1_20250406140236.jpg&q=90)
   
 
 中國海警局表示，一艘日本漁船非法進入釣魚島領海，中國海警艦艇依法採取必要管控措施並警告驅離。
@@ -117,6 +143,7 @@
 
 # 鍾麗玲稱部分大機構有涉AI使用管治架構　較少中小企做相關工作
 
+![鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799105_1_20250406140305.jpg&q=90)
   
 
 個人資料私隱專員公署日前公布指引清單，協助機構制定使用生成式人工智能的內部政策。
@@ -140,6 +167,7 @@
 
 # 盧寵茂稱公立醫院收費改革增保障　猶如政府送出一份保險
 
+![盧寵茂指公立醫院收費改革已討論多年。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799104_1_20250406140206.jpg&q=90)
   
 
 醫務衞生局局長盧寵茂表示，公立醫院收費改革已討論多年，強調能夠為市民增加保障，猶如政府送出一份保險一樣。
@@ -1410,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799032-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799032-20250405.htm)
-
----
-
-# SpaceX團隊完成人類首次載人圍繞地球兩極飛行任務
-
-![搭載飛船的火箭上月底從佛羅里達州的航天中心發射升空。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799031_1_20250405142718.jpg&q=90)
-  
-
-美國太空探索技術公司SpaceX的私人宇航團隊，完成人類首次載人圍繞地球兩極的飛行任務，4名機組人員搭乘龍飛船成功降落太平洋。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm)
 
 ---

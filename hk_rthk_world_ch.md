@@ -1,5 +1,29 @@
+# 尹錫悅再發表立場　稱雖不再擔任總統但會一直守護大家
+
+  
+
+在南韓被罷免總統職務的尹錫悅向支持者發表感謝信，是他被罷免後第二次發表立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799112-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799112-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799112-20250406.htm)
+
+---
+
 # 基輔遇襲防空系統作出防禦　市長籲民眾做好安全防護
 
+![烏克蘭首都基輔遭受導彈攻擊，防空系統作出防禦。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799111_1_20250406141927.jpg&q=85)
   
 
 烏克蘭首都基輔遭受導彈攻擊，防空系統作出防禦。
@@ -23,6 +47,7 @@
 
 # 中國國際救援隊聯同中國救援隊及中國香港救援隊續於緬甸災區義診
 
+![央視新聞報道，中國國際救援隊聯同中國救援隊及中國香港救援隊，繼續在緬甸曼德勒市受災群眾安置點義診。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799109_1_20250406141841.jpg&q=85)
   
 
 央視新聞報道，中國國際救援隊聯同中國救援隊及中國香港救援隊，繼續在緬甸曼德勒市受災群眾安置點義診，派出內科、外科、兒科、心理諮詢等專業醫療專家及護士超過20人，以心電圖機、可携式X光機等檢查設備，為災民量血壓及進行超聲波等檢查，並免費發放藥品，昨日共診治180多人次、輔助檢查化驗59人次。
@@ -46,6 +71,7 @@
 
 # 中國海警艦艇驅離一艘非法進入釣魚島領海日本漁船
 
+![中國海警局表示，釣魚島及其附屬島嶼是中國固有領土。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799099_1_20250406140236.jpg&q=90)
   
 
 中國海警局表示，一艘日本漁船非法進入釣魚島領海，中國海警艦艇依法採取必要管控措施並警告驅離。
@@ -1412,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm)
-
----
-
-# 緬甸大地震增至逾3300人死
-
-![緬甸中部大地震，增至超過3300人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798964_1_20250404200934.jpg&q=35)
-  
-
-緬甸中部大地震，增至超過3300人死亡、近4800人受傷，仍有200多人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm)
 
 ---
