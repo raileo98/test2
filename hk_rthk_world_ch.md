@@ -1,3 +1,27 @@
+# 加沙媒體辦公室：以軍重啟戰事以來已有490名兒童被殺
+
+![加沙地帶媒體辦公室說，自以軍重啟加沙戰事以來，已有490名兒童在襲擊中喪生。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799153_1_20250407024649.jpg&q=80)
+  
+
+加沙地帶媒體辦公室發表聲明說，自3月18日以色列軍隊違反停火協議、重啟加沙戰事以來，已有490名兒童在襲擊中喪生，全部死亡人數已達1350人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799153-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799153-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799153-20250407.htm)
+
+---
+
 # 華府官員稱關稅措施公布後逾50個國家與美國展開貿易談判
 
 ![貝森特認為，特朗普為自己創造了最大的籌碼。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799151_1_20250407021853.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798990-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798990-20250405.htm)
-
----
-
-# 巴布亞新幾內亞新不列顛島地區強烈地震　美國發出海嘯警告
-
-![巴布亞新幾內亞新不列顛島地區強烈地震　美國發出海嘯警告](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798989_1_20250405043231.jpg&q=90)
-  
-
-巴布亞新幾內亞新不列顛島地區發生7級以上強烈地震，美國發出海嘯警報。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798989-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798989-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798989-20250405.htm)
 
 ---

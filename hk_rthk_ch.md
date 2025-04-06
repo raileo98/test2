@@ -1,3 +1,27 @@
+# 加沙媒體辦公室：以軍重啟戰事以來已有490名兒童被殺
+
+![加沙地帶媒體辦公室說，自以軍重啟加沙戰事以來，已有490名兒童在襲擊中喪生。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799153_1_20250407024649.jpg&q=80)
+  
+
+加沙地帶媒體辦公室發表聲明說，自3月18日以色列軍隊違反停火協議、重啟加沙戰事以來，已有490名兒童在襲擊中喪生，全部死亡人數已達1350人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799153-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799153-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799153-20250407.htm)
+
+---
+
 # 英超曼聯主場與曼城賽和0:0
 
 ![曼徹斯特打吡和氣收場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799152_1_20250407022746.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799076-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799076-20250406.htm)
-
----
-
-# 英超阿士東維拉2:1挫諾定咸森林
-
-![維拉球員慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799075_1_20250406024316.jpg&q=85)
-  
-
-英格蘭超級足球聯賽，阿士東維拉主場2:1擊敗諾定咸森林。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799075-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799075-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799075-20250406.htm)
 
 ---
