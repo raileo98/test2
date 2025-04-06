@@ -94,7 +94,7 @@ Environment minister Tse Chin-wan has rejected the idea of legislation to force 
 
 ---
 
-# 'AI guidelines push is to help prevent data leaks'
+# 'AI guidelines push to help prevent data leaks'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799103_1_20250406121958.jpg&q=85)
   
