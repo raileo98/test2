@@ -1,3 +1,52 @@
+# 專家稱本港百日咳個案處於低水平　未打疫苗兒童外遊需做好預防
+
+  
+
+港大臨床醫學學院兒童及青少年科學系臨床教授葉柏強表示，留意到最近日本及東南亞出現百日咳等傳染病爆發，相關感染數字明顯上升，目前本港百日咳感染數字處於非常低水平，未見嚴重爆發，但不應掉以輕心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799096-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799096-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799096-20250406.htm)
+
+---
+
+# 「浪漫勇士」迪拜草地大賽以馬鼻之差僅敗
+
+![「浪漫勇士」(8號)在一級賽杜拜草地大賽(1800米)中，僅以些微距離負於日本代表「神志勇進」(9號)跑獲亞軍，完成中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799095_1_20250406105056.jpg&q=85)
+![「浪漫勇士」(8號)在一級賽杜拜草地大賽(1800米)中跑獲亞軍，累積獎金增至近二億一千五百萬港元，其累積獎金繼續冠絕全球賽駒。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799095_2_20250406105056.jpg&q=90)
+![練馬師沈集成（右）率領「浪漫勇士」及其團隊，完成為期四個月的中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799095_3_20250406105056.jpg&q=90)
+  
+
+香港馬王「浪漫勇士」於阿聯酋出戰迪拜草地大賽，衝線時以馬鼻之差，不敵日本賽駒「神志勇進」得第二；總結遠征中東三場賽事，「浪漫勇士」共奪得一冠兩亞。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799095-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799095-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799095-20250406.htm)
+
+---
+
 # 葉柏強：疫後兒童性侵個案增加　部分涉互聯網
 
   
@@ -1390,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm)
-
----
-
-# 羅淑佩稱訪京匯報工作獲夏寶龍勉勵　將秉持守正繼續做好工作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798904_1_20250404101841.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩總結三日訪京行程時表示，此行收穫非常豐富，拜會了中央港澳辦主任、國務院港澳辦主任夏寶龍，匯報重點工作及未來工作計劃，夏龍寶對她及政策局勉勵有嘉，特別關注旅遊方面如何推陳出新。羅淑佩強調，今後會秉持守正創新的精神，不斷做好短中長期工作，發展局已因應旅遊片區邀請發展商提交意向書，這些都是中央對他們作出的特別指示而一步步做出來。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm)
-
----
-
-# 楊何蓓茵到浩園向殉職公務員致意
-
-![楊何蓓茵近日代表特區政府到和合石墳場內的浩園，悼念因公殉職的公職人員。（楊何蓓茵社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798901_1_20250404101058.jpg&q=85)
-  
-
-今日是清明節，公務員事務局局長楊何蓓茵近日代表特區政府到和合石墳場內的浩園，悼念因公殉職的公職人員，並獻上鮮花致意。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798901-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798901-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798901-20250404.htm)
 
 ---

@@ -1,3 +1,75 @@
+# 專家稱本港百日咳個案處於低水平　未打疫苗兒童外遊需做好預防
+
+  
+
+港大臨床醫學學院兒童及青少年科學系臨床教授葉柏強表示，留意到最近日本及東南亞出現百日咳等傳染病爆發，相關感染數字明顯上升，目前本港百日咳感染數字處於非常低水平，未見嚴重爆發，但不應掉以輕心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799096-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799096-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799096-20250406.htm)
+
+---
+
+# 美國多州惡劣天氣持續　最少16人因天氣相關原因死亡
+
+  
+
+美國多個州的惡劣天氣持續，南部和中西部部分地區，周六遭遇暴雨和洪水，加上近數日強風暴雨，亦出現龍捲風，令有關地區積水嚴重。天氣預報警告，部分地區的河水水位將於未來幾日持續上漲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799094-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799094-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799094-20250406.htm)
+
+---
+
+# 「浪漫勇士」迪拜草地大賽以馬鼻之差僅敗
+
+![「浪漫勇士」(8號)在一級賽杜拜草地大賽(1800米)中，僅以些微距離負於日本代表「神志勇進」(9號)跑獲亞軍，完成中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799095_1_20250406105056.jpg&q=85)
+![「浪漫勇士」(8號)在一級賽杜拜草地大賽(1800米)中跑獲亞軍，累積獎金增至近二億一千五百萬港元，其累積獎金繼續冠絕全球賽駒。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799095_2_20250406105056.jpg&q=90)
+![練馬師沈集成（右）率領「浪漫勇士」及其團隊，完成為期四個月的中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799095_3_20250406105056.jpg&q=90)
+  
+
+香港馬王「浪漫勇士」於阿聯酋出戰迪拜草地大賽，衝線時以馬鼻之差，不敵日本賽駒「神志勇進」得第二；總結遠征中東三場賽事，「浪漫勇士」共奪得一冠兩亞。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799095-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799095-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799095-20250406.htm)
+
+---
+
 # 葉柏強：疫後兒童性侵個案增加　部分涉互聯網
 
   
@@ -25,7 +97,7 @@
 
   
 
-以色列承認上月於加沙南部有15名緊急救援人員被殺的事件中，以軍士兵犯錯，但強調最少6同死者與巴勒斯坦武裝組織哈馬斯有關。
+以色列承認上月於加沙南部有15名緊急救援人員被殺的事件中，以軍士兵犯錯，但強調最少6名死者與巴勒斯坦武裝組織哈馬斯有關。
 
   
 
@@ -142,6 +214,7 @@
 
 # 以色列有集會呼籲結束衝突　巴勒斯坦有示威譴責以軍襲擊醫護
 
+![以色列有集會呼籲結束衝突。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799085_1_20250406105211.jpg&q=55)
   
 
 以巴兩地分別有民眾示威。巴勒斯坦民眾在被佔領的約旦河西岸拉馬拉地區遊行示威，譴責以色列軍隊之前在加沙地帶南部，襲擊15名巴勒斯坦醫務人員和人道主義工作人員的行為。
@@ -1361,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799018-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799018-20250405.htm)
-
----
-
-# 房協發新租約全面規管富戶　凌嘉勤：若不接受有4個月寬限期遷出
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799017_1_20250405111850.jpg&q=90)
-  
-
-房協會向出租屋邨租戶發出新的租約，全面規管富戶。房協主席凌嘉勤出席本台節目《星期六問責》表示，新租約有附加條款，要求住戶需要定期申報入息和資產，如果不接受條款，住戶有4個月寬限期遷出單位。房協已陸續向住戶解釋，並計劃在9月前，舉辦超過100場解說會，向2萬5千個租戶講解新做法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm)
-
----
-
-# 楊何蓓茵到訪小學　冀學校繼續發揮主導角色加強學生認識國情
-
-![楊何蓓茵日到訪小西灣培僑小學，了解校方推動國家安全教育的工作。（楊何蓓茵社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799016_1_20250405104535.jpg&q=90)
-  
-
-本月15日將會迎來第10個「全民國家安全教育日」，公務員事務局局長楊何蓓茵表示，學生是未來社會棟樑，學校透過不同階段的學習經歷，幫助學生整全地學習國家安全的內容。期望學校繼續發揮主導角色，透過教學和全方位學習活動，加強學生認識國情，明白保障國家安全的重要性，持續加深對《憲法》和《基本法》的認識，並提升國民身份認同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm)
-
----
-
-# 烏克蘭有住宅區被俄導彈轟炸　最少19死包括9名兒童
-
-![克里維里赫巿一個住宅區，星期五被俄羅斯的導彈擊中，烏方官員說最少19人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799012_1_20250405104232.jpg&q=80)
-  
-
-烏克蘭克里維里赫巿一個住宅區，星期五被俄羅斯的導彈擊中，烏方官員說最少19人死亡，當中包括9名兒童，俄方就說行動是針對於當地進行的一個軍事會議。遇襲後市內發生火警，有住宅樓宇受損。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm)
 
 ---

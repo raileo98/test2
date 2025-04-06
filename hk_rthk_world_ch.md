@@ -1,8 +1,57 @@
+# 美國多州惡劣天氣持續　最少16人因天氣相關原因死亡
+
+  
+
+美國多個州的惡劣天氣持續，南部和中西部部分地區，周六遭遇暴雨和洪水，加上近數日強風暴雨，亦出現龍捲風，令有關地區積水嚴重。天氣預報警告，部分地區的河水水位將於未來幾日持續上漲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799094-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799094-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799094-20250406.htm)
+
+---
+
+# 「浪漫勇士」迪拜草地大賽以馬鼻之差僅敗
+
+![「浪漫勇士」(8號)在一級賽杜拜草地大賽(1800米)中，僅以些微距離負於日本代表「神志勇進」(9號)跑獲亞軍，完成中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799095_1_20250406105056.jpg&q=85)
+![「浪漫勇士」(8號)在一級賽杜拜草地大賽(1800米)中跑獲亞軍，累積獎金增至近二億一千五百萬港元，其累積獎金繼續冠絕全球賽駒。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799095_2_20250406105056.jpg&q=90)
+![練馬師沈集成（右）率領「浪漫勇士」及其團隊，完成為期四個月的中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799095_3_20250406105056.jpg&q=90)
+  
+
+香港馬王「浪漫勇士」於阿聯酋出戰迪拜草地大賽，衝線時以馬鼻之差，不敵日本賽駒「神志勇進」得第二；總結遠征中東三場賽事，「浪漫勇士」共奪得一冠兩亞。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799095-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799095-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799095-20250406.htm)
+
+---
+
 # 以色列承認上月加沙15名緊急救援人員被殺事件中以軍犯錯
 
   
 
-以色列承認上月於加沙南部有15名緊急救援人員被殺的事件中，以軍士兵犯錯，但強調最少6同死者與巴勒斯坦武裝組織哈馬斯有關。
+以色列承認上月於加沙南部有15名緊急救援人員被殺的事件中，以軍士兵犯錯，但強調最少6名死者與巴勒斯坦武裝組織哈馬斯有關。
 
   
 
@@ -23,6 +72,7 @@
 
 # 以色列有集會呼籲結束衝突　巴勒斯坦有示威譴責以軍襲擊醫護
 
+![以色列有集會呼籲結束衝突。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799085_1_20250406105211.jpg&q=55)
   
 
 以巴兩地分別有民眾示威。巴勒斯坦民眾在被佔領的約旦河西岸拉馬拉地區遊行示威，譴責以色列軍隊之前在加沙地帶南部，襲擊15名巴勒斯坦醫務人員和人道主義工作人員的行為。
@@ -1386,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm)
-
----
-
-# 中國對原產於美國所有進口商品加徵34%關稅
-
-![國務院關稅稅則委員會宣布本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798952_1_20250404182448.jpg&q=90)
-  
-
-國務院關稅稅則委員會宣布，本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm)
-
----
-
-# 日本去年查獲約1.2噸走私金條　加強海路走私警戒
-
-![日本去年查獲約1.2噸走私金條，數量是前一年約4倍。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798950_1_20250404174339.jpg&q=85)
-  
-
-日本去年查獲約1.2噸走私金條，數量是前一年約4倍。海上走私呈增加趨勢，海上保安廳和海關已加強警戒。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm)
 
 ---
