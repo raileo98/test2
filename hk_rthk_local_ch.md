@@ -1,3 +1,27 @@
+# Coldplay演唱會　觀眾可攜不超600毫升塑膠樽或杯進場
+
+![英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會。（Cityline 網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799143_1_20250406221634.jpg&q=90)
+  
+
+英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會。主辦單位在社交專頁表示，觀眾可攜帶容量不超過600毫升的塑料或硅膠可重用便攜式水瓶或杯進場。不過，有關容器超過600毫升不可帶入場，另外觀眾亦不可攜帶即棄膠樽裝飲品的空樽、玻璃瓶或杯、鋁罐、保溫瓶或杯，以及不鏽鋼瓶或杯進場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm)
+
+---
+
 # 休班警涉酒後駕駛被檢控明早提堂
 
 ![警方表示，該名男警已被停職。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799139_1_20250406211945.jpg&q=40)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm)
-
----
-
-# 本港截至早上10時17萬人次出境　逾8萬人次入境
-
-![出境方面，以羅湖口岸最多，有超過3萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798941_1_20250404162745.jpg&q=90)
-  
-
-清明節3天長假期首日，截至早上10時，經各口岸出境的人次超過17萬，入境人次超過8萬，合計超過25萬人次進出本港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798941-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798941-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798941-20250404.htm)
 
 ---

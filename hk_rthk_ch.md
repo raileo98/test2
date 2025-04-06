@@ -1,3 +1,27 @@
+# Coldplay演唱會　觀眾可攜不超600毫升塑膠樽或杯進場
+
+![英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會。（Cityline 網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799143_1_20250406221634.jpg&q=90)
+  
+
+英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會。主辦單位在社交專頁表示，觀眾可攜帶容量不超過600毫升的塑料或硅膠可重用便攜式水瓶或杯進場。不過，有關容器超過600毫升不可帶入場，另外觀眾亦不可攜帶即棄膠樽裝飲品的空樽、玻璃瓶或杯、鋁罐、保溫瓶或杯，以及不鏽鋼瓶或杯進場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm)
+
+---
+
 # 日本長崎縣一架直升機在海上墜毀　3人失聯
 
   
