@@ -1,3 +1,27 @@
+# 被裁定不得參選　瑪麗娜勒龐：不會放棄
+
+![瑪麗娜勒龐在巴黎出席黨內集會並向支持者發表講話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799155_1_20250407035615.jpg&q=90)
+  
+
+被裁定挪用公款罪成、5年內不得參選公職的法國極右國民聯盟領袖瑪麗娜勒龐誓言不會放棄，批評針對她的指控是政治決定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799155-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799155-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799155-20250407.htm)
+
+---
+
 # 伊朗外長重申只能與美國間接談判
 
 ![阿拉格齊說，與美國只能是間接談判，至今尚未舉行任何一輪談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799154_1_20250407033749.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798993-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798993-20250405.htm)
-
----
-
-# 路透：中國因美國關稅拒絕批准分拆TikTok交易
-
-![其中一名知情人士說，有關交易的結構在星期三基本敲定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798994_1_20250405052506.jpg&q=90)
-  
-
-路透社引述知情人士報道，美國總統特朗普宣布徵收對等關稅後，中國表示不會批准分拆字節跳動旗下短片分享平台TikTok在美資產的交易，有關交易被擱置。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798994-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798994-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798994-20250405.htm)
 
 ---

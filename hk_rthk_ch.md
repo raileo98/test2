@@ -1,3 +1,27 @@
+# 被裁定不得參選　瑪麗娜勒龐：不會放棄
+
+![瑪麗娜勒龐在巴黎出席黨內集會並向支持者發表講話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799155_1_20250407035615.jpg&q=90)
+  
+
+被裁定挪用公款罪成、5年內不得參選公職的法國極右國民聯盟領袖瑪麗娜勒龐誓言不會放棄，批評針對她的指控是政治決定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799155-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799155-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799155-20250407.htm)
+
+---
+
 # 伊朗外長重申只能與美國間接談判
 
 ![阿拉格齊說，與美國只能是間接談判，至今尚未舉行任何一輪談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799154_1_20250407033749.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799079-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799079-20250406.htm)
-
----
-
-# 聯合國稱加沙百萬兒童一個多月無法獲得援助物資
-
-![聯合國兒童基金會說，救助物資持續受阻將會導致加沙地帶的兒童營養不良和疾病激增，並增加兒童死亡率。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799078_1_20250406045514.jpg&q=85)
-  
-
-聯合國兒童基金會表示，加沙地帶超過100萬兒童已有長達一個多月無法獲得救生和援助物資，救助物資持續受阻將會導致加沙地帶的兒童營養不良和疾病激增，並增加兒童死亡率。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799078-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799078-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799078-20250406.htm)
 
 ---
