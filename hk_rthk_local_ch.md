@@ -1,3 +1,49 @@
+# 盧寵茂指公立醫院收費改革增保障　預約日無出現應付成本
+
+  
+
+公立醫院收費改革首階段明年元旦起實施。至於方案有無微調空間，醫務衞生局局長盧寵茂強調，收費改革已討論多時，強調能為市民增加保障，就如政府送出一份保險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm)
+
+---
+
+# Coldplay演唱會散場時港鐵加密班次　特別巴士線方便過境
+
+  
+
+英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會，港鐵散場時會加密班次，尾班接駁東鐵綫過境列車，晚上約11時分別在宋皇臺站及啟德站開出。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799130-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799130-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799130-20250406.htm)
+
+---
+
 # 入境處：截至下午4時　逾27.7萬人次經各口岸入境
 
 ![截至下午4時，逾27.7萬人次經各口岸入境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799129_1_20250406182555.jpg&q=90)
@@ -1390,56 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm)
-
----
-
-# 警方薄扶林檢市值逾800萬元私煙
-
-![警方在薄扶林進行反走私行動，檢獲183箱懷疑私煙，估計總市值共約832萬元。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798936_1_20250404155440.jpg&q=75)
-  
-
-警方在薄扶林進行反走私行動，檢獲183箱懷疑私煙，估計總市值共約832萬元，暫時未有人被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm)
-
----
-
-# 全運會場地單車測試賽本月舉行　逾150名選手參與
-
-![聶偉文說，有來自澳門、廣東、雲南和吉林車手來港比賽。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_1_20250404155354.jpg&q=80)
-![貝鈞奇表示，市民可以欣賞高水平賽事。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_2_20250404155354.jpg&q=80)
-![李思穎說，未來兩個星期會進入場地訓練好好備戰。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_3_20250404155354.jpg&q=90)
-![繆正賢說，剛從河南回港，狀態不俗。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_4_20250404155354.jpg&q=90)
-  
-
-2025香港國際場地盃暨第15屆全運會場地自行車測試賽，將於本月19至21日在將軍澳香港單車館舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm)
 
 ---

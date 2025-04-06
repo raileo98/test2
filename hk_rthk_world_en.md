@@ -1,3 +1,27 @@
+# Recovering Pope makes surprise appearance in Vatican
+
+![Pope Francis gestures as he appears for the first time since his return to the Vatican, in Saint Peter square, at the Vatican. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799132_1_20250406183756.jpg&q=90)
+  
+
+Pope Francis, who is recovering after a serious case of pneumonia, made a surprise public appearance Sunday as he mingled with crowds at the Vatican just two weeks after leaving hospital.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799132-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799132-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799132-20250406.htm)
+
+---
+
 # UK says Israel's detention of their MPs 'unacceptable'
 
 ![Demonstrators are seen while thousands of pro-Palestine protestors gather in front of the U.S. Capitol in Washington DC, on April 5, 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799127_1_20250406174947.jpg&q=90)
@@ -1411,29 +1435,5 @@ Israel's renewed offensive in Gaza has reportedly left at least 322 children dea
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm)
-
----
-
-# OpenAI to raise US$40 billion in new funding
-
-![SoftBank is to pump US$10 billion into OpenAI to start, and US$30 billion more by the end of this year pending certain conditions. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798374_1_20250401084730.jpg&q=90)
-  
-
-OpenAI on Monday said it raised US$40 billion in a new funding round that valued the ChatGPT maker at US$300 billion, the biggest capital-raising session ever for a startup.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm)
 
 ---

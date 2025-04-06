@@ -1,3 +1,26 @@
+# 香港馬王浪漫勇士遠征中東三賽共奪一冠兩亞
+
+  
+
+香港馬王「浪漫勇士」於阿聯酋出戰迪拜草地大賽，衝線時以馬鼻之差，不敵日本賽駒「神志勇進」得第二。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799133-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799133-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799133-20250406.htm)
+
+---
+
 # 「浪漫勇士」迪拜草地大賽以馬鼻之差僅敗
 
 ![「浪漫勇士」(8號)在一級賽杜拜草地大賽(1800米)中，僅以些微距離負於日本代表「神志勇進」(9號)跑獲亞軍，完成中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799095_1_20250406105056.jpg&q=85)
@@ -1435,29 +1458,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797377-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797377-20250325.htm)
-
----
-
-# 世界盃亞洲區外圍賽國足主場0:2澳洲
-
-![國家隊上半場落後兩球，換邊後，積極反撲，製造不少攻勢，但始終未能取得入球。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797364_1_20250325213352.jpg&q=90)
-  
-
-世界盃亞洲區外圍賽第三圈賽事，國家隊主場 0:2 不敵澳洲，未能直接晉級明年決賽周。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797364-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797364-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797364-20250325.htm)
 
 ---

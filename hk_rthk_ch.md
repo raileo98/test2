@@ -1,3 +1,72 @@
+# 香港馬王浪漫勇士遠征中東三賽共奪一冠兩亞
+
+  
+
+香港馬王「浪漫勇士」於阿聯酋出戰迪拜草地大賽，衝線時以馬鼻之差，不敵日本賽駒「神志勇進」得第二。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799133-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799133-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799133-20250406.htm)
+
+---
+
+# 盧寵茂指公立醫院收費改革增保障　預約日無出現應付成本
+
+  
+
+公立醫院收費改革首階段明年元旦起實施。至於方案有無微調空間，醫務衞生局局長盧寵茂強調，收費改革已討論多時，強調能為市民增加保障，就如政府送出一份保險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm)
+
+---
+
+# Coldplay演唱會散場時港鐵加密班次　特別巴士線方便過境
+
+  
+
+英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會，港鐵散場時會加密班次，尾班接駁東鐵綫過境列車，晚上約11時分別在宋皇臺站及啟德站開出。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799130-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799130-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799130-20250406.htm)
+
+---
+
 # 入境處：截至下午4時　逾27.7萬人次經各口岸入境
 
 ![截至下午4時，逾27.7萬人次經各口岸入境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799129_1_20250406182555.jpg&q=90)
@@ -1368,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm)
-
----
-
-# 黃恩諾：檢討水費調整冀做到收回成本及用者自付
-
-![黃恩諾表示，仍在檢討水費調整，強調希望做到收回成本。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799053_1_20250405192058.jpg&q=90)
-  
-
-水務署署長黃恩諾表示，仍在檢討水費調整，強調希望做到收回成本，用者自付，但要顧及民生和經濟情況，必須審慎考慮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799053-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799053-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799053-20250405.htm)
-
----
-
-# 麥美娟：改造啟德社區隔離設施作青年發展設施最遲10月投入營運
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799052_1_20250405183711.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟表示，改造啟德社區隔離設施作為青年發展設施，最遲10月有序投入營運。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799052-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799052-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799052-20250405.htm)
-
----
-
-# 美股連續兩個交易日急挫　鮑威爾：是否調整貨幣政策言之尚早
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799050_1_20250405182938.jpg&q=90)
-  
-
-市場憂慮貿易戰加劇，美股連續兩個交易日急挫，三大指數跌幅均逾5%，道瓊斯指數跌穿3萬9千點水平；至於納斯達克指數再跌近千點，技術上進入熊市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm)
 
 ---

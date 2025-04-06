@@ -1,3 +1,27 @@
+# Recovering Pope makes surprise appearance in Vatican
+
+![Pope Francis gestures as he appears for the first time since his return to the Vatican, in Saint Peter square, at the Vatican. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799132_1_20250406183756.jpg&q=90)
+  
+
+Pope Francis, who is recovering after a serious case of pneumonia, made a surprise public appearance Sunday as he mingled with crowds at the Vatican just two weeks after leaving hospital.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799132-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799132-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799132-20250406.htm)
+
+---
+
 # UK says Israel's detention of their MPs 'unacceptable'
 
 ![Demonstrators are seen while thousands of pro-Palestine protestors gather in front of the U.S. Capitol in Washington DC, on April 5, 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799127_1_20250406174947.jpg&q=90)
@@ -1412,29 +1436,5 @@ Equity markets tumbled on Thursday after Donald Trump delivered a "haymaker" blo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm)
-
----
-
-# US should correct reciprocal tariffs: Foreign Ministry
-
-![Guo Jiakun says additional US tariffs on exports from China and other countries seriously violate World Trade Organization regulations. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798814_1_20250403164944.jpg&q=90)
-  
-
-China urged the United States to correct its wrongful imposition of reciprocal tariffs and address economic and trade differences with China and other countries through negotiations, Foreign Ministry spokesman Guo Jiakun said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm)
 
 ---
