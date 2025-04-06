@@ -1,3 +1,27 @@
+# 緬甸大地震已造成3564人死亡
+
+![在緬甸首都內比都，地震災民在樹林中過夜。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799148_1_20250407004351.jpg&q=90)
+  
+
+緬甸國家管理委員會說，截至當地時間周日晚，大地震已造成3564人遇難、5012人受傷，另有210人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799148-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799148-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799148-20250407.htm)
+
+---
+
 # 胡塞武裝稱美軍空襲也門西部島嶼
 
 ![美軍空襲也門薩達的目標，一座建築物損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799147_1_20250407004000.jpg&q=75)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798985-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798985-20250405.htm)
-
----
-
-# 烏克蘭克里沃伊羅格市住宅區遭俄軍襲擊至少26死
-
-![烏克蘭克里沃伊羅格市住宅區遭俄軍襲擊至少26死](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798984_1_20250405021830.jpg&q=90)
-  
-
-烏克蘭第聶伯羅彼得羅夫斯克州克里沃伊羅格市遭襲，至少26人死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798984-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798984-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798984-20250405.htm)
 
 ---
