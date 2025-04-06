@@ -1,3 +1,26 @@
+# 美國及越南商界促華盛頓推遲對越南商品徵收46%對等關稅
+
+  
+
+美國及越南商界向華盛頓方面請求推遲對越南商品徵收46%「對等關稅」，指出徵稅將損害商界及兩地商業關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm)
+
+---
+
 # 旅發局促成逾50大型國際會展活動在港舉辦　料共26萬人次參與
 
 ![考察團到香港會議展覽中心參觀展覽場地和會議室，作為日後選址香港舉辦會展活動的參考。（政府新聞網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799117_1_20250406161237.jpg&q=80)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798861-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798861-20250403.htm)
-
----
-
-# 美國2月貿易逆差約1227億美元　對華逆差收窄
-
-![美國2月貿易逆差1226.6億美元，按月收窄6%，少過市場預期的1235億美元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798859_1_20250403213336.jpg&q=80)
-  
-
-美國商務部公布，美國2月貿易逆差1226.6億美元，按月收窄6%，少過市場預期的1235億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798859-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798859-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798859-20250403.htm)
 
 ---
