@@ -1,3 +1,27 @@
+# Red Bull's Verstappen wins Japanese GP from Norris
+
+![Max Verstappen celebrates the win on the podium at Suzuka, Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799114_1_20250406151250.jpg&q=90)
+  
+
+Four-time world champion Max Verstappen led from pole to chequered flag to win the Japanese Grand Prix on Sunday, his first victory of the 2025 season, with McLaren's Lando Norris second.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799114-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799114-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799114-20250406.htm)
+
+---
+
 # A&E fee changes boost medical protection: minister
 
 ![Lo Chung-mau says the changes can be likened to the government giving everyone in Hong Kong free medical insurance. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799110_1_20250406140106.jpg&q=90)
@@ -1412,29 +1436,5 @@ A transport worker was on Thursday convicted of rioting in the Yuen Long clashes
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798783-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798783-20250403.htm)
-
----
-
-# 'Don't go with top-bidder rule for N Metropolis'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798786_1_20250403132127.jpg&q=90)
-  
-
-A DAB lawmaker on Thursday suggested the government take into account the financial stability of developers when it comes to decisions on tender awards for Northern Metropolis projects to the highest bidders.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798786-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798786-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798786-20250403.htm)
 
 ---
