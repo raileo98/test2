@@ -1,3 +1,27 @@
+# 美股3大指數期貨跌4%至近5%
+
+![美股3大指數期貨較早時跌4%至近5%，當中以納指表現較差。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799160_1_20250407060535.jpg&q=90)
+  
+
+市場憂慮貿易衝突升級加劇及引發經濟衰退，美股期貨延續上周跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799160-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799160-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799160-20250407.htm)
+
+---
+
 # 市場本周聚焦關稅影響及美國CPI
 
 ![美股上周急挫，市場關注各國如何回應美國的關稅措施及相關影響。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799158_1_20250407053210.jpg&q=60)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798866-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798866-20250403.htm)
-
----
-
-# ISM：美國3月非製造業指數跌至50.8　創9個月最低
-
-![美國供應管理協會（ISM）3月非製造業指數為50.8，跌至9月個月以來最低，低過市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798864_1_20250403231006.jpg&q=85)
-  
-
-美國供應管理協會（ISM）3月非製造業指數為50.8，跌至9月個月以來最低，低過市場預期的53，及2月的53.5。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798864-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798864-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798864-20250403.htm)
 
 ---

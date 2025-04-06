@@ -1,3 +1,27 @@
+# Israeli forces kill US-Palestinian teen, says mayor
+
+![The boy was shot dead in the West Bank town of Turmus Ayya. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799159_1_20250407060637.jpg&q=80)
+  
+
+A Palestinian official told AFP that Israeli forces shot dead a teenager holding US citizenship in the occupied West Bank on Sunday, while the Israeli military said it had killed a "terrorist".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm)
+
+---
+
 # Le Pen invokes MLK ahead of far-right Paris rally
 
 ![Protesters gathered during a rally in Paris in support of President of Rassemblement National parliamentary group Marine Le Pen, after she was convicted. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799140_1_20250406211858.jpg&q=90)
@@ -1411,29 +1435,5 @@ Any sanctions imposed on public officers are "insults" to the rule of law, the h
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798828-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798828-20250403.htm)
-
----
-
-# Boxing coach charged over Fo Tan murder
-
-![A Sha Tin magistrate adjourned the case until May 29. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798826_1_20250403175151.jpg&q=90)
-  
-
-A boxing coach charged with murdering a man in Fo Tan last month appeared in Shatin Court on Thursday, after he was arrested in Thailand and sent back to Hong Kong this week.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798826-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798826-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798826-20250403.htm)
 
 ---

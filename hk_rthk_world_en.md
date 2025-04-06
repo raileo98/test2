@@ -1,3 +1,27 @@
+# Israeli forces kill US-Palestinian teen, says mayor
+
+![The boy was shot dead in the West Bank town of Turmus Ayya. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799159_1_20250407060637.jpg&q=80)
+  
+
+A Palestinian official told AFP that Israeli forces shot dead a teenager holding US citizenship in the occupied West Bank on Sunday, while the Israeli military said it had killed a "terrorist".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm)
+
+---
+
 # Le Pen invokes MLK ahead of far-right Paris rally
 
 ![Protesters gathered during a rally in Paris in support of President of Rassemblement National parliamentary group Marine Le Pen, after she was convicted. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799140_1_20250406211858.jpg&q=90)
@@ -1411,29 +1435,5 @@ Nasa astronauts Butch Wilmore and Suni Williams said on Monday that they hold th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm)
-
----
-
-# Trump task force to review Harvard's funding
-
-![Harvard University in Cambridge, Massachusetts. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798375_1_20250401085409.jpg&q=65)
-  
-
-Harvard University has become the latest target in the Trump administration’s approach to fight campus anti-semitism, with the announcement of a new “comprehensive review” that could jeopardise billions of dollars for the Ivy League college.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm)
 
 ---
