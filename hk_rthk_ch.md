@@ -1,3 +1,27 @@
+# 入境處：截至下午4時　逾27.7萬人次經各口岸入境
+
+![截至下午4時，逾27.7萬人次經各口岸入境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799129_1_20250406182555.jpg&q=90)
+  
+
+清明節三日長周末假期最後一日，入境處表示，截至下午4時，有27萬7000多人次經各口岸入境，另有25萬6000多人次出境，總出入境人數合計有53萬4000多人次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm)
+
+---
+
 # 緬甸地震災區天氣炎熱　特區救援隊備多種藥物確保適合出勤
 
 ![醫護團隊分別講述當地救援工作及如何應對高溫天氣。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799128_1_20250406181110.jpg&q=90)
@@ -48,6 +72,7 @@
 
 # 人民日報文章指美國濫施關稅衝擊全球經濟秩序穩定　中國堅決反對
 
+![文章指美國有關做法是以關稅手段顛覆現有國際經貿秩序。（人民網網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799125_1_20250406182535.jpg&q=90)
   
 
 《人民日報》刊登文章指出，近期美國以各種借口宣布對包括中國在內的所有交易伙伴濫施關稅，嚴重侵犯各國正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序穩定，中國政府對此強烈譴責，堅決反對。
@@ -71,6 +96,7 @@
 
 # 美國及越南商界促華盛頓推遲對越南商品徵收46%對等關稅
 
+![越南是很多西方國家企業在東南亞的主要生產基地。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799124_1_20250406182602.jpg&q=85)
   
 
 美國及越南商界向華盛頓方面請求推遲對越南商品徵收46%「對等關稅」，指出徵稅將損害商界及兩地商業關係。
@@ -1414,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm)
-
----
-
-# 房協9月起全面實施富戶政策　凌嘉勤︰已徵詢法律意見
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799048_1_20250405182834.jpg&q=85)
-  
-
-房協主席凌嘉勤說，今年9月起會分階段，向約2.5萬個未納入富戶政策規管的租戶發出新租約，如果不接受相關條款，就要遷出單位。他說未有評估可以收回多少個單位，但相信數量不多。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799048-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799048-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799048-20250405.htm)
 
 ---

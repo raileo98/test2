@@ -1,5 +1,30 @@
+# 入境處：截至下午4時　逾27.7萬人次經各口岸入境
+
+![截至下午4時，逾27.7萬人次經各口岸入境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799129_1_20250406182555.jpg&q=90)
+  
+
+清明節三日長周末假期最後一日，入境處表示，截至下午4時，有27萬7000多人次經各口岸入境，另有25萬6000多人次出境，總出入境人數合計有53萬4000多人次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm)
+
+---
+
 # 人民日報文章指美國濫施關稅衝擊全球經濟秩序穩定　中國堅決反對
 
+![文章指美國有關做法是以關稅手段顛覆現有國際經貿秩序。（人民網網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799125_1_20250406182535.jpg&q=90)
   
 
 《人民日報》刊登文章指出，近期美國以各種借口宣布對包括中國在內的所有交易伙伴濫施關稅，嚴重侵犯各國正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序穩定，中國政府對此強烈譴責，堅決反對。
@@ -1415,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798778-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798778-20250403.htm)
-
----
-
-# 國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜
-
-![國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798764_2_20250403115547.jpg&q=90)
-  
-
-國家安全機關偵破一宗菲律賓間諜案件，拘捕3名涉嫌在中國境內從事間諜活動的菲律賓人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm)
 
 ---
