@@ -1,3 +1,27 @@
+# HK will calmly ride out tariffs storm, says FS
+
+![Paul Chan said the SAR has become less reliant on the United States when it comes to exports. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799108_1_20250406125334.jpg&q=70)
+  
+
+Hong Kong will calmly face any problems caused by US tariffs with the government providing support to local firms, Financial Secretary Paul Chan said on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799108-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799108-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799108-20250406.htm)
+
+---
+
 # 'Packaging reduction charter better than legislation'
 
 ![The Environmental Protection Department launched a 'Packaging Reduction Charter' on March 31. Photo courtesy of Information Services Department.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799098_1_20250406112620.jpg&q=90)
@@ -1411,29 +1435,5 @@ Kai Tak Sports Park will "learn a good lesson" from hosting the Hong Kong Sevens
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm)
-
----
-
-# SAR rescue team heads for quake-stricken Mandalay
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798216_1_20250331104806.jpg&q=90)
-  
-
-An SAR government rescue team is on its way to quake-hit Mandalay in Myanmar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm)
 
 ---

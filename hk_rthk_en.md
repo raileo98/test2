@@ -1,3 +1,27 @@
+# HK will calmly ride out tariffs storm, says FS
+
+![Paul Chan said the SAR has become less reliant on the United States when it comes to exports. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799108_1_20250406125334.jpg&q=70)
+  
+
+Hong Kong will calmly face any problems caused by US tariffs with the government providing support to local firms, Financial Secretary Paul Chan said on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799108-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799108-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799108-20250406.htm)
+
+---
+
 # 'Packaging reduction charter better than legislation'
 
 ![The Environmental Protection Department launched a 'Packaging Reduction Charter' on March 31. Photo courtesy of Information Services Department.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799098_1_20250406112620.jpg&q=90)
@@ -1412,29 +1436,5 @@ Japan slammed as "extremely regrettable" US President Donald Trump's sweeping ne
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm)
-
----
-
-# Chinese rescuers fill vacuum US cuts leave in Myanmar
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798770_1_20250403120430.jpg&q=75)
-  
-
-After a 7.7 magnitude earthquake shook Myanmar on Friday, killing more than 2,800 people, international rescuers rushed into the devastated Southeast Asian country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm)
 
 ---
