@@ -1,3 +1,26 @@
+# 九龍城有私家車撞到路邊鐵欄及指示牌
+
+  
+
+九龍城早上近11時發生交通意外，一輛私家車駛至賈炳達道128號附近時，撞向路邊鐵欄和指示牌，一名女途人受傷倒地，車上兩名女乘客亦報稱頸痛。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799100-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799100-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799100-20250406.htm)
+
+---
+
 # 陳茂波堅決反對美國加徵關稅　本港保持警惕作好準備應對
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm)
-
----
-
-# 內地商會促美方糾正損人不利己單邊霸凌
-
-![內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799020_1_20250405132447.jpg&q=75)
-  
-
-內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。中國醫藥保健品進出口商會表示，全球民眾健康權益不應受到不公平貿易措施侵害，堅決反對美方單邊貿易霸凌行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm)
 
 ---

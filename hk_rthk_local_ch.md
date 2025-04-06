@@ -1,3 +1,26 @@
+# 九龍城有私家車撞到路邊鐵欄及指示牌
+
+  
+
+九龍城早上近11時發生交通意外，一輛私家車駛至賈炳達道128號附近時，撞向路邊鐵欄和指示牌，一名女途人受傷倒地，車上兩名女乘客亦報稱頸痛。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799100-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799100-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799100-20250406.htm)
+
+---
+
 # 陳茂波堅決反對美國加徵關稅　本港保持警惕作好準備應對
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798911-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798911-20250404.htm)
-
----
-
-# 區議員憂南大嶼生態景點交通難負荷　促增設停車位
-
-![劉展鵬擔心交通難以負荷，建議將改善陸路交通及增設停車位放入發展計劃。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798908_1_20250404103107.jpg&q=90)
-  
-
-發展局就前南丫島石礦場用地、南大嶼生態康樂走廊，以及尖鼻咀及白泥三個生態旅遊發展項目，邀請發展商在三個月內提交意向書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm)
 
 ---
