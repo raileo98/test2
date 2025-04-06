@@ -1,3 +1,27 @@
+# 警方太子道東截查私家車檢獲毒品拘捕3人
+
+![警方在東九龍打擊酒後駕駛。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799162_1_20250407065413.jpg&q=85)
+  
+
+警方在東九龍拘捕3人，檢獲少量懷疑可卡因。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799162-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799162-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799162-20250407.htm)
+
+---
+
 # 入境處指截至晚上9時　逾55萬人次經各口岸入境
 
 ![入境處表示，截至晚上9時，有超過55萬人次經各口岸入境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799144_1_20250406223802.jpg&q=75)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm)
-
----
-
-# 消防暫收31宗山火報告　無人受傷
-
-![截至下午5時，消防處收到31宗山火報告，無人受傷或被困。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798951_1_20250404184451.jpg&q=90)
-  
-
-清明節多區出現山火，截至下午5時，消防處共收到31宗山火報告，無人受傷或被困。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798951-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798951-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798951-20250404.htm)
 
 ---

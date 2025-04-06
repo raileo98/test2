@@ -1,3 +1,27 @@
+# 警方太子道東截查私家車檢獲毒品拘捕3人
+
+![警方在東九龍打擊酒後駕駛。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799162_1_20250407065413.jpg&q=85)
+  
+
+警方在東九龍拘捕3人，檢獲少量懷疑可卡因。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799162-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799162-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799162-20250407.htm)
+
+---
+
 # 數據顯示過去3日假期10大屋苑成交不足20宗
 
 ![代理數據顯示，過去3日假期10大屋苑成交不足20宗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799161_1_20250407061814.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm)
-
----
-
-# ​投資推廣署助理署長到中東推廣本港商機
-
-![吳國才表示，在環球局勢日趨複雜及地緣政治不明朗的情況下，中東國家正積極進行多元化投資。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799087_1_20250406093629.jpg&q=90)
-  
-
-​投資推廣署助理署長吳國才今日至4月10日出訪中東，主要到訪沙特阿拉伯和阿聯酋，加深與這些蓬勃市場的經濟聯繫，並宣傳香港是中東企業開拓內地和亞太地區市場的首要門戶。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm)
 
 ---
