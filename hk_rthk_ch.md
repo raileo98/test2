@@ -1,3 +1,23 @@
+# 入境處指截至晚上9時　逾55萬人次經各口岸入境
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm)
+
+---
+
 # Coldplay演唱會　觀眾可攜不超600毫升塑膠樽或杯進場
 
 ![英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會。（Cityline 網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799143_1_20250406221634.jpg&q=90)

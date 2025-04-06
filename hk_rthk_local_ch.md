@@ -1,3 +1,23 @@
+# 入境處指截至晚上9時　逾55萬人次經各口岸入境
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm)
+
+---
+
 # Coldplay演唱會　觀眾可攜不超600毫升塑膠樽或杯進場
 
 ![英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會。（Cityline 網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799143_1_20250406221634.jpg&q=90)
@@ -1414,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798951-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798951-20250404.htm)
-
----
-
-# 全運會保齡球香港甄選賽明日起舉行
-
-![香港代表隊的甄選賽將會在明天、後天及下星期六，在啟德體育園啟德一號零售館的保齡球中心舉行。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798947_1_20250404172623.jpg&q=90)
-  
-
-第十五屆全運會年底舉行，首次將保齡球列為群眾賽事項目，並將在香港舉行。香港代表隊的甄選賽將會在明天、後天及下星期六，在啟德體育園啟德一號零售館的保齡球中心舉行，選出5男5女代表香港出賽。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm)
 
 ---
