@@ -1,3 +1,27 @@
+# 市場本周聚焦關稅影響及美國CPI
+
+![美股上周急挫，市場關注各國如何回應美國的關稅措施及相關影響。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799158_1_20250407053210.jpg&q=60)
+  
+
+美股上周急挫，美國對貿易夥伴徵收對等關稅，中國採取反制措施，市場憂慮貿易衝突升級及引發經濟衰退。道瓊斯指數上周累計急跌7.9%，納斯達克指數跌10%，標普500指數跌9.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799158-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799158-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799158-20250407.htm)
+
+---
+
 # 美國及越南商界促華盛頓推遲對越南商品徵收46%對等關稅
 
 ![越南是很多西方國家企業在東南亞的主要生產基地。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799124_1_20250406182602.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798864-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798864-20250403.htm)
-
----
-
-# 道指初段跌逾千點　納指跌逾4%　大型科技股跌幅顯著
-
-![道瓊斯指數較早時報41074點，跌1150點，跌幅2.73%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798861_1_20250403214114.jpg&q=90)
-  
-
-美股在開市初段下跌，3大指數跌幅介乎近3%至逾4%。美國宣布對多個國家及地區徵收對等關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798861-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798861-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798861-20250403.htm)
 
 ---

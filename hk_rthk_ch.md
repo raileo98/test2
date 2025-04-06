@@ -1,3 +1,27 @@
+# 市場本周聚焦關稅影響及美國CPI
+
+![美股上周急挫，市場關注各國如何回應美國的關稅措施及相關影響。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799158_1_20250407053210.jpg&q=60)
+  
+
+美股上周急挫，美國對貿易夥伴徵收對等關稅，中國採取反制措施，市場憂慮貿易衝突升級及引發經濟衰退。道瓊斯指數上周累計急跌7.9%，納斯達克指數跌10%，標普500指數跌9.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799158-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799158-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799158-20250407.htm)
+
+---
+
 # 也門胡塞武裝：美軍空襲薩那致4死16傷
 
 ![美軍周六空襲也門北部城市薩達，有建築物受損。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799157_1_20250407051701.jpg&q=65)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799084-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799084-20250406.htm)
-
----
-
-# 美國宣布吊銷所有南蘇丹護照持有者簽證　並限制進一步簽發簽證
-
-![美國決定吊銷所有南蘇丹護照持有者的簽證，並限制進一步簽發簽證。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799083_1_20250406091446.jpg&q=90)
-  
-
-美國國務卿魯比奧宣布，由於南蘇丹過渡政府未能及時接受遣返公民，美國決定吊銷所有南蘇丹護照持有者的簽證，並限制進一步簽發簽證，以防止他們進入美國，措施立即生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799083-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799083-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799083-20250406.htm)
 
 ---
