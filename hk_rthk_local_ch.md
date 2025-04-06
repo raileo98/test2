@@ -1,3 +1,26 @@
+# Coldplay啟德演唱會下周展開　運輸署籲過境旅客預早計劃
+
+  
+
+因應英國樂隊Coldplay將於本月在啟德體育園主場館舉行巡迴演唱會，運輸署表示，本月8、9、11及12日晚上將於啟德體育園實施特別交通及運輸安排，以便利觀眾往返，同時提醒過境旅客預早計劃行程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799106-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799106-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799106-20250406.htm)
+
+---
+
 # 鍾麗玲稱部分大機構有涉AI使用管治架構　較少中小企做相關工作
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm)
-
----
-
-# 羅淑佩稱夏寶龍特別關注香港要善用海島及海岸旅遊資源推陳出新
-
-![羅淑佩總結訪京行程，指港澳辦主任夏寶龍特別關注香港要在旅遊方面善用海島及海岸資源，推陳出新。（黃維波攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798918_1_20250404123228.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩總結訪京行程，指港澳辦主任夏寶龍特別關注香港要在旅遊方面善用海島及海岸資源，推陳出新。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm)
 
 ---

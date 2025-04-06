@@ -1,3 +1,26 @@
+# Coldplay啟德演唱會下周展開　運輸署籲過境旅客預早計劃
+
+  
+
+因應英國樂隊Coldplay將於本月在啟德體育園主場館舉行巡迴演唱會，運輸署表示，本月8、9、11及12日晚上將於啟德體育園實施特別交通及運輸安排，以便利觀眾往返，同時提醒過境旅客預早計劃行程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799106-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799106-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799106-20250406.htm)
+
+---
+
 # 中國海警艦艇驅離一艘非法進入釣魚島領海日本漁船
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799028-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799028-20250405.htm)
-
----
-
-# 旺角失蹤86歲女子在尖沙咀梳士巴利道被尋回
-
-![86歲女子日前離開大角咀道住所後便告失蹤，家人向警方報案，現已尋回。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799026_1_20250405125846.jpg&q=60)
-  
-
-日前在旺角失蹤的86歲女子梁玉蘭女子已被尋回。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799026-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799026-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799026-20250405.htm)
 
 ---
