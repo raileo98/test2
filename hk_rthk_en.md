@@ -3,7 +3,7 @@
 ![The boy was shot dead in the West Bank town of Turmus Ayya. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799159_1_20250407060637.jpg&q=80)
   
 
-A Palestinian official told AFP that Israeli forces shot dead a teenager holding US citizenship in the occupied West Bank on Sunday, while the Israeli military said it had killed a "terrorist".
+A Palestinian official told AFP that Israeli forces shot dead a teenager holding US citizenship in the occupied West Bank Sunday, while the Israeli military said it had killed a "terrorist" who threw rocks at cars.
 
   
 
