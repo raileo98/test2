@@ -1,3 +1,26 @@
+# 英超利物浦2:3富咸　曼聯0:0曼城
+
+  
+
+英格蘭超級足球聯賽，榜首的利物浦失分，作客2:3不敵富咸，今季聯賽第二次輸波。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799164-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799164-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799164-20250407.htm)
+
+---
+
 # 日圓兌美元升逾1%　油價跌3%或以上
 
 ![日圓兌美元升逾1%，較早時報145.09日圓。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799163_1_20250407070022.jpg&q=80)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799092-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799092-20250406.htm)
-
----
-
-# 鍾麗玲稱私隱公署有權介入AI事故　惟非「下下要咬人」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799091_1_20250406103129.jpg&q=90)
-  
-
-私隱專員鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識，一些機構更有内部管治架構檢視如何使用人工智能，並從各個部門派人緩減使用AI的風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm)
 
 ---
