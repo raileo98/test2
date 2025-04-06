@@ -118,6 +118,7 @@
 
 # 以色列承認上月加沙15名緊急救援人員被殺事件中以軍犯錯
 
+![救援隊在其中一名遇害救援人員身上找到一部手機，內存這段長5分鐘的錄影片段。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799090_1_20250406114418.jpg&q=90)
   
 
 以色列承認上月於加沙南部有15名緊急救援人員被殺的事件中，以軍士兵犯錯，但強調最少6名死者與巴勒斯坦武裝組織哈馬斯有關。
@@ -165,7 +166,7 @@
 
 # 鍾麗玲稱私隱公署有權介入AI事故　惟非「下下要咬人」
 
-![鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799091_1_20250406103129.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799091_1_20250406103129.jpg&q=90)
   
 
 私隱專員鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識，一些機構更有内部管治架構檢視如何使用人工智能，並從各個部門派人緩減使用AI的風險。
@@ -261,6 +262,7 @@
 
 # 美軍被指空襲也門城市薩達　造成2人死亡
 
+![也門當局指美軍空襲薩達，造成2人死亡、4人受傷。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799084_1_20250406114458.jpg&q=90)
   
 
 也門當局指美軍空襲也門城市薩達，造成2人死亡、4人受傷。

@@ -1,9 +1,9 @@
-# Trump tells Americans to 'hold tough'
+# Trump tells Americans to 'hang tough'
 
 ![Alarm about the fallout from US President Donald Trump's April 2 tariff announcement has gripped financial markets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799086_1_20250406094021.jpg&q=90)
   
 
-Donald Trump told Americans on Saturday to “hold tough” in the face of economic turmoil caused by sweeping tariffs introduced on April 2.
+Donald Trump told Americans on Saturday to “hang tough” in the face of economic turmoil caused by sweeping tariffs introduced on April 2.
 
   
 
