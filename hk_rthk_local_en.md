@@ -1,3 +1,27 @@
+# Coldplay fans urged to plan journeys to Kai Tak
+
+![The government said there will be special transport arrangements for the Coldplay concerts this week. Image from Coldplay's social media.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799115_1_20250406151732.jpg&q=90)
+  
+
+The Transport Department on Sunday called on people coming to Hong Kong to see the band Coldplay this week to plan their journeys in advance.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm)
+
+---
+
 # A&E fee changes boost medical protection: minister
 
 ![Lo Chung-mau says the changes can be likened to the government giving everyone in Hong Kong free medical insurance. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799110_1_20250406140106.jpg&q=90)
@@ -1411,29 +1435,5 @@ The City University of Hong Kong (CityU) and the University of Cambridge signed 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798243-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798243-20250331.htm)
-
----
-
-# 'Design, build, run model possible for new link to SZ'
-
-![The government is hoping that a cross-border railway link between Hung Shui Kiu and Qianhai will become operational in 2035. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798240_1_20250331131812.jpg&q=80)
-  
-
-The government is looking into the possibility of having a single contractor design, build and operate a planned cross-border railway in the northwestern New Territories and says officials will start gauging developers' interest later this year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm)
 
 ---

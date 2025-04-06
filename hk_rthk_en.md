@@ -1,3 +1,27 @@
+# Coldplay fans urged to plan journeys to Kai Tak
+
+![The government said there will be special transport arrangements for the Coldplay concerts this week. Image from Coldplay's social media.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799115_1_20250406151732.jpg&q=90)
+  
+
+The Transport Department on Sunday called on people coming to Hong Kong to see the band Coldplay this week to plan their journeys in advance.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm)
+
+---
+
 # Red Bull's Verstappen wins Japanese GP from Norris
 
 ![Max Verstappen celebrates the win on the podium at Suzuka, Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799114_1_20250406151250.jpg&q=90)
@@ -1412,29 +1436,5 @@ The latest search for Malaysia Airlines flight MH370 has been suspended as it is
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm)
-
----
-
-# Man convicted of Yuen Long rioting after retrial
-
-![A District Court judge says the defendant took part in "an indiscriminate attack" inside Yuen Long MTR station. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798783_1_20250403125539.jpg&q=90)
-  
-
-A transport worker was on Thursday convicted of rioting in the Yuen Long clashes in 2019 following a retrial.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798783-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798783-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798783-20250403.htm)
 
 ---
