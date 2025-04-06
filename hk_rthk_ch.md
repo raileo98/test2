@@ -1,4 +1,4 @@
-# 日圓兌美元升逾1%　油價3%或以上
+# 日圓兌美元升逾1%　油價跌3%或以上
 
 ![日圓兌美元升逾1%，較早時報145.09日圓。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799163_1_20250407070022.jpg&q=80)
   
