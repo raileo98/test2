@@ -1,3 +1,74 @@
+# 鍾麗玲稱私隱公署有權介入AI事故　惟非「下下要咬人」
+
+  
+
+私隱專員鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識，一些機構更有内部管制架構檢視如何使用人工智能，並從各個部門派人緩減使用AI的風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm)
+
+---
+
+# 鍾麗玲冀制定指引有助企業釋放AI最大威力
+
+![鍾麗玲期望制定內部政策，讓員工能更安全使用，釋放AI最大威力。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799088_1_20250406102032.jpg&q=90)
+  
+
+個人資料私隱專員公署日前公布指引，協助機構制定使用生成式人工智能的內部政策。私隱專員鍾麗玲表示，留意到生成式AI越來越普及，很多人在老闆未必知道的情況下使用，期望清單協助企業制定內部政策，讓員工能更安全使用，釋放AI最大威力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm)
+
+---
+
+# ​投資推廣署助理署長到中東推廣本港商機
+
+![吳國才表示，在環球局勢日趨複雜及地緣政治不明朗的情況下，中東國家正積極進行多元化投資。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799087_1_20250406093629.jpg&q=90)
+  
+
+​投資推廣署助理署長吳國才今日至4月10日出訪中東，主要到訪沙特阿拉伯和阿聯酋，加深與這些蓬勃市場的經濟聯繫，並宣傳香港是中東企業開拓內地和亞太地區市場的首要門戶。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm)
+
+---
+
 # 以色列有集會呼籲結束衝突　巴勒斯坦有示威譴責以軍襲擊醫護
 
   
@@ -46,6 +117,7 @@
 
 # 美國宣布吊銷所有南蘇丹護照持有者簽證　並限制進一步簽發簽證
 
+![美國決定吊銷所有南蘇丹護照持有者的簽證，並限制進一步簽發簽證。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799083_1_20250406091446.jpg&q=90)
   
 
 美國國務卿魯比奧宣布，由於南蘇丹過渡政府未能及時接受遣返公民，美國決定吊銷所有南蘇丹護照持有者的簽證，並限制進一步簽發簽證，以防止他們進入美國，措施立即生效。
@@ -1362,80 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm)
-
----
-
-# 南韓總統辦公室15名高級幕僚呈辭被駁回　總理稱避免治國空白期
-
-![韓悳洙駁回總統辦公室15名高級幕僚提交的辭呈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799009_1_20250405095539.jpg&q=90)
-  
-
-南韓總理辦公室表示，代行總統職務的總理韓悳洙，昨日駁回總統辦公室15名高級幕僚提交的辭呈。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799009-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799009-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799009-20250405.htm)
-
----
-
-# 內地賞花熱潮帶動經濟　西藏林芝「桃花第一村」花海改善村民生活
-
-![西藏巴宜區嘎拉村被譽為「桃花第一村」，種植超過1250棵野生桃樹。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_1_20250405092358.jpg&q=15)
-![不少北京居民及遊客到訪玉淵潭公園打卡留念。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_2_20250405092358.jpg&q=35)
-![玉淵潭公園是北京著名賞櫻勝地，目前正值櫻花盛開季節。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_3_20250405092358.jpg&q=55)
-![園區商店售賣多款以櫻花為主題的文創產品，包括磁石貼及公仔等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_4_20250405122742.jpg&q=90)
-  
-
-踏入春季，全國多個城市正值花期，各地推動賞花經濟。在北京，賞櫻熱點之一的玉淵潭公園，吸引不少民眾及遊客賞花打卡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799006-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799006-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799006-20250405.htm)
-
----
-
-# 《華盛頓郵報》：美國國稅局將裁減2萬職位　佔員工總數四分一
-
-![國稅局早前已流失多名高級管理層及數千名員工，包括負責稅務審計的專員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799005_1_20250405090311.jpg&q=70)
-  
-
-《華盛頓郵報》報道，美國國稅局將大規模裁員，預計裁減2萬個工作崗位，佔國稅局員工總數四分之一。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm)
 
 ---

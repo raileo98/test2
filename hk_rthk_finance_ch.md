@@ -1,3 +1,74 @@
+# 鍾麗玲稱私隱公署有權介入AI事故　惟非「下下要咬人」
+
+  
+
+私隱專員鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識，一些機構更有内部管制架構檢視如何使用人工智能，並從各個部門派人緩減使用AI的風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm)
+
+---
+
+# 鍾麗玲冀制定指引有助企業釋放AI最大威力
+
+![鍾麗玲期望制定內部政策，讓員工能更安全使用，釋放AI最大威力。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799088_1_20250406102032.jpg&q=90)
+  
+
+個人資料私隱專員公署日前公布指引，協助機構制定使用生成式人工智能的內部政策。私隱專員鍾麗玲表示，留意到生成式AI越來越普及，很多人在老闆未必知道的情況下使用，期望清單協助企業制定內部政策，讓員工能更安全使用，釋放AI最大威力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm)
+
+---
+
+# ​投資推廣署助理署長到中東推廣本港商機
+
+![吳國才表示，在環球局勢日趨複雜及地緣政治不明朗的情況下，中東國家正積極進行多元化投資。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799087_1_20250406093629.jpg&q=90)
+  
+
+​投資推廣署助理署長吳國才今日至4月10日出訪中東，主要到訪沙特阿拉伯和阿聯酋，加深與這些蓬勃市場的經濟聯繫，並宣傳香港是中東企業開拓內地和亞太地區市場的首要門戶。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm)
+
+---
+
 # 陳茂波：應視北都為產業導向發展而非房地產開發　投資回報期較長
 
 ![陳茂波表示，不能視北部都會區發展為房地產開發概念，應視為產業導向發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799051_1_20250405181309.jpg&q=90)
@@ -1363,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798857-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798857-20250403.htm)
-
----
-
-# 國際油價急挫逾6%　OPEC+宣布加速增產
-
-![倫敦布蘭特期油較早時報每桶70.44美元，跌幅6%。紐約期油報67.09美元，跌逾6.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798853_1_20250403204609.jpg&q=90)
-  
-
-石油輸出國組織及其盟友（OPEC+）同意推進增產計劃，5月將石油日產量增加41.1萬桶，增幅遠高過原訂計劃的13.5萬桶。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798853-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798853-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798853-20250403.htm)
-
----
-
-# 滬深京交易所發布程序化交易管理實施細則　7月7日起實施
-
-![上海、深圳和北京證券交易所發布程序化交易管理實施細則，對程序化交易實行實時監控，將於7月7日起實施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798843_1_20250403192505.jpg&q=90)
-  
-
-上海、深圳和北京證券交易所發布程序化交易管理實施細則，對程序化交易實行實時監控，重點監控瞬時申報速率異常、頻繁瞬時撤單、頻繁拉抬打壓、短時間大額成交等異常交易行為，細則將於7月7日起實施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798843-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798843-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798843-20250403.htm)
-
----
-
-# 金管總局：保險機構應全部使用自有資金開展重大股權投資
-
-![國家金融監督管理總局表示，保險機構應當全部使用自有資金開展重大股權投資，防止無序擴張。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798845_1_20250403193211.jpg&q=80)
-  
-
-國家金融監督管理總局表示，保險機構應當全部使用自有資金開展重大股權投資，要審慎開展，並加強對股權投資的統籌管理，防止無序擴張。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm)
 
 ---

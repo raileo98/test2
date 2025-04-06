@@ -1,3 +1,27 @@
+# Trump tells Americans to 'hold tough'
+
+![Alarm about the fallout from US President Donald Trump's April 2 tariff announcement has gripped financial markets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799086_1_20250406094021.jpg&q=90)
+  
+
+Donald Trump told Americans on Saturday to “hold tough” in the face of economic turmoil caused by sweeping tariffs introduced on April 2.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm)
+
+---
+
 # Elon Musk calls for a US-Europe free trade zone
 
 ![The billionaire also said he favoured more freedom for people to move between Europe and North America for work. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799077_1_20250406044926.jpg&q=90)
@@ -1411,29 +1435,5 @@ The Kremlin on Monday said that President Vladimir Putin was still "open" to spe
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm)
-
----
-
-# Tokyo updates toll for next potential 'megaquake'
-
-![The Fukushima nuclear disaster was one of three 2011 chain of events that changed the way that Tokyo traditionally regarded the 'megaquake' scenario. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798306_1_20250331182035.jpg&q=90)
-  
-
-A "megaquake" and subsequent tsunami could cause up to 298,000 deaths in Japan and damage costing up to US$2 trillion, the government said on Monday in a new estimate.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm)
 
 ---

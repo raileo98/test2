@@ -1,3 +1,27 @@
+# Jaguar Land Rover to pause UK car shipments to US
+
+![Britain's car industry, which employs 200,000 people directly, is highly exposed to the new US tariffs. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799089_1_20250406095114.jpg&q=90)
+  
+
+Jaguar Land Rover (JLR) will pause shipments of its UK-made cars to the United States for a month, it said on Saturday, as it considers how to mitigate the cost of President Donald Trump's 25 percent tariff.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799089-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799089-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799089-20250406.htm)
+
+---
+
 # Elon Musk calls for a US-Europe free trade zone
 
 ![The billionaire also said he favoured more freedom for people to move between Europe and North America for work. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799077_1_20250406044926.jpg&q=90)
@@ -1414,29 +1438,5 @@ Shenzhen-based carmaker BYD saw a surge in revenue last year, a stock filing sho
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm)
-
----
-
-# HK ends up on mixed day for equities
-
-![The benchmark Hang Seng Index was up 0.91 percent to close at 23,905.56. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797176_1_20250324171443.jpg&q=80)
-  
-
-Hong Kong's stock market ended higher on Monday with the benchmark Hang Seng Index up 0.91 percent to close at 23,905.56 on a mixed day for equity markets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm)
 
 ---

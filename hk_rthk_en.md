@@ -1,3 +1,51 @@
+# Jaguar Land Rover to pause UK car shipments to US
+
+![Britain's car industry, which employs 200,000 people directly, is highly exposed to the new US tariffs. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799089_1_20250406095114.jpg&q=90)
+  
+
+Jaguar Land Rover (JLR) will pause shipments of its UK-made cars to the United States for a month, it said on Saturday, as it considers how to mitigate the cost of President Donald Trump's 25 percent tariff.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799089-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799089-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799089-20250406.htm)
+
+---
+
+# Trump tells Americans to 'hold tough'
+
+![Alarm about the fallout from US President Donald Trump's April 2 tariff announcement has gripped financial markets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799086_1_20250406094021.jpg&q=90)
+  
+
+Donald Trump told Americans on Saturday to “hold tough” in the face of economic turmoil caused by sweeping tariffs introduced on April 2.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm)
+
+---
+
 # Nick Rockett, at 33-1, wins the Grand National
 
 ![Jockey Patrick Mullins reacts as he passes the finish line. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799082_1_20250406074831.jpg&q=90)
@@ -1389,53 +1437,5 @@ A series of traffic accidents disrupted early morning commutes on Thursday, with
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798758-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798758-20250403.htm)
-
----
-
-# China urges US to 'immediately cancel' new tariffs
-
-![The Commerce Ministry has called for Washington to "immediately cancel" sweeping new tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798759_1_20250403104243.jpg&q=80)
-  
-
-Beijing on Thursday said it "firmly opposes" sweeping new US tariffs on its exports, vowing "countermeasures to safeguard its own rights and interests".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm)
-
----
-
-# Hong Kong stocks fall more than 2pc on Trump tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798744_1_20250403092553.jpg&q=75)
-  
-
-Hong Kong stocks sank more than two percent in opening trades on Thursday after US President Donald Trump announced sweeping tariffs against trade partners, including 34 percent on imports from China.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm)
 
 ---

@@ -1,3 +1,74 @@
+# 鍾麗玲稱私隱公署有權介入AI事故　惟非「下下要咬人」
+
+  
+
+私隱專員鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識，一些機構更有内部管制架構檢視如何使用人工智能，並從各個部門派人緩減使用AI的風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799091-20250406.htm)
+
+---
+
+# 鍾麗玲冀制定指引有助企業釋放AI最大威力
+
+![鍾麗玲期望制定內部政策，讓員工能更安全使用，釋放AI最大威力。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799088_1_20250406102032.jpg&q=90)
+  
+
+個人資料私隱專員公署日前公布指引，協助機構制定使用生成式人工智能的內部政策。私隱專員鍾麗玲表示，留意到生成式AI越來越普及，很多人在老闆未必知道的情況下使用，期望清單協助企業制定內部政策，讓員工能更安全使用，釋放AI最大威力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799088-20250406.htm)
+
+---
+
+# ​投資推廣署助理署長到中東推廣本港商機
+
+![吳國才表示，在環球局勢日趨複雜及地緣政治不明朗的情況下，中東國家正積極進行多元化投資。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799087_1_20250406093629.jpg&q=90)
+  
+
+​投資推廣署助理署長吳國才今日至4月10日出訪中東，主要到訪沙特阿拉伯和阿聯酋，加深與這些蓬勃市場的經濟聯繫，並宣傳香港是中東企業開拓內地和亞太地區市場的首要門戶。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm)
+
+---
+
 # 東京旅遊巴意外　入境處接獲一宗求助涉及一港人輕傷
 
 ![入境處表示，至今共接獲一宗相關求助，涉及一名港人受輕傷，毋須住院。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799066_1_20250406002004.jpg&q=85)
@@ -1367,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798863-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798863-20250403.htm)
-
----
-
-# 海關關長晤荷蘭官員冀加強雙方海關事務協作
-
-![海關關長陳子達（右）在海關總部大樓與荷蘭海關關長Nanette van Schelven（左）進行雙邊會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798860_1_20250403215627.jpg&q=90)
-  
-
-海關關長陳子達與訪港的荷蘭海關關長及荷蘭駐香港總領事於海關總部大樓會面，藉此增進雙方友好關係以及加強在海關事務上的協作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm)
-
----
-
-# 羅淑佩拜會國家文化和旅遊部及國家電影局
-
-![文化體育及旅遊局局長羅淑佩（左）繼續北京拜訪行程，拜會國家文化和旅遊部副部長高政（右）。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798858_1_20250403213512.jpg&q=85)
-  
-
-文化體育及旅遊局局長羅淑佩與代表團部分成員繼續北京行程，拜會國家文化和旅遊部及國家電影局。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm)
-
----
-
-# 抵港男旅客攜近5萬支未完稅香煙　判監7個月
-
-![涉案男子在西九龍裁判法院被判處監禁7個月5天。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798855_1_20250403211404.jpg&q=90)
-  
-
-一名入境男旅客因進口未完稅香煙以及未有向海關人員作出申報，以及進口另類吸煙產品，在西九龍裁判法院被判處監禁7個月5天。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798855-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798855-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798855-20250403.htm)
 
 ---
