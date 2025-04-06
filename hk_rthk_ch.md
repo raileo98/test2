@@ -1,3 +1,26 @@
+# 伊朗外長重申只能與美國間接談判
+
+  
+
+伊朗外阿拉格齊說，伊朗願意與美國談判，但只能以間接方式進行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799154-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799154-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799154-20250407.htm)
+
+---
+
 # 加沙媒體辦公室：以軍重啟戰事以來已有490名兒童被殺
 
 ![加沙地帶媒體辦公室說，自以軍重啟加沙戰事以來，已有490名兒童在襲擊中喪生。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799153_1_20250407024649.jpg&q=80)
@@ -1414,31 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799078-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799078-20250406.htm)
-
----
-
-# 美國多地有民眾示威　反對特朗普政策
-
-![組織者估計超過2萬人參加在華盛頓國家廣場舉行的集會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799076_1_20250406035721.jpg&q=75)
-![示威者手持諷刺特朗普的標語。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799076_2_20250406062958.jpg&q=90)
-![在佛羅里達州棕櫚灘的示威中，有民眾帶同小狗抗議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799076_3_20250406070213.jpg&q=90)
-  
-
-美國全國多地有民眾示威，反對總統特朗普的政策，是特朗普1月再度入主白宮以來最大規模的抗議活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799076-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799076-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799076-20250406.htm)
 
 ---
