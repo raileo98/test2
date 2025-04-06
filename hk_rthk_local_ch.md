@@ -1,5 +1,7 @@
 # 港大醫學院與團體辦外傭免費體檢活動　逾百人參與
 
+![港大醫學院和中風研究組首次在醫學院校園，舉辦外傭免費健康檢查活動。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799120_1_20250406162418.jpg&q=85)
+![過百名外傭到場參加。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799120_2_20250406162418.jpg&q=85)
   
 
 港大醫學院和中風研究組首次在醫學院校園，舉辦外傭免費健康檢查活動，以提升外傭對中風的關注度和認識，從而積極預防並及早治療，過百名外傭到場參加。

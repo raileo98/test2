@@ -1,3 +1,27 @@
+# 南韓一架直升機在協助撲救山火期間墜毀　一名機師死亡
+
+![南韓近期山火頻頻，大量房屋及建築物損毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799121_1_20250406162748.jpg&q=90)
+  
+
+南韓一架滅火直升機在東南部城市大邱協助撲救山火期間墜毀，消防部門表示機上一名機師死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799121-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799121-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799121-20250406.htm)
+
+---
+
 # 德國發現疑似二戰遺留未爆炸彈散逾1萬5千人　列車服務受限
 
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798974-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798974-20250404.htm)
-
----
-
-# 劉兆佳指中方反制肯定不只是姿態　莊太量料或引發小股災
-
-![國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798972_1_20250404220059.jpg&q=80)
-  
-
-全國港澳研究會顧問劉兆佳分析，中方以組合拳方式反制美國，肯定不會只是姿態，形容一定要令對方感到痛苦。而香港亦要研究是否對美國進口貨品施加關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm)
 
 ---

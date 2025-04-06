@@ -1,5 +1,31 @@
+# 南韓一架直升機在協助撲救山火期間墜毀　一名機師死亡
+
+![南韓近期山火頻頻，大量房屋及建築物損毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799121_1_20250406162748.jpg&q=90)
+  
+
+南韓一架滅火直升機在東南部城市大邱協助撲救山火期間墜毀，消防部門表示機上一名機師死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799121-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799121-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799121-20250406.htm)
+
+---
+
 # 港大醫學院與團體辦外傭免費體檢活動　逾百人參與
 
+![港大醫學院和中風研究組首次在醫學院校園，舉辦外傭免費健康檢查活動。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799120_1_20250406162418.jpg&q=85)
+![過百名外傭到場參加。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799120_2_20250406162418.jpg&q=85)
   
 
 港大醫學院和中風研究組首次在醫學院校園，舉辦外傭免費健康檢查活動，以提升外傭對中風的關注度和認識，從而積極預防並及早治療，過百名外傭到場參加。
@@ -1413,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm)
-
----
-
-# 文憑試英文科卷三聆聽及綜合能力今開考　考評局指各試場運作暢順
-
-![文憑試英文科卷三聆聽及綜合能力考核今日開考。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799042_1_20250405165329.jpg&q=85)
-  
-
-文憑試英文科卷三聆聽及綜合能力考核今日開考。考評局表示，共有約5萬名考生於約430個一般試場及約680個特別試場應考，各試場學校的整體運作暢順。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799042-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799042-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799042-20250405.htm)
 
 ---
