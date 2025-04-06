@@ -1,3 +1,27 @@
+# 數據顯示過去3日假期10大屋苑成交不足20宗
+
+![代理數據顯示，過去3日假期10大屋苑成交不足20宗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799161_1_20250407061814.jpg&q=80)
+  
+
+代理數據顯示，過去3日假期10大屋苑成交不足20宗。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799161-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799161-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799161-20250407.htm)
+
+---
+
 # 美股3大指數期貨跌4%至近5%
 
 ![美股3大指數期貨較早時跌4%至近5%，當中以納指表現較差。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799160_1_20250407060535.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799087-20250406.htm)
-
----
-
-# 以色列有集會呼籲結束衝突　巴勒斯坦有示威譴責以軍襲擊醫護
-
-![以色列有集會呼籲結束衝突。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799085_1_20250406105211.jpg&q=55)
-  
-
-以巴兩地分別有民眾示威。巴勒斯坦民眾在被佔領的約旦河西岸拉馬拉地區遊行示威，譴責以色列軍隊之前在加沙地帶南部，襲擊15名巴勒斯坦醫務人員和人道主義工作人員的行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799085-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799085-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799085-20250406.htm)
 
 ---

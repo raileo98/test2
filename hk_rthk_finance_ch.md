@@ -1,3 +1,27 @@
+# 數據顯示過去3日假期10大屋苑成交不足20宗
+
+![代理數據顯示，過去3日假期10大屋苑成交不足20宗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799161_1_20250407061814.jpg&q=80)
+  
+
+代理數據顯示，過去3日假期10大屋苑成交不足20宗。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799161-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799161-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799161-20250407.htm)
+
+---
+
 # 美股3大指數期貨跌4%至近5%
 
 ![美股3大指數期貨較早時跌4%至近5%，當中以納指表現較差。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799160_1_20250407060535.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798868-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798868-20250403.htm)
-
----
-
-# 標普全球美國3月服務業PMI終值為54.4　略好過預期
-
-![標普全球公布，美國3月服務業PMI終值為54.4，略好過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798866_1_20250403231739.jpg&q=90)
-  
-
-標普全球公布，美國3月服務業採購經理指數（PMI）終值為54.4，好過市場預期及初值的54.3。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798866-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798866-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798866-20250403.htm)
 
 ---
