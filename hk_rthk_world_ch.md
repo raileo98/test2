@@ -1,3 +1,27 @@
+# 也門胡塞武裝：美軍空襲薩那致4死16傷
+
+![美軍周六空襲也門北部城市薩達，有建築物受損。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799157_1_20250407051701.jpg&q=65)
+  
+
+也門胡塞武裝衛生部門說，美軍周日晚空襲也門首都薩那一處目標，造成4人死亡、16人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799157-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799157-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799157-20250407.htm)
+
+---
+
 # 以軍：10枚火箭彈從加沙中部射向以色列境內
 
 ![有火箭彈從加沙地帶射向以色列境內，圖為其中一處受影響的地區。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799156_1_20250407045557.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799004-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799004-20250405.htm)
-
----
-
-# 金正恩視察軍訓基地　要求採取措施高度發展特戰能力
-
-![金正恩視察時強調要通過高強度訓練鞏固實戰能力。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799003_1_20250405082952.jpg&q=85)
-  
-
-北韓領袖金正恩視察人民軍特戰部隊訓練基地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 也門胡塞武裝：美軍空襲薩那致4死16傷
+
+![美軍周六空襲也門北部城市薩達，有建築物受損。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799157_1_20250407051701.jpg&q=65)
+  
+
+也門胡塞武裝衛生部門說，美軍周日晚空襲也門首都薩那一處目標，造成4人死亡、16人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799157-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799157-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799157-20250407.htm)
+
+---
+
 # 以軍：10枚火箭彈從加沙中部射向以色列境內
 
 ![有火箭彈從加沙地帶射向以色列境內，圖為其中一處受影響的地區。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799156_1_20250407045557.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799083-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799083-20250406.htm)
-
----
-
-# 內塔尼亞周日啟程赴美與特朗普討論關稅等議題
-
-![以色列總理辦公室說，內塔尼亞胡將與特朗普討論關稅、推動被人質獲釋等一系列議題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799080_1_20250406054700.jpg&q=90)
-  
-
-以色列總理辦公室表示，應美國總統特朗普邀請，總理內塔尼亞胡將於周日啟程訪問華盛頓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799080-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799080-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799080-20250406.htm)
 
 ---
