@@ -1,8 +1,79 @@
-# 鍾麗玲稱私隱公署有權介入AI事故　惟非「下下要咬人」
+# 葉柏強：疫後兒童性侵個案增加　部分涉互聯網
 
   
 
-私隱專員鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識，一些機構更有内部管制架構檢視如何使用人工智能，並從各個部門派人緩減使用AI的風險。
+港大臨床醫學學院兒童及青少年科學系臨床教授葉柏強表示，疫後復常以來，整體虐兒個案數字一直大幅上升包括入院個案，當中涉及性侵個案亦增加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799093-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799093-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799093-20250406.htm)
+
+---
+
+# 以色列承認上月加沙15名緊急救援人員被殺事件中以軍犯錯
+
+  
+
+以色列承認上月於加沙南部有15名緊急救援人員被殺的事件中，以軍士兵犯錯，但強調最少6同死者與巴勒斯坦武裝組織哈馬斯有關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799090-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799090-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799090-20250406.htm)
+
+---
+
+# 紀律部隊及輔助隊伍一連9日介紹國安物品　警務處首日登場
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799092_1_20250406103550.jpg&q=80)
+  
+
+本月15日是全民國家安全教育日，6支紀律部隊和兩個輔助隊伍由今日起一連9日，發布影片介紹部門具意義的國家安全物品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799092-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799092-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799092-20250406.htm)
+
+---
+
+# 鍾麗玲稱私隱公署有權介入AI事故　惟非「下下要咬人」
+
+![鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799091_1_20250406103129.jpg&q=90)
+  
+
+私隱專員鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識，一些機構更有内部管治架構檢視如何使用人工智能，並從各個部門派人緩減使用AI的風險。
 
   
 
@@ -1362,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm)
-
----
-
-# 陳祖恒籲業界勿再奢望再取美國大訂單　史立德指最終美國民眾埋單
-
-![多名商界人士在電台節目討論，美國加關稅對本港的影響。（商台直播截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799013_1_20250405112207.jpg&q=90)
-  
-
-美國對全球多國徵收「對等關稅」，其中美國對華加徵34%關稅，累計關稅增至54%。中國作出反制，下星期四起，對原產於美國的所有進口商品加徵34%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm)
-
----
-
-# 霍啟剛歡迎政府調整精英體育資助　對香港成體育產業中心感樂觀
-
-![霍啟剛（左二）歡迎政府調整精英體育資助制度；鄭泳舜（右二）期望啟德體育園有更多商業運作。（商台直播截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799011_1_20250405112807.jpg&q=90)
-  
-
-港協暨奧委會副會長、立法會議員霍啟剛表示，歡迎政府調整精英體育資助制度，支持運動員的發展，又認為政府是聆聽社會意見後作出彈性改動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm)
-
----
-
-# 《環看天下》：美國推動和平   俄烏戰場持續交戰
-
-![烏克蘭部分地區近日仍然受到襲擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799010_1_20250405101301.jpg&q=90)
-  
-
-美國致力斡旋俄烏和平。美烏官員在布魯塞爾會晤，雙方討論烏俄停火，以及兩國礦產合作等問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm)
 
 ---

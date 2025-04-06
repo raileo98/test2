@@ -1,8 +1,56 @@
-# 鍾麗玲稱私隱公署有權介入AI事故　惟非「下下要咬人」
+# 葉柏強：疫後兒童性侵個案增加　部分涉互聯網
 
   
 
-私隱專員鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識，一些機構更有内部管制架構檢視如何使用人工智能，並從各個部門派人緩減使用AI的風險。
+港大臨床醫學學院兒童及青少年科學系臨床教授葉柏強表示，疫後復常以來，整體虐兒個案數字一直大幅上升包括入院個案，當中涉及性侵個案亦增加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799093-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799093-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799093-20250406.htm)
+
+---
+
+# 紀律部隊及輔助隊伍一連9日介紹國安物品　警務處首日登場
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799092_1_20250406103550.jpg&q=80)
+  
+
+本月15日是全民國家安全教育日，6支紀律部隊和兩個輔助隊伍由今日起一連9日，發布影片介紹部門具意義的國家安全物品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799092-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799092-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799092-20250406.htm)
+
+---
+
+# 鍾麗玲稱私隱公署有權介入AI事故　惟非「下下要咬人」
+
+![鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799091_1_20250406103129.jpg&q=90)
+  
+
+私隱專員鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識，一些機構更有内部管治架構檢視如何使用人工智能，並從各個部門派人緩減使用AI的風險。
 
   
 
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798901-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798901-20250404.htm)
-
----
-
-# 清明節長假期開始　深圳口岸料日均95萬人次出入境
-
-![當局預計，羅湖、福田和深圳灣口岸是承擔假期出入境客流的主力口岸。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798876_1_20250404025651.jpg&q=90)
-  
-
-清明節長假期今日開始，深圳口岸辦預計，假期期間日均出入境人數95萬人次，其中今日是出入境高峰，預計單日客流量達103萬人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm)
-
----
-
-# 醫衞局指星島日報有關控煙政策報道失實　措施不影響旅客訪港意欲
-
-![醫務衞生局表示，對有關報道內容失實和誤導公眾表示遺憾。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798863_1_20250403215824.jpg&q=80)
-  
-
-醫務衞生局表示，《星島日報》今日引述個別人士有關另類煙和水煙的言論，指控煙政策會破壞遊客觀感，發言人對有關報道內容失實和誤導公眾表示遺憾，醫衞局提出10項短期控煙措施已充分考慮旅遊業的情況，措施並不會影響旅客訪港意欲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798863-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798863-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798863-20250403.htm)
 
 ---
