@@ -1,3 +1,26 @@
+# 教宗方濟各出院後首次公開露面　在聖伯多祿廣場發表簡短講話
+
+  
+
+教宗方濟各出院兩星期後首次公開露面，在梵蒂岡聖伯多祿廣場發表簡短講話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm)
+
+---
+
 # 入境處指截至晚上9時　逾55萬人次經各口岸入境
 
 ![入境處表示，截至晚上9時，有超過55萬人次經各口岸入境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799144_1_20250406223802.jpg&q=75)

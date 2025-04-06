@@ -1,3 +1,26 @@
+# 教宗方濟各出院後首次公開露面　在聖伯多祿廣場發表簡短講話
+
+  
+
+教宗方濟各出院兩星期後首次公開露面，在梵蒂岡聖伯多祿廣場發表簡短講話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm)
+
+---
+
 # 日本長崎縣一架直升機在海上墜毀　3人失聯
 
 ![日本長崎縣一架直升機在海上墜毀　3人失聯](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799142_1_20250406222359.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798983-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798983-20250405.htm)
-
----
-
-# 柬埔寨籲美國推遲關稅　即時下調部分美國商品關稅至5%以表誠意
-
-![洪瑪奈說，柬埔寨政府決定立即將19類美國產品的進口關稅，從原來最高35%下調至5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798981_1_20250405011725.jpg&q=90)
-  
-
-柬埔寨首相洪瑪奈星期五致函美國總統特朗普，就美方計劃從4月9日起對柬埔寨產品徵收49%關稅，正式提出協商請求，呼籲美方推遲實施關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798981-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798981-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798981-20250405.htm)
 
 ---
