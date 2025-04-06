@@ -1,3 +1,49 @@
+# 以色列有集會呼籲結束衝突　巴勒斯坦有示威譴責以軍襲擊醫護
+
+  
+
+以巴兩地分別有民眾示威。巴勒斯坦民眾在被佔領的約旦河西岸拉馬拉地區遊行示威，譴責以色列軍隊之前在加沙地帶南部，襲擊15名巴勒斯坦醫務人員和人道主義工作人員的行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799085-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799085-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799085-20250406.htm)
+
+---
+
+# 美軍被指空襲也門城市薩達　造成2人死亡
+
+  
+
+也門當局指美軍空襲也門城市薩達，造成2人死亡、4人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799084-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799084-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799084-20250406.htm)
+
+---
+
 # 美國宣布吊銷所有南蘇丹護照持有者簽證　並限制進一步簽發簽證
 
   
@@ -1391,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm)
-
----
-
-# 以軍稱近期行動剷除巴勒斯坦武裝組織兩名高級成員
-
-![以軍近期持續對加沙採取軍事行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799004_1_20250405093840.jpg&q=80)
-  
-
-以色列國防軍與國家安全總局發表聯合聲明指出，在近期對加沙地帶的軍事行動中，剷除巴勒斯坦武裝組織兩名高級成員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799004-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799004-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799004-20250405.htm)
-
----
-
-# 金正恩視察軍訓基地　要求採取措施高度發展特戰能力
-
-![金正恩視察時強調要通過高強度訓練鞏固實戰能力。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799003_1_20250405082952.jpg&q=85)
-  
-
-北韓領袖金正恩視察人民軍特戰部隊訓練基地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799003-20250405.htm)
 
 ---

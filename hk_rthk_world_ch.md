@@ -1,3 +1,49 @@
+# 以色列有集會呼籲結束衝突　巴勒斯坦有示威譴責以軍襲擊醫護
+
+  
+
+以巴兩地分別有民眾示威。巴勒斯坦民眾在被佔領的約旦河西岸拉馬拉地區遊行示威，譴責以色列軍隊之前在加沙地帶南部，襲擊15名巴勒斯坦醫務人員和人道主義工作人員的行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799085-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799085-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799085-20250406.htm)
+
+---
+
+# 美軍被指空襲也門城市薩達　造成2人死亡
+
+  
+
+也門當局指美軍空襲也門城市薩達，造成2人死亡、4人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799084-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799084-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799084-20250406.htm)
+
+---
+
 # 美國宣布吊銷所有南蘇丹護照持有者簽證　並限制進一步簽發簽證
 
   
@@ -1389,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm)
-
----
-
-# 投資500萬美元可獲美居留權　特朗普展示金卡設計
-
-![特朗普在總統專機上展示金卡計劃。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798946_1_20250404170421.jpg&q=90)
-  
-
-美國政府推出價值500萬美元的「金卡移民簽證計劃」，吸引富有的外國投資者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798946-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798946-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798946-20250404.htm)
-
----
-
-# 美日韓外長會談　對俄朝推進軍事合作表示嚴重關切
-
-![美日韓外長在比利時布魯塞爾舉行三國外長會談。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798943_1_20250404163844.jpg&q=90)
-  
-
-美國國務卿魯比奧、日本外相岩屋毅與南韓外長趙兌烈在比利時布魯塞爾出席北約外長會期間，舉行三國外長會談，對北韓核與導彈開發及俄朝推進軍事合作表示嚴重關切，商定合作以實現北韓完全無核化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm)
 
 ---
