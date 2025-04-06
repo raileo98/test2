@@ -1,3 +1,27 @@
+# A&E fee changes boost medical protection: minister
+
+![Lo Chung-mau says the changes can be likened to the government giving everyone in Hong Kong free medical insurance. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799110_1_20250406140106.jpg&q=90)
+  
+
+Changes to fees for treatment at Accident and Emergency departments will provide the public with better medical protection, Health Secretary Lo Chung-mau said on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799110-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799110-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799110-20250406.htm)
+
+---
+
 # HK will calmly ride out tariffs storm, says FS
 
 ![Paul Chan said the SAR has become less reliant on the United States when it comes to exports. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799108_1_20250406125334.jpg&q=70)
@@ -1411,29 +1435,5 @@ The government is looking into the possibility of having a single contractor des
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm)
-
----
-
-# Kai Tak operators 'inexperienced in serving big crowd'
-
-![Allan Zeman believes operators will learn a lesson from the Sevens, after some fans complained about not being able to get food at the venue. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798224_1_20250331112814.jpg&q=35)
-  
-
-Kai Tak Sports Park will "learn a good lesson" from hosting the Hong Kong Sevens and be better prepared in the future following complaints by fans over their inability to get food at the venue, a business tycoon said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm)
 
 ---

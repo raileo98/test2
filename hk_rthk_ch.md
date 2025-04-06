@@ -1,3 +1,26 @@
+# 基輔遇襲防空系統作出防禦　市長籲民眾做好安全防護
+
+  
+
+烏克蘭首都基輔遭受導彈攻擊，防空系統作出防禦。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799111-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799111-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799111-20250406.htm)
+
+---
+
 # 中國國際救援隊聯同中國救援隊及中國香港救援隊續於緬甸災區義診
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm)
-
----
-
-# 南韓總統辦公室網站暫停運作　指正在維修
-
-![南韓總統辦公室網站暫停運作。（南韓總統辦公室網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799030_1_20250405142745.jpg&q=90)
-  
-
-南韓總統辦公室網站暫停運作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799030-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799030-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799030-20250405.htm)
 
 ---

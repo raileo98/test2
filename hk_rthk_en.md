@@ -1,3 +1,27 @@
+# A&E fee changes boost medical protection: minister
+
+![Lo Chung-mau says the changes can be likened to the government giving everyone in Hong Kong free medical insurance. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799110_1_20250406140106.jpg&q=90)
+  
+
+Changes to fees for treatment at Accident and Emergency departments will provide the public with better medical protection, Health Secretary Lo Chung-mau said on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799110-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799110-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799110-20250406.htm)
+
+---
+
 # HK will calmly ride out tariffs storm, says FS
 
 ![Paul Chan said the SAR has become less reliant on the United States when it comes to exports. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799108_1_20250406125334.jpg&q=70)
@@ -1412,29 +1436,5 @@ A DAB lawmaker on Thursday suggested the government take into account the financ
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798786-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798786-20250403.htm)
-
----
-
-# Japan says tariffs may break WTO rules, deal with US
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798781_1_20250403123758.jpg&q=90)
-  
-
-Japan slammed as "extremely regrettable" US President Donald Trump's sweeping new tariffs, saying they may break WTO rules and the two countries' trade agreement.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm)
 
 ---
