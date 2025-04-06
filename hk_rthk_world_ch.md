@@ -1,3 +1,26 @@
+# 人民日報文章指美國濫施關稅衝擊全球經濟秩序穩定　中國堅決反對
+
+  
+
+《人民日報》刊登文章指出，近期美國以各種借口宣布對包括中國在內的所有交易伙伴濫施關稅，嚴重侵犯各國正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序穩定，中國政府對此強烈譴責，堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm)
+
+---
+
 # 美國及越南商界促華盛頓推遲對越南商品徵收46%對等關稅
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798976-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798976-20250405.htm)
-
----
-
-# 中國反制美國　道指早段曾瀉逾1700點
-
-![中國推出關稅措施反制美國，美股3大指數連續第二日下挫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798975_1_20250404230200.jpg&q=90)
-  
-
-中國推出關稅措施反制美國，美股3大指數連續第二日下挫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm)
 
 ---

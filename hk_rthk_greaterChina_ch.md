@@ -1,3 +1,26 @@
+# 人民日報文章指美國濫施關稅衝擊全球經濟秩序穩定　中國堅決反對
+
+  
+
+《人民日報》刊登文章指出，近期美國以各種借口宣布對包括中國在內的所有交易伙伴濫施關稅，嚴重侵犯各國正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序穩定，中國政府對此強烈譴責，堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm)
+
+---
+
 # 內地鐵路部門採取措施應對清明假期返程客流高峰
 
 ![國家鐵路集團預計，今日全國鐵路預計發送旅客2000萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799122_1_20250406165744.jpg&q=85)
@@ -1416,30 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm)
-
----
-
-# 來往澳門至馬德里貨運包機首航　澳門國際機場稱具戰略意義
-
-![埃塞俄比亞航空由比利時直飛澳門的首航貨運包機，降落澳門國際機場通過水門洗禮。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798762_1_20250403113350.jpg&q=90)
-![澳門國際機場專營股份有限公司物流暨通用航空發展部總監胡漢新表示，航線成功開通具有戰略意義。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798762_2_20250403113350.jpg&q=90)
-  
-
-澳門國際機場首次開拓至歐洲的跨境電商物流服務，將貨運服務由目前的東南亞、中東和美洲，延伸至西班牙馬德里，進一步完善機場全貨運網絡，為粵港澳大灣區跨境電商貨物運輸，提供多一個琴澳物流新模式的選擇方案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm)
 
 ---
