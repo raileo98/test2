@@ -22,30 +22,6 @@
 
 ---
 
-# 施紀賢回應美國對等關稅　指大家所知世界不復存在
-
-![施紀賢說，英國政府已經準備好介入，保護英國經濟免受美國關稅的影響。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799138_1_20250406213131.jpg&q=90)
-  
-
-英國首相施紀賢表示，伴隨著美國所謂對等關稅生效，大家所知道的世界已經不復存在。他說將繼續推動與美國達成經濟協議，以避免部分關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm)
-
----
-
 # 清明假期內地全社會跨區域人員流動量創新高
 
 ![清明假期，鐵路客運量預計超過5377萬人次，比去年同期增長8.2%。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799136_1_20250406215132.jpg&q=85)
@@ -1440,5 +1416,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm)
+
+---
+
+# 中國政府第二批援助緬甸物資運抵仰光機場
+
+![中國政府向緬甸提供的第二批緊急人道救災援助物資抵達仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798791_1_20250403144239.jpg&q=90)
+  
+
+緬甸大地震搜救工作持續，國家管理委員會說，截至當地時間今天上午8時，強震已導致3085人死亡，4715人受傷，另有341人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm)
 
 ---

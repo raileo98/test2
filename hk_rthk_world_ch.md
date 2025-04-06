@@ -1,5 +1,6 @@
 # 日本長崎縣一架直升機在海上墜毀　3人失聯
 
+![日本長崎縣一架直升機在海上墜毀　3人失聯](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799142_1_20250406222359.jpg&q=90)
   
 
 日本共同社報道，日本一架直升機下午在長崎縣對馬市附近海域失聯，之後被發現已經在海上墜毀，3人失聯。
@@ -18,6 +19,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm)
+
+---
+
+# 施紀賢回應美國對等關稅　指大家所知世界不復存在
+
+![施紀賢說，英國政府已經準備好介入，保護英國經濟免受美國關稅的影響。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799138_1_20250406213131.jpg&q=90)
+  
+
+英國首相施紀賢表示，伴隨著美國所謂對等關稅生效，大家所知道的世界已經不復存在。他說將繼續推動與美國達成經濟協議，以避免部分關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm)
 
 ---
 
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798981-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798981-20250405.htm)
-
----
-
-# 美越領導人通話　越南願對美國商品實施零關稅　雙方將商討協議
-
-![美國總統特朗普與越共中央總書記蘇林通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798980_1_20250405011113.jpg&q=90)
-  
-
-美國總統特朗普與越共中央總書記蘇林通電話，討論雙邊貿易議題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798980-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798980-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798980-20250405.htm)
 
 ---
