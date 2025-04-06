@@ -1,3 +1,27 @@
+# Rain complicates recovery in quake-hit Myanmar
+
+![Rescue workers stand on the street next to a collapsed building in Mandalay. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799123_1_20250406170802.jpg&q=85)
+  
+
+Rain was compounding misery and presenting new hurdles for relief efforts on Sunday in Myanmar, where state media reported the death toll from a devastating earthquake had risen to nearly 3,500 people.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799123-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799123-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799123-20250406.htm)
+
+---
+
 # Trump tells Americans to 'hang tough'
 
 ![Alarm about the fallout from US President Donald Trump's April 2 tariff announcement has gripped financial markets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799086_1_20250406094021.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump said Monday he would be "very kind" to trading partner
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm)
-
----
-
-# Kremlin says Putin 'remains open' to speaking to Trump
-
-![US President Donald Trump (Left) earlier criticised Russian President Vladimir Putin for the lack of progress on a ceasefire deal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798328_1_20250331211156.jpg&q=90)
-  
-
-The Kremlin on Monday said that President Vladimir Putin was still "open" to speaking to Donald Trump after the US president said he was "very angry" with the Russian leader over little progress on a ceasefire in Ukraine.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm)
 
 ---

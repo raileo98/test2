@@ -1,3 +1,27 @@
+# Rain complicates recovery in quake-hit Myanmar
+
+![Rescue workers stand on the street next to a collapsed building in Mandalay. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799123_1_20250406170802.jpg&q=85)
+  
+
+Rain was compounding misery and presenting new hurdles for relief efforts on Sunday in Myanmar, where state media reported the death toll from a devastating earthquake had risen to nearly 3,500 people.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799123-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799123-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799123-20250406.htm)
+
+---
+
 # Coldplay fans urged to plan journeys to Kai Tak
 
 ![The government said there will be special transport arrangements for the Coldplay concerts this week. Image from Coldplay's social media.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799115_1_20250406151732.jpg&q=90)
@@ -1412,29 +1436,5 @@ The latest tariffs imposed by the United States will add to the country's own ec
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm)
-
----
-
-# 'Not the season' as MH370 search suspended
-
-![Relatives of the missing MH370 passengers gather in Beijing last month on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798795_1_20250403145825.jpg&q=90)
-  
-
-The latest search for Malaysia Airlines flight MH370 has been suspended as it is "not the season", the country's transport minister said, more than a decade after the plane went missing.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm)
 
 ---
