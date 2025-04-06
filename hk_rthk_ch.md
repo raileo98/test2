@@ -1,3 +1,27 @@
+# 美商務部長：關稅政策數天以至數周內維持不變
+
+![盧特尼克（右）日前陪同特朗普公布向全球貿易伙伴徵收對等關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799150_1_20250407011035.jpg&q=90)
+  
+
+美國商務部長盧特尼克表示，總統特朗普的關稅政策將在數天以至數周內維持不變，而且一些企鵝棲息的島嶼也被列入名單，這樣各國就無法將這些地方作為漏洞利用。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799150-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799150-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799150-20250407.htm)
+
+---
+
 # 緬甸大地震已造成3564人死亡
 
 ![在緬甸首都內比都，地震災民在樹林中過夜。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799148_1_20250407004351.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799073-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799073-20250406.htm)
-
----
-
-# 伊朗總統：願意與美國平等對話
-
-![佩澤希齊揚表示，伊朗願意與美國進行平等對話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799072_1_20250406014705.jpg&q=90)
-  
-
-伊朗總統佩澤希齊揚表示，伊朗願意與美國進行平等對話，但未有澄清德黑蘭是否會參加直接談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799072-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799072-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799072-20250406.htm)
 
 ---
