@@ -1,3 +1,26 @@
+# 敏昂萊慰問中國救援隊伍　感謝震後到緬全力救援
+
+  
+
+緬甸大地震至今造成近3500人死亡，超過4000人受傷，另有214人失蹤。部分災區自周末起降雨，參與救援工作的聯合國人員擔心，會令救援工作複雜化，並增加爆發霍亂等疾病的風險，又說當地需要更多帳篷安置無家可歸的災民。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm)
+
+---
+
 # 緬甸地震災區天氣炎熱　特區救援隊備多種藥物確保適合出勤
 
 ![醫護團隊分別講述當地救援工作及如何應對高溫天氣。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799128_1_20250406181110.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798979-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798979-20250405.htm)
-
----
-
-# 克宮：普京未來幾日沒有與特朗普通話安排
-
-![佩斯科夫說，德米特里耶夫的訪問令人謹慎樂觀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798978_1_20250405003734.jpg&q=90)
-  
-
-俄羅斯克里姆林宮發言人佩斯科夫表示，總統普京未來幾日沒有與美國總統特朗普通電話的安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798978-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798978-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798978-20250405.htm)
 
 ---

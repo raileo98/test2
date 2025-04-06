@@ -1,3 +1,26 @@
+# 敏昂萊慰問中國救援隊伍　感謝震後到緬全力救援
+
+  
+
+緬甸大地震至今造成近3500人死亡，超過4000人受傷，另有214人失蹤。部分災區自周末起降雨，參與救援工作的聯合國人員擔心，會令救援工作複雜化，並增加爆發霍亂等疾病的風險，又說當地需要更多帳篷安置無家可歸的災民。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm)
+
+---
+
 # 香港馬王浪漫勇士遠征中東三賽共奪一冠兩亞
 
 ![練馬師沈集成（右）率領「浪漫勇士」及其團隊，完成為期四個月的中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799133_1_20250406185624.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799058-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799058-20250405.htm)
-
----
-
-# 外交部：中國政府強烈譴責美國濫施關稅　將採措施維護利益
-
-![中國強烈譴責和堅決反對美國濫施關稅，指施壓和威脅不是同中方打交道的正確方式。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799055_1_20250405191815.jpg&q=80)
-  
-
-中國強烈譴責和堅決反對美國濫施關稅，指施壓和威脅不是同中方打交道的正確方式。中方將採取堅決措施，維護自身主權安全發展利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm)
 
 ---

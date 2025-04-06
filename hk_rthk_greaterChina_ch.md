@@ -1,3 +1,26 @@
+# 敏昂萊慰問中國救援隊伍　感謝震後到緬全力救援
+
+  
+
+緬甸大地震至今造成近3500人死亡，超過4000人受傷，另有214人失蹤。部分災區自周末起降雨，參與救援工作的聯合國人員擔心，會令救援工作複雜化，並增加爆發霍亂等疾病的風險，又說當地需要更多帳篷安置無家可歸的災民。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm)
+
+---
+
 # 入境處：截至下午4時　逾27.7萬人次經各口岸入境
 
 ![截至下午4時，逾27.7萬人次經各口岸入境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799129_1_20250406182555.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798779-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798779-20250403.htm)
-
----
-
-# 國家消防救援局：今年首季逾1800宗電動自行車火災
-
-![國家消防救援局舉行記者會，提到全國有3億輛電動自行車。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798778_1_20250403151124.jpg&q=90)
-  
-
-國家消防救援局舉行記者會，交代整治電動自行車安全隱患情況。副局長宋樹欣表示，全國有3億輛電動自行車，過去一年，在相關部門及各地區共同努力下，整治工作取得初步成效，相關火災總量明顯下降。但他強調目前整個整治工作距離國務院定下的明確目標及民眾的期盼還有很大差距，電動自行車假冒偽劣和非法拆改仍然很多，老舊電動自行車的存量風險仍然很大，使用者不安全停車及充電習慣安全意識有待提高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798778-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798778-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798778-20250403.htm)
 
 ---
