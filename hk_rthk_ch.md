@@ -1,3 +1,27 @@
+# 以軍：10枚火箭彈從加沙中部射向以色列境內
+
+![有火箭彈從加沙地帶射向以色列境內，圖為其中一處受影響的地區。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799156_1_20250407045557.jpg&q=90)
+  
+
+以色列國防軍說，周日晚約有10枚火箭彈從加沙地帶中部射向以色列境內，以軍成功攔截其中5枚。以色列傳媒報道，這次是數月以來以色列遭受來自加沙地帶的「最大規模襲擊」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799156-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799156-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799156-20250407.htm)
+
+---
+
 # 被裁定不得參選　瑪麗娜勒龐：不會放棄
 
 ![瑪麗娜勒龐在巴黎出席黨內集會並向支持者發表講話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799155_1_20250407035615.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799080-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799080-20250406.htm)
-
----
-
-# 英法領袖通電話對美國關稅政策帶來影響表示擔憂
-
-![首相施紀賢（左）與法國總統馬克龍通電話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799079_1_20250406051013.jpg&q=90)
-  
-
-英國首相辦公室表示，首相施紀賢與法國總統馬克龍通電話，雙方均對美國新關稅政策帶來的經濟和安全影響表達擔憂。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799079-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799079-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799079-20250406.htm)
 
 ---
