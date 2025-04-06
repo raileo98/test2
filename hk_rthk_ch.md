@@ -1,3 +1,26 @@
+# 政府推約章促減少包裝　謝展寰：樂見電商積極回應
+
+  
+
+環境及生態局局長謝展寰說，政府重視產品過度包裝情況，環保署於3月底推出《減少使用包裝約章》，推動在商界建立減廢文化。對於有意見認為立法規管更為有效，他認為市場上的包裝五花八門，不容易立法統一，宜先試為行業提供減少包裝指引，讓政府和行業掌握如何進一步減少包裝。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799102-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799102-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799102-20250406.htm)
+
+---
+
 # 九龍城有私家車撞傷女途人　車上2乘客不適
 
   
@@ -23,6 +46,7 @@
 
 # 陳茂波堅決反對美國加徵關稅　本港保持警惕作好準備應對
 
+![陳茂波表示，地緣局勢發展困擾全球貿易前景，香港短期內亦難免會受到一定影響。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799097_1_20250406121315.jpg&q=90)
   
 
 美國將對香港的進口產品徵收對等關稅，財政司司長陳茂波表示堅決反對，又說此時此刻更須保持警惕，以底綫思維做好充分準備。
@@ -46,6 +70,7 @@
 
 # 專家稱本港百日咳個案處於低水平　未打疫苗兒童外遊需做好預防
 
+![葉柏強表示，留意到最近日本及東南亞出現百日咳等傳染病爆發，相關感染數字明顯上升。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799096_1_20250406121248.jpg&q=90)
   
 
 港大臨床醫學學院兒童及青少年科學系臨床教授葉柏強表示，留意到最近日本及東南亞出現百日咳等傳染病爆發，相關感染數字明顯上升，目前本港百日咳感染數字處於非常低水平，未見嚴重爆發，但不應掉以輕心。
@@ -119,6 +144,7 @@
 
 # 葉柏強：疫後兒童性侵個案增加　部分涉互聯網
 
+![葉柏強留意到近年社署有關虐兒數據庫中，超過三分一的個案涉及性侵。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799093_1_20250406121156.jpg&q=90)
   
 
 港大臨床醫學學院兒童及青少年科學系臨床教授葉柏強表示，疫後復常以來，整體虐兒個案數字一直大幅上升包括入院個案，當中涉及性侵個案亦增加。
@@ -1411,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm)
-
----
-
-# 凌嘉勤：房協兩資助出售房屋項目至今收逾４千申請　反映剛性需求
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799021_1_20250405114734.jpg&q=90)
-  
-
-房協推售兩個分別位於觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，提供1604個單位，售價約為市值7折，本月1日至14日接受合資格人士申請。房協主席凌嘉勤表示，目前已收到超過4000份申請，較供應單位數目翻倍，反映剛性置業需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm)
 
 ---
