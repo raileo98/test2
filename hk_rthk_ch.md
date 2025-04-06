@@ -1,3 +1,27 @@
+# 南韓代總統或周二確定大選日期　李在明或辭任共同民主黨黨魁參選
+
+![預料尹錫悅會在一星期內搬離總統官邸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799126_2_20250406174757.jpg&q=90)
+  
+
+在南韓，被罷免總統職務的尹錫悅發信感謝支持者，表示雖然已不再擔任總統，但會一直守護大家。外界預料尹錫悅會在一星期內搬離位於首爾龍山區的總統官邸，搬回他在首爾市瑞草區的私人住宅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm)
+
+---
+
 # 人民日報文章指美國濫施關稅衝擊全球經濟秩序穩定　中國堅決反對
 
   
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm)
-
----
-
-# 陳茂波指對等關稅對本港「間接影響遠大於直接」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799049_2_20250405185202.jpg&q=85)
-  
-
-美國宣布徵收對等關稅，財政司司長陳茂波認為，對本港帶來的「間接影響」，遠大於「直接影響」，認為本港要做好本分，以底線思維準備不同預案，亦不能低估其影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799049-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799049-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799049-20250405.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 南韓代總統或周二確定大選日期　李在明或辭任共同民主黨黨魁參選
+
+![預料尹錫悅會在一星期內搬離總統官邸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799126_2_20250406174757.jpg&q=90)
+  
+
+在南韓，被罷免總統職務的尹錫悅發信感謝支持者，表示雖然已不再擔任總統，但會一直守護大家。外界預料尹錫悅會在一星期內搬離位於首爾龍山區的總統官邸，搬回他在首爾市瑞草區的私人住宅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm)
+
+---
+
 # 人民日報文章指美國濫施關稅衝擊全球經濟秩序穩定　中國堅決反對
 
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm)
-
----
-
-# 中方反制美國對等關稅　特朗普稱中國做法錯誤
-
-![特朗普日前公布對等關稅措施，其中對中國產品徵收34%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798976_1_20250405001323.jpg&q=90)
-  
-
-中國反制美國對華徵收對等關稅，宣布從下星期四中午起，對原產於美國的所有進口商品加徵34%關稅、將16間美國實體列入出口管制管控名單、將11間美國企業列入不可靠實體清單、對進口醫用CT球管發起產業競爭力調查、對7類中重稀土相關物項實施出口管制、暫停美國6間企業產品輸華。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798976-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798976-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798976-20250405.htm)
 
 ---
