@@ -1,5 +1,29 @@
+# 清明假期內地全社會跨區域人員流動量創新高
+
+  
+
+交通運輸部數據顯示，清明假期三天，預計全社會跨區域人員流動量約7億9千萬人次，創清明假期出行量新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm)
+
+---
+
 # 敏昂萊慰問中國救援隊伍　感謝震後到緬全力救援
 
+![在緬甸曼德勒中國救援隊伍營地，緬甸領導人敏昂萊（前左一）慰問中國救援隊伍。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799134_1_20250406200019.jpg&q=90)
   
 
 緬甸大地震至今造成近3500人死亡，超過4000人受傷，另有214人失蹤。部分災區自周末起降雨，參與救援工作的聯合國人員擔心，會令救援工作複雜化，並增加爆發霍亂等疾病的風險，又說當地需要更多帳篷安置無家可歸的災民。
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798780-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798780-20250403.htm)
-
----
-
-# 西藏鐵路系統擴展改善居民出行及商業活動發展
-
-![旅客說，現時在海拔5500米的地方亦能運用分子篩和液氧化技術供氧。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798779_1_20250403125209.jpg&q=90)
-  
-
-西藏的鐵路系統自2006年通車後逐步擴展，改善當地居民出行及商業活動發展，截至今年2月，累計運載超過3875萬旅客人次、貨物約9200萬噸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798779-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798779-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798779-20250403.htm)
 
 ---

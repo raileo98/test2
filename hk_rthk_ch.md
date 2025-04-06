@@ -1,5 +1,53 @@
+# 清明假期內地全社會跨區域人員流動量創新高
+
+  
+
+交通運輸部數據顯示，清明假期三天，預計全社會跨區域人員流動量約7億9千萬人次，創清明假期出行量新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm)
+
+---
+
+# 將軍澳有鋁窗從高處墮下　女途人被玻璃碎片濺中頸部受傷
+
+![將軍澳富麗花園有一扇鋁窗下午懷疑從高處墮下。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799135_1_20250406201513.jpg&q=75)
+  
+
+將軍澳富麗花園有一扇約1米乘0.5米鋁窗下午近4時懷疑從高處墮下，一名69歲女途人被玻璃碎片濺中頸部受傷，她自行報警，清醒送院治理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799135-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799135-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799135-20250406.htm)
+
+---
+
 # 敏昂萊慰問中國救援隊伍　感謝震後到緬全力救援
 
+![在緬甸曼德勒中國救援隊伍營地，緬甸領導人敏昂萊（前左一）慰問中國救援隊伍。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799134_1_20250406200019.jpg&q=90)
   
 
 緬甸大地震至今造成近3500人死亡，超過4000人受傷，另有214人失蹤。部分災區自周末起降雨，參與救援工作的聯合國人員擔心，會令救援工作複雜化，並增加爆發霍亂等疾病的風險，又說當地需要更多帳篷安置無家可歸的災民。
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799061-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799061-20250405.htm)
-
----
-
-# 日本東京以西發生涉旅遊巴意外　據報47人受傷
-
-![日本東京以西發生涉旅遊巴意外　據報47人受傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799059_1_20250405204212.jpg&q=90)
-  
-
-日本東京以西一條高速公路發生涉及旅遊巴的意外，據報47人受傷，大部分是外國人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799059-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799059-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799059-20250405.htm)
-
----
-
-# 林定國稱本港供水穩定全賴可靠東江水供應
-
-![林定國參觀大型藝術展覽「舞動水滴展」。（林定國社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799058_1_20250405200412.jpg&q=90)
-  
-
-律政司司長林定國說，香港在落實用水權方面表現亮麗，香港的供水穩定，水質安全可靠。按「國際水協會」去年公佈，調查2023年世界245個城市的水價，最後計算39個首都或大城市的水費，由最昂貴起計，香港排在第30名，比澳門略便宜，亦明顯低於其他大城市，例如首爾、東京、羅馬、巴黎、柏林、華盛頓等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799058-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799058-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799058-20250405.htm)
 
 ---

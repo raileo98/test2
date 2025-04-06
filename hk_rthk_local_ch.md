@@ -1,3 +1,27 @@
+# 將軍澳有鋁窗從高處墮下　女途人被玻璃碎片濺中頸部受傷
+
+![將軍澳富麗花園有一扇鋁窗下午懷疑從高處墮下。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799135_1_20250406201513.jpg&q=75)
+  
+
+將軍澳富麗花園有一扇約1米乘0.5米鋁窗下午近4時懷疑從高處墮下，一名69歲女途人被玻璃碎片濺中頸部受傷，她自行報警，清醒送院治理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799135-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799135-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799135-20250406.htm)
+
+---
+
 # 盧寵茂指公立醫院收費改革增保障　預約日無出現應付成本
 
 ![盧寵茂強調能夠為市民增加保障，猶如政府送出一份保險一樣。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799131_1_20250406185601.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm)
-
----
-
-# 特區救援隊與國家隊義診緬甸地震災民
-
-![救援隊帶災民到醫療帳篷接受診治。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798938_2_20250404155558.jpg&q=65)
-  
-
-正在緬甸協助救援的特區救援隊，聯同國家隊在災區設置帳篷義診，帶同醫療裝備，例如量度維生指數的儀器、處理傷口的消毒用品等，協助災民處理傷患及提供藥物。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm)
 
 ---
