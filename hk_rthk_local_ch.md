@@ -1,3 +1,26 @@
+# 緬甸地震災區天氣炎熱　特區救援隊備多種藥物確保適合出勤
+
+  
+
+特區救援隊繼續在緬甸地震災區協助搜救工作，醫護團隊分別講述當地救援工作及如何應對高溫天氣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm)
+
+---
+
 # 港大醫學院與團體辦外傭免費體檢活動　逾百人參與
 
 ![過百名外傭到場參加。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799120_2_20250406162418.jpg&q=85)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798933-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798933-20250404.htm)
-
----
-
-# 學者稱郵輪以香港為母港正逐漸增加
-
-![黃家榮稱郵輪旅遊從疫後復蘇，以香港為母港的郵輪佔香港停泊郵輪數目一半。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798930_1_20250404131309.jpg&q=85)
-  
-
-旅遊發展局表示，3月總共有17艘國際郵輪訪港，帶來數以千計遊客。去年共有30家郵輪公司派船來港，比前一年增加12家；郵輪旅客總流量35.5萬人次，按年上升63%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm)
 
 ---

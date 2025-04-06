@@ -1,3 +1,26 @@
+# 緬甸地震災區天氣炎熱　特區救援隊備多種藥物確保適合出勤
+
+  
+
+特區救援隊繼續在緬甸地震災區協助搜救工作，醫護團隊分別講述當地救援工作及如何應對高溫天氣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm)
+
+---
+
 # 南韓代總統或周二確定大選日期　李在明或辭任共同民主黨黨魁參選
 
 ![預料尹錫悅會在一星期內搬離總統官邸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799126_2_20250406174757.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798978-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798978-20250405.htm)
-
----
-
-# 特朗普再促減息　鮑威爾稱關稅上調幅度大於預期調整政策為時尚早
-
-![鮑威爾說，調整貨幣政策為時尚早。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798977_1_20250405003501.jpg&q=90)
-  
-
-美國總統特朗普在社交平台貼文，指現在是聯儲局主席鮑威爾減息的絕佳時機。鮑威爾回應說，準備好等待更明確信息，然後再考慮調整政策立場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm)
 
 ---

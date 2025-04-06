@@ -1,3 +1,26 @@
+# 緬甸地震災區天氣炎熱　特區救援隊備多種藥物確保適合出勤
+
+  
+
+特區救援隊繼續在緬甸地震災區協助搜救工作，醫護團隊分別講述當地救援工作及如何應對高溫天氣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm)
+
+---
+
 # 南韓代總統或周二確定大選日期　李在明或辭任共同民主黨黨魁參選
 
 ![預料尹錫悅會在一星期內搬離總統官邸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799126_2_20250406174757.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799048-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799048-20250405.htm)
-
----
-
-# 泰國將倒塌大樓鋼筋樣本送往檢驗　中國大使館：反對詆毀抹黑中企
-
-![泰國當局將倒塌的國家審計署大樓鋼筋樣本送到實驗室檢驗，確認是否符合標準。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799046_1_20250405172826.jpg&q=35)
-  
-
-泰國曼谷在建的國家審計署大樓早前受緬甸大地震波及倒塌。泰國當局再將大樓不同區域收集到的鋼筋樣本送到實驗室檢驗，確認是否符合標準。當局又計劃採集大樓混凝土板樣本檢查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm)
 
 ---
