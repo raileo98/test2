@@ -72,6 +72,7 @@
 
 # 哥倫比亞政府與「南方公社」武裝簽和平協議　組織上繳武器彈藥
 
+![佩特羅（圖）及「南方公社」代表出席和平協議簽署儀式。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799118_1_20250406163542.jpg&q=90)
   
 
 哥倫比亞政府與一個武裝組織舉行和平協議簽署儀式。
