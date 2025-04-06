@@ -1,3 +1,27 @@
+# Romantic Warrior finishes second in top Dubai race
+
+![Romantic Warrior (no.8) came agonisingly close to winning the Dubai Turf. Photo courtesy of the Hong Kong Jockey Club.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799101_1_20250406120651.jpg&q=90)
+  
+
+Hong Kong racing royalty Romantic Warrior came up just short at the Dubai Turf, as trainer Danny Shum's champion was edged by the slimmest of margins by Soul Rush from Japan in the early hours of Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799101-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799101-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799101-20250406.htm)
+
+---
+
 # Nick Rockett, at 33-1, wins the Grand National
 
 ![Jockey Patrick Mullins reacts as he passes the finish line. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799082_1_20250406074831.jpg&q=90)
@@ -1428,29 +1452,5 @@ The Kai Tak Sports Park said it's ready to host the Hong Kong Rugby Sevens tourn
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm)
-
----
-
-# Son homes in on pitches for S Korea's World Cup slips
-
-![Son Heung-min reacts at the end of the match with Jordan that saw South Korea draw again. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797449_1_20250326114106.jpg&q=90)
-  
-
-Son Heung-min blamed South Korea's shoddy pitches for their 2026 World Cup qualifying struggles after a 1-1 draw with Jordan left them sweating on an automatic place at the tournament.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm)
 
 ---

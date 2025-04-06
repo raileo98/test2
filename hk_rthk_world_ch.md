@@ -1,3 +1,26 @@
+# 中國海警艦艇驅離一艘非法進入釣魚島領海日本漁船
+
+  
+
+中國海警局表示，一艘日本漁船非法進入釣魚島領海，中國海警艦艇依法採取必要管控措施並警告驅離。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799099-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799099-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799099-20250406.htm)
+
+---
+
 # 美國多州惡劣天氣持續　最少16人因天氣相關原因死亡
 
 ![美國國家氣象局預計多個州的數十個地點將達到該機構所界定的「重大洪水階段」。（美國國家氣象局網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799094_1_20250406114534.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm)
-
----
-
-# 中方將斯凱迪奧公司等11間美國企業列入不可靠實體清單
-
-![商務部將斯凱迪奧公司等11間美國企業列入不可靠實體清單。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798953_1_20250404183729.jpg&q=75)
-  
-
-在北京，商務部表示，為維護國家主權、安全和發展利益，根據《對外貿易法》、《國家安全法》及《反外國制裁法》等有關法律，依據《不可靠實體清單規定》，決定將斯凱迪奧公司等11間實體，列入不可靠實體清單，禁止有關企業從事與中國有關的進出口活動，並禁止他們在中國境內新增投資。公告自公布日起實施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm)
 
 ---

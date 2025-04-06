@@ -1,3 +1,49 @@
+# 鍾麗玲稱部分大機構有涉AI使用管治架構　較少中小企做相關工作
+
+  
+
+個人資料私隱專員公署日前公布指引清單，協助機構制定使用生成式人工智能的內部政策。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799105-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799105-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799105-20250406.htm)
+
+---
+
+# 盧寵茂稱公立醫院收費改革增保障　猶如政府送出一份保險
+
+  
+
+醫務衞生局局長盧寵茂表示，公立醫院收費改革已討論多年，強調能夠為市民增加保障，猶如政府送出一份保險一樣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799104-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799104-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799104-20250406.htm)
+
+---
+
 # 政府推約章促減少包裝　謝展寰：樂見電商積極回應
 
   
@@ -23,6 +69,7 @@
 
 # 九龍城有私家車撞傷女途人　車上2乘客不適
 
+![九龍城有私家車撞傷女途人　車上2乘客不適](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799100_1_20250406121548.jpg&q=90)
   
 
 九龍城早上近11時發生交通意外，一輛私家車駛至賈炳達道128號附近時，撞向路邊鐵欄和指示牌，一名女途人受傷倒地，車上兩名女乘客亦報稱頸痛。
@@ -1390,54 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm)
-
----
-
-# 清明節不少市民掃墓　紙紮祭品略為加價
-
-![鑽石山墳場有不少市民到場拜祭先人，附近有道路實施人潮管制措施。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798914_1_20250404113030.jpg&q=70)
-![有市民表示，今年紙紮等祭品較去年貴數元，主要加價的祭品是金銀衣紙，覺得可以接受。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798914_2_20250404122036.jpg&q=65)
-  
-
-今日是清明節，在鑽石山墳場，不少市民到場拜祭先人，附近有道路實施人潮管制措施，警員在場維持秩序。有市民表示，人流較預期中少，與過往相比亦較少人，認為今日天氣好，有微風而且不會太曬。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm)
-
----
-
-# 運輸署發送「#」號開頭短訊提示繳費
-
-![運輸署提醒市民保持警覺，收到聲稱屬運輸署短訊時，要看清楚發送人名稱。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798913_1_20250404112228.jpg&q=80)
-  
-
-運輸署表示，為便利不同用家精準識別各類服務，署方會按服務類別，經通訊辦短訊發送人登記制下「#」號開頭的發送人名稱，聯絡市民與用戶，提示大家繳交隧道費、泊車費，續牌、約期等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm)
 
 ---

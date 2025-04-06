@@ -1,3 +1,72 @@
+# 中國海警艦艇驅離一艘非法進入釣魚島領海日本漁船
+
+  
+
+中國海警局表示，一艘日本漁船非法進入釣魚島領海，中國海警艦艇依法採取必要管控措施並警告驅離。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799099-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799099-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799099-20250406.htm)
+
+---
+
+# 鍾麗玲稱部分大機構有涉AI使用管治架構　較少中小企做相關工作
+
+  
+
+個人資料私隱專員公署日前公布指引清單，協助機構制定使用生成式人工智能的內部政策。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799105-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799105-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799105-20250406.htm)
+
+---
+
+# 盧寵茂稱公立醫院收費改革增保障　猶如政府送出一份保險
+
+  
+
+醫務衞生局局長盧寵茂表示，公立醫院收費改革已討論多年，強調能夠為市民增加保障，猶如政府送出一份保險一樣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799104-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799104-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799104-20250406.htm)
+
+---
+
 # 政府推約章促減少包裝　謝展寰：樂見電商積極回應
 
   
@@ -23,6 +92,7 @@
 
 # 九龍城有私家車撞傷女途人　車上2乘客不適
 
+![九龍城有私家車撞傷女途人　車上2乘客不適](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799100_1_20250406121548.jpg&q=90)
   
 
 九龍城早上近11時發生交通意外，一輛私家車駛至賈炳達道128號附近時，撞向路邊鐵欄和指示牌，一名女途人受傷倒地，車上兩名女乘客亦報稱頸痛。
@@ -1365,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799026-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799026-20250405.htm)
-
----
-
-# 啟德青年驛站旅舍　由中國旅遊集團旗下博盛文旅營運須自負盈虧
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799025_1_20250405143248.jpg&q=80)
-  
-
-去年《施政報告》提出改造啟德社區隔離設施作為「青年驛站」旅舍，以及青年文化藝術與體育交流空間。民政及青年事務局局長麥美娟表示，標書審議工作已經完成，由中國旅遊集團旗下公司為主要股東的博盛文旅有限公司作為營運團體，香港中旅發展及帝盛酒店集團為協辦機構，合作營運青年發展設施，租約期為5年，營運團體需要自負盈虧。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799025-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799025-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799025-20250405.htm)
-
----
-
-# 香港工商界代表稱業界對美國大幅加徵關稅感無奈
-
-![有香港工商界代表，呼籲不要自亂陣腳，要積極開拓其他市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799024_1_20250405124607.jpg&q=90)
-  
-
-美國對全球多國徵收「對等關稅」，其中對華累計關稅增至54%。中國作出反制措施，下星期四起，對原產於美國的所有進口商品加徵34%關稅等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799024-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799024-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799024-20250405.htm)
-
----
-
-# 水務署署長稱仍在檢討水費調整　用水量大行業冀加水費循序漸進
-
-![黃恩諾表示，仍在檢討水費調整，但他看過水費調整，對於節省用水的彈性言，並非十分顯著。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799022_1_20250405122558.jpg&q=90)
-  
-
-水務署署長黃恩諾表示，仍在檢討水費調整，但他看過水費的調整，對於節省用水的彈性而言，並非十分顯著，當局希望做到收回成本，用者自付，亦要顧及民生和經濟情況。他說，與一些用水量大的行業，例如賓館業界，餐飲業及建造業等商討過，大家都理解本港水費多年未有調整，希望即使加水費，最好循序漸進，不要一下子加太多。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm)
 
 ---

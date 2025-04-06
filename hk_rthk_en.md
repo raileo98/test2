@@ -1,3 +1,51 @@
+# Romantic Warrior finishes second in top Dubai race
+
+![Romantic Warrior (no.8) came agonisingly close to winning the Dubai Turf. Photo courtesy of the Hong Kong Jockey Club.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799101_1_20250406120651.jpg&q=90)
+  
+
+Hong Kong racing royalty Romantic Warrior came up just short at the Dubai Turf, as trainer Danny Shum's champion was edged by the slimmest of margins by Soul Rush from Japan in the early hours of Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799101-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799101-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799101-20250406.htm)
+
+---
+
+# 'AI guidelines push is to help prevent data leaks'
+
+![Privacy Commissioner Ada Chung says companies need to be careful about how much information they offer up to generative AI. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799103_1_20250406121958.jpg&q=85)
+  
+
+Hong Kong firms making use of generative artificial intelligence may run the risk of data breaches, Privacy Commissioner Ada Chung warned on Sunday, as she explained how new advice issued by her office will help mitigate the dangers.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799103-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799103-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799103-20250406.htm)
+
+---
+
 # Jaguar Land Rover to pause UK car shipments to US
 
 ![Britain's car industry, which employs 200,000 people directly, is highly exposed to the new US tariffs. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799089_1_20250406095114.jpg&q=90)
@@ -1388,54 +1436,5 @@ European Commission President Ursula von der Leyen described US President Donald
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm)
-
----
-
-# Heat sink Celtics for sixth straight win; Cavs roll on
-
-![Tyler Herro led the Heat with 25 points, as six other Miami players finished in double figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798766_1_20250403113553.jpg&q=90)
-![Donovan Mitchell's 27 points led the Cavs to their 61st win on the season. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798766_2_20250403113553.jpg&q=90)
-  
-
-The Miami Heat ended Boston's nine-game NBA winning streak with a 124-103 victory that pushed the reigning champion Celtics further behind Eastern Conference leaders Cleveland, who rallied to beat New York.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798766-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798766-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798766-20250403.htm)
-
----
-
-# Three traffic accidents disrupt early morning commute
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798758_1_20250403103909.jpg&q=80)
-  
-
-A series of traffic accidents disrupted early morning commutes on Thursday, with collisions occurring in quick succession along Lung Cheung Road and Ching Cheung Road.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798758-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798758-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798758-20250403.htm)
 
 ---
