@@ -1,3 +1,51 @@
+# 胡塞武裝稱美軍空襲也門西部島嶼
+
+![美軍空襲也門薩達的目標，一座建築物損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799147_1_20250407004000.jpg&q=75)
+  
+
+也門胡塞武裝控制的電視台報道，美軍周日對位於紅海的也門卡馬蘭島發動多次空襲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799147-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799147-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799147-20250407.htm)
+
+---
+
+# 英超利物浦2:3不敵富咸　修咸頓落敗篤定降班
+
+![利物浦不敵富咸，今季聯賽第二次落敗。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799146_1_20250407003512.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，榜首的利物浦失分，作客2:3不敵富咸，今季聯賽第二次輸波。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799146-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799146-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799146-20250407.htm)
+
+---
+
 # 教宗方濟各出院後首次公開露面　在聖伯多祿廣場發表簡短講話
 
 ![方濟各在聖伯多祿廣場出席為病人舉行的彌撒。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799145_1_20250406225457.jpg&q=85)
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799071-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799071-20250406.htm)
-
----
-
-# 以軍首次在加沙「莫拉格走廊」採取軍事行動
-
-![以軍說，部隊旨在搜尋並拆除剩餘的巴勒斯坦武裝組織軍事設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799070_1_20250406005343.jpg&q=90)
-  
-
-以色列國防軍稱，以軍第36師部隊已重返加沙地帶作戰，並開始在「莫拉格走廊」展開軍事行動。這是以色列國防軍首次在該區域展開行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799070-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799070-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799070-20250406.htm)
-
----
-
-# 緬甸大地震增至3471人死亡
-
-![緬甸大地震，曼德勒受災嚴重。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799069_1_20250406004522.jpg&q=90)
-  
-
-緬甸大地震，最新統計顯示，死亡人數增3471人，超過4000人受傷，另有214人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799069-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799069-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799069-20250406.htm)
 
 ---

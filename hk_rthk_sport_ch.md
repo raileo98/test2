@@ -1,3 +1,27 @@
+# 英超利物浦2:3不敵富咸　修咸頓落敗篤定降班
+
+![利物浦不敵富咸，今季聯賽第二次落敗。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799146_1_20250407003512.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，榜首的利物浦失分，作客2:3不敵富咸，今季聯賽第二次輸波。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799146-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799146-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799146-20250407.htm)
+
+---
+
 # 香港馬王浪漫勇士遠征中東三賽共奪一冠兩亞
 
 ![練馬師沈集成（右）率領「浪漫勇士」及其團隊，完成為期四個月的中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799133_1_20250406185624.jpg&q=90)
@@ -1435,29 +1459,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797406-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797406-20250326.htm)
-
----
-
-# 亞洲盃外圍賽港隊作客0:0賽和新加坡
-
-![亞洲盃外圍賽港隊作客0:0賽和新加坡。（中國香港足球總會社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797377_1_20250325230346.jpg&q=90)
-  
-
-亞洲盃外圍賽第三圈首場賽事，港隊作客0:0賽和新加坡，各得一分。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797377-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797377-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797377-20250325.htm)
 
 ---

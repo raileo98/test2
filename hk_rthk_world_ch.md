@@ -1,3 +1,27 @@
+# 胡塞武裝稱美軍空襲也門西部島嶼
+
+![美軍空襲也門薩達的目標，一座建築物損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799147_1_20250407004000.jpg&q=75)
+  
+
+也門胡塞武裝控制的電視台報道，美軍周日對位於紅海的也門卡馬蘭島發動多次空襲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799147-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799147-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799147-20250407.htm)
+
+---
+
 # 教宗方濟各出院後首次公開露面　在聖伯多祿廣場發表簡短講話
 
 ![方濟各在聖伯多祿廣場出席為病人舉行的彌撒。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799145_1_20250406225457.jpg&q=85)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798984-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798984-20250405.htm)
-
----
-
-# 特朗普：將簽行政命令讓TikTok運行多75日以便達成協議
-
-![特朗普說，政府一直致力達成拯救TikTok的協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798983_1_20250405021416.jpg&q=90)
-  
-
-美國總統特朗普在社交平台表示，將會簽署行政命令，讓中國字節跳動旗下短片分享平台TikTok運行多75日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798983-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798983-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798983-20250405.htm)
 
 ---
