@@ -1,3 +1,26 @@
+# 英超利物浦2:3富咸　曼聯0:0曼城
+
+  
+
+英格蘭超級足球聯賽，榜首的利物浦失分，作客2:3不敵富咸，今季聯賽第二次輸波。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799164-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799164-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799164-20250407.htm)
+
+---
+
 # 英超曼聯主場與曼城賽和0:0
 
 ![曼徹斯特打吡和氣收場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799152_1_20250407022746.jpg&q=90)
@@ -1435,29 +1458,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm)
-
----
-
-# 七欖周五起一連三日啟德體育園舉行　主場館上蓋周五關周六日打開
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797459_1_20250326125713.jpg&q=90)
-  
-
-香港國際七人欖球賽將於星期五起一連三日舉行。啟德體育園表示，為配合賽事，主場館上蓋將於星期五關閉，並於星期六及日打開。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797459-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797459-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797459-20250326.htm)
 
 ---
