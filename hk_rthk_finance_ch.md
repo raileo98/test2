@@ -1,3 +1,26 @@
+# 陳茂波堅決反對美國加徵關稅　本港保持警惕作好準備應對
+
+  
+
+美國將對香港的進口產品徵收對等關稅，財政司司長陳茂波表示堅決反對，又說此時此刻更須保持警惕，以底綫思維做好充分準備。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799097-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799097-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799097-20250406.htm)
+
+---
+
 # 鍾麗玲稱私隱公署有權介入AI事故　惟非「下下要咬人」
 
 ![鍾麗玲表示，早前開展的循規審查發現，機構一般都有安全風險意識。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799091_1_20250406103129.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm)
-
----
-
-# 美國上周首次申領失業救濟人數減至21.9萬人　少過預期
-
-![美國上星期首次申領失業救濟人數21.9萬人，按星期減少6000人，少過市場預期的22.5萬人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798857_1_20250403212430.jpg&q=80)
-  
-
-美國勞工部公布，美國上星期首次申領失業救濟人數21.9萬人，按星期減少6000人，少過市場預期的22.5萬人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798857-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798857-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798857-20250403.htm)
 
 ---

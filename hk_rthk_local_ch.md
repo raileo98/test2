@@ -1,3 +1,26 @@
+# 陳茂波堅決反對美國加徵關稅　本港保持警惕作好準備應對
+
+  
+
+美國將對香港的進口產品徵收對等關稅，財政司司長陳茂波表示堅決反對，又說此時此刻更須保持警惕，以底綫思維做好充分準備。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799097-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799097-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799097-20250406.htm)
+
+---
+
 # 專家稱本港百日咳個案處於低水平　未打疫苗兒童外遊需做好預防
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm)
-
----
-
-# 將軍澳海水化淡廠疑氯氣洩漏　消防到場戒備
-
-![將軍澳海水化淡廠上午一度懷疑有氯氣洩漏，消防員到場戒備。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798906_1_20250404102005.jpg&q=80)
-  
-
-將軍澳海水化淡廠上午一度懷疑有氯氣洩漏，消防員到場戒備，初步知道無人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm)
 
 ---
