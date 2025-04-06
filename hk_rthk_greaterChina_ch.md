@@ -1,3 +1,27 @@
+# 內地鐵路部門採取措施應對清明假期返程客流高峰
+
+![國家鐵路集團預計，今日全國鐵路預計發送旅客2000萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799122_1_20250406165744.jpg&q=85)
+  
+
+國家鐵路集團表示，小長假最後一天，全國鐵路預計發送旅客2000萬人次，計劃加開1214列旅客列車，鐵路部門有多項措施應對清明假期返程客流高峰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm)
+
+---
+
 # 中國國際救援隊聯同中國救援隊及中國香港救援隊續於緬甸災區義診
 
 ![央視新聞報道，中國國際救援隊聯同中國救援隊及中國香港救援隊，繼續在緬甸曼德勒市受災群眾安置點義診。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799109_1_20250406141841.jpg&q=85)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm)
-
----
-
-# 中國成功發射天平三號A星02星
-
-![中國在太原衛星發射中心使用長征六號運載火箭，成功將天平三號A星02星發射升空。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798760_1_20250403105807.jpg&q=90)
-  
-
-中國早上10時12分在太原衛星發射中心使用長征六號運載火箭，成功將天平三號A星02星發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798760-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798760-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798760-20250403.htm)
 
 ---

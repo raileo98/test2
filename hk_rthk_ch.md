@@ -1,3 +1,27 @@
+# 內地鐵路部門採取措施應對清明假期返程客流高峰
+
+![國家鐵路集團預計，今日全國鐵路預計發送旅客2000萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799122_1_20250406165744.jpg&q=85)
+  
+
+國家鐵路集團表示，小長假最後一天，全國鐵路預計發送旅客2000萬人次，計劃加開1214列旅客列車，鐵路部門有多項措施應對清明假期返程客流高峰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm)
+
+---
+
 # 南韓一架直升機在協助撲救山火期間墜毀　一名機師死亡
 
 ![南韓近期山火頻頻，大量房屋及建築物損毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799121_1_20250406162748.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799044-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799044-20250405.htm)
-
----
-
-# 柬埔寨雲壤海軍基地正式啟用　中柬派員維持正常運轉
-
-![柬埔寨首相洪瑪奈（前左）和中共中央軍委聯合參謀部副參謀長曹青鋒（前右）共同主持雲壤海軍基地啟用儀式。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799035_1_20250405154619.jpg&q=90)
-  
-
-由中國援助升級改造的柬埔寨雲壤海軍基地及訓練中心正式啟用，中國和柬埔寨將派駐必要人員共同維持中心正常運轉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm)
 
 ---
