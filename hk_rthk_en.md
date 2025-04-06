@@ -1,3 +1,27 @@
+# Foreigners run in Pyongyang Marathon, first in 6 years
+
+![Participants take part in the 31st Pyongyang International Marathon in Pyongyang. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799137_1_20250406204551.jpg&q=85)
+  
+
+North Korea said on Sunday that foreign elite runners arrived to take part in the first Pyongyang Marathon in six years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799137-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799137-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799137-20250406.htm)
+
+---
+
 # Recovering Pope makes surprise appearance in Vatican
 
 ![Pope Francis gestures as he appears for the first time since his return to the Vatican, in Saint Peter square, at the Vatican. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799132_1_20250406183756.jpg&q=90)
@@ -1411,30 +1435,5 @@ The Hong Kong, China, women's cycling team rode their way to victory at the thre
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm)
-
----
-
-# HK stocks joins markets in seeing red from tariffs
-
-![Stocks in Hong Kong ended the day down 1.52 percent at 22,849.81. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_1_20250403170035.jpg&q=80)
-![The Nikkei pared its losses to close 2.8 percent down. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_2_20250403170035.jpg&q=90)
-  
-
-Equity markets tumbled on Thursday after Donald Trump delivered a "haymaker" blow with sweeping tariffs against US partners and rivals, fanning a global trade war that many fear will spark recessions and ramp up inflation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm)
 
 ---

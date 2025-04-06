@@ -1,3 +1,27 @@
+# Foreigners run in Pyongyang Marathon, first in 6 years
+
+![Participants take part in the 31st Pyongyang International Marathon in Pyongyang. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799137_1_20250406204551.jpg&q=85)
+  
+
+North Korea said on Sunday that foreign elite runners arrived to take part in the first Pyongyang Marathon in six years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799137-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799137-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799137-20250406.htm)
+
+---
+
 # Red Bull's Verstappen wins Japanese GP from Norris
 
 ![Max Verstappen celebrates the win on the podium at Suzuka, Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799114_1_20250406151250.jpg&q=90)
@@ -1428,29 +1452,5 @@ The men’s and women’s squad from New Zealand are chasing their third straigh
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm)
-
----
-
-# NBA mulls over creation of a 10-strong European league
-
-![Elias Harris, left, goes for a shot against Jabari Parker during a match between Barcelona and Bayern Munich in the Spanish city. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797489_1_20250326150704.jpg&q=90)
-  
-
-The NBA is to review a proposal to create a European basketball league, a spokesperson has confirmed, after a report detailed a new competition that could feature up to 10 teams.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm)
 
 ---
