@@ -1,3 +1,26 @@
+# 日本長崎縣一架直升機在海上墜毀　3人失聯
+
+  
+
+日本共同社報道，日本一架直升機下午在長崎縣對馬市附近海域失聯，之後被發現已經在海上墜毀，3人失聯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm)
+
+---
+
 # 敏昂萊慰問中國救援隊伍　感謝震後到緬全力救援
 
 ![在緬甸曼德勒中國救援隊伍營地，緬甸領導人敏昂萊（前左一）慰問中國救援隊伍。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799134_1_20250406200019.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798980-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798980-20250405.htm)
-
----
-
-# 呂特：烏克蘭加入北約不屬俄烏衝突解決方案一部分
-
-![呂特說，北約從未向烏方承諾北約成員國身份是俄烏衝突解決方案一部分。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798979_1_20250405003927.jpg&q=90)
-  
-
-北約秘書長呂特表示，烏克蘭加入北約不屬於俄烏衝突解決方案的一部分。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798979-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798979-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798979-20250405.htm)
 
 ---

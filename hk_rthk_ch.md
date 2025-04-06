@@ -1,3 +1,26 @@
+# 日本長崎縣一架直升機在海上墜毀　3人失聯
+
+  
+
+日本共同社報道，日本一架直升機下午在長崎縣對馬市附近海域失聯，之後被發現已經在海上墜毀，3人失聯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm)
+
+---
+
 # 《人民日報》再發文指中國有強大抗壓能力面對美國關稅霸凌衝擊
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799066-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799066-20250406.htm)
-
----
-
-# 中柬兩軍啟動聯合演習　提高戰略協作水平
-
-![柬埔寨首相洪瑪奈（前中）出席中柬雲壤港聯合保障和訓練中心掛牌儀式。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799065_1_20250405230812.jpg&q=90)
-  
-
-中國和柬埔寨兩國的軍隊在中柬雲壤港聯合保障和訓練中心組織「金龍-2025」聯合演習啟動活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799065-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799065-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799065-20250405.htm)
 
 ---
