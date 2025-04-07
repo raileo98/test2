@@ -1,3 +1,27 @@
+# Trump calls tariffs havoc 'medicine'
+
+![Donald Trump speaks to reporters aboard Air Force One on his way back to the White House after a weekend of golf in Florida. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799234_1_20250407131818.jpg&q=90)
+  
+
+US President Donald Trump warned foreign governments they would have to pay "a lot of money" to lift sweeping tariffs, characterising the duties as "medicine" and triggering further carnage across global financial markets on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799234-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799234-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799234-20250407.htm)
+
+---
+
 # Djokovic not setting sights high for Monte Carlo
 
 ![Novak Djokovic says his eye infection began during the recent Miami Open semi-finals. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799230_1_20250407125952.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump unveiled the first "gold card," a residency permit to 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm)
-
----
-
-# Israel kills Hamas 'commander' in Lebanon strike
-
-![The strike in a residential area of Sidon killed the official and his adult son and daughter. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798944_1_20250404164812.jpg&q=85)
-  
-
-Israel said it killed a commander of the Palestinian militant group Hamas on Friday in a strike in the Lebanese port city of Sidon that also killed his adult son and daughter.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm)
 
 ---
