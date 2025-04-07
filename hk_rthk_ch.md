@@ -1,3 +1,26 @@
+# 城大男學生涉食堂及圖書館內襲警等　被控6罪押後至本月16日
+
+  
+
+城市大學上周發生校園襲擊事件，一名內地男學生涉嫌在食堂及圖書館內向數名男女施襲，被到場的警員以胡椒噴霧制服。涉案男子被控6項罪名，早上在西九龍裁判法院應訊，裁判官李志豪聽畢控辯雙方陳詞，拒絕被告保釋申請，案件押後至本月16日，待取兩份精神科報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799226-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799226-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799226-20250407.htm)
+
+---
+
 # 廣東稱要全面推進鄉村振興　辦好鄉村文藝晚會
 
   
@@ -1405,29 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm)
-
----
-
-# Coldplay演唱會　觀眾可攜不超600毫升塑膠樽或杯進場
-
-![英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會。（Cityline 網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799143_1_20250406221634.jpg&q=90)
-  
-
-英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會。主辦單位在社交專頁表示，觀眾可攜帶容量不超過600毫升的塑料或硅膠可重用便攜式水瓶或杯進場。不過，有關容器超過600毫升不可帶入場，另外觀眾亦不可攜帶即棄膠樽裝飲品的空樽、玻璃瓶或杯、鋁罐、保溫瓶或杯，以及不鏽鋼瓶或杯進場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm)
 
 ---

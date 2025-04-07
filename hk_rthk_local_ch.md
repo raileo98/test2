@@ -1,3 +1,26 @@
+# 城大男學生涉食堂及圖書館內襲警等　被控6罪押後至本月16日
+
+  
+
+城市大學上周發生校園襲擊事件，一名內地男學生涉嫌在食堂及圖書館內向數名男女施襲，被到場的警員以胡椒噴霧制服。涉案男子被控6項罪名，早上在西九龍裁判法院應訊，裁判官李志豪聽畢控辯雙方陳詞，拒絕被告保釋申請，案件押後至本月16日，待取兩份精神科報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799226-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799226-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799226-20250407.htm)
+
+---
+
 # 周一鳴稱首要工作維護國安　指國安法對創作無影響
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm)
-
----
-
-# 凌嘉勤：房協兩資助出售房屋項目至今收逾４千申請　反映剛性需求
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799021_1_20250405114734.jpg&q=90)
-  
-
-房協推售兩個分別位於觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，提供1604個單位，售價約為市值7折，本月1日至14日接受合資格人士申請。房協主席凌嘉勤表示，目前已收到超過4000份申請，較供應單位數目翻倍，反映剛性置業需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799021-20250405.htm)
 
 ---
