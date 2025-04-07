@@ -1,3 +1,27 @@
+# 'Govt will stay vigilant over market changes'
+
+![Joseph Chan's reassurance comes after a black Monday for equity markets that saw the Hang Seng Index plunge more than 10 percent in opening trades. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799235_1_20250407134313.jpg&q=90)
+  
+
+Under Secretary for Financial Services and the Treasury Joseph Chan said on Monday the government will pay close attention to the stock market and ensure that the city remains financial stable.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm)
+
+---
+
 # Trump calls tariffs havoc 'medicine'
 
 ![Donald Trump speaks to reporters aboard Air Force One on his way back to the White House after a weekend of golf in Florida. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799234_1_20250407131818.jpg&q=90)
@@ -1411,29 +1435,5 @@ China on Friday announced the imposition of tariffs of 34 percent on all goods f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm)
-
----
-
-# Trump unveils first US$5 million 'gold card' visa
-
-![Donald Trump claims that sales of the new visa will bring in job creators and could be used to reduce the US national deficit. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798945_1_20250404165741.jpg&q=90)
-  
-
-US President Donald Trump unveiled the first "gold card," a residency permit to be sold for US$5 million each, aboard Air Force One on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm)
 
 ---
