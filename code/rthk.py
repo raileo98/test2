@@ -68,12 +68,12 @@ session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 
 # 隨機選擇 User-Agent，模擬不同瀏覽器
 userAgent = [
-    'Mozilla/5.0 (Windows NT 10.0; Win64; x64; rv:132.0) Gecko/20100101 Firefox/132.0',
-    'Mozilla/5.0 (Windows NT 10.0; Win64; x64; rv:131.0) Gecko/20100101 Firefox/131.0',
-    'Mozilla/5.0 (Windows NT 10.0; Win64; x64; rv:130.0) Gecko/20100101 Firefox/130.0',
-    'Mozilla/5.0 (Android 10; Mobile; rv:130.0) Gecko/130.0 Firefox/130.0',
-    'Mozilla/5.0 (Android 10; Mobile; rv:131.0) Gecko/131.0 Firefox/131.0',
-    'Mozilla/5.0 (Android 10; Mobile; rv:132.0) Gecko/132.0 Firefox/132.0',
+    'Mozilla/5.0 (Windows NT 10.0; Win64; x64; rv:137.0) Gecko/20100101 Firefox/137.0',
+    'Mozilla/5.0 (Windows NT 10.0; Win64; x64; rv:136.0) Gecko/20100101 Firefox/136.0',
+    'Mozilla/5.0 (Windows NT 10.0; Win64; x64; rv:135.0) Gecko/20100101 Firefox/135.0',
+    'Mozilla/5.0 (Android 10; Mobile; rv:137.0) Gecko/137.0 Firefox/137.0',
+    'Mozilla/5.0 (Android 10; Mobile; rv:136.0) Gecko/136.0 Firefox/136.0',
+    'Mozilla/5.0 (Android 10; Mobile; rv:135.0) Gecko/135.0 Firefox/135.0',
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
 
@@ -109,8 +109,8 @@ def check_urls():
     for url in urls:
         try:
             headers = dict(session.headers)
-            headers['Cache-Control'] = 'no-cache'  # 不使用緩存
-            headers['Pragma'] = 'no-cache'
+            # headers['Cache-Control'] = 'no-cache'  # 不使用緩存
+            # headers['Pragma'] = 'no-cache'
             headers['User-Agent'] = secrets.choice(userAgent)
             response = session.get(url, timeout=2, headers=headers)
             
