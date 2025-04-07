@@ -1,3 +1,27 @@
+# 恒指跌幅擴大至逾3000點　創歷來最大點數跌幅
+
+![恒生指數較早時報19812點，跌3037點，跌幅逾13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799251_1_20250407153556.jpg&q=60)
+  
+
+貿易戰陰霾拖低環球股市，港股失守2萬點關口，跌幅擴大至逾3000點，創歷來最大點數跌幅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm)
+
+---
+
 # 新生嬰兒獎勵金計劃年底檢討　政府將檢視成效或有無需要調整
 
   
