@@ -17,7 +17,7 @@ on:
 
 jobs:
   deploy:
-    timeout-minutes: 10
+    timeout-minutes: 60
     runs-on: ubuntu-latest
 
     steps:
@@ -390,7 +390,7 @@ jobs:
         echo "8.9 - 完成安裝依賴"
 
     - name: Step 9 - 執行 Python 腳本
-      timeout-minutes: 10
+      timeout-minutes: 60
       run: |
         echo "9.1 - 開始執行 Python 腳本"
         python3 code/rthk.py
