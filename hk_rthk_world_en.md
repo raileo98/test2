@@ -120,7 +120,7 @@ Japan's Nikkei share index plunged further on Monday, as US futures pointed to a
 
 # Second US child dies of measles, almost 650 ill
 
-![People stand outside a church after the funeral for an eight-year-old girl who died of measles in Seminole, Texas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799174_1_20250407083943.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799174_1_20250407083943.jpg&q=90)
   
 
 A measles outbreak has killed a second child in the southwestern United States, authorities said on Sunday, with almost 650 people now infected as the highly-contagious disease spreads.

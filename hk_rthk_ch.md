@@ -1,3 +1,51 @@
+# 港股跌勢加劇　恒指跌逾2600點
+
+![恒指較早時報20238點，跌2611點，跌幅11.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799232_1_20250407131404.jpg&q=90)
+  
+
+市場恐慌情緒持續，恒指跌勢進一步加劇，跌幅超過2600點，較早時報20238點，跌2611點，跌幅11.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799232-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799232-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799232-20250407.htm)
+
+---
+
+# 恒指下午初段跌近2460點
+
+![恒指較早時報20392點，跌2457點，跌幅10.8%。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799231_1_20250407130442.jpg&q=90)
+  
+
+港股下午延續跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799231-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799231-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799231-20250407.htm)
+
+---
+
 # 澳洲財長：澳洲能應對美國關稅直接影響　但經濟增長受到衝擊
 
 ![澳洲財長查默斯表示，澳洲能夠應對美國實施關稅的直接影響，但澳洲經濟將受到打擊。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799228_1_20250407124743.jpg&q=85)
@@ -24,6 +72,7 @@
 
 # 男子攜私煙抵港判囚7個月5日　海關稱判刑具阻嚇作用
 
+![海關對判刑表示歡迎，認為具相當阻嚇作用，充分反映罪行的嚴重性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799229_1_20250407131242.jpg&q=80)
   
 
 一名入境男子因進口未完稅香煙及未有向海關人員申報，違反《應課稅品條例》，以及進口另類吸煙產品，違反《進出口條例》，日前在西九龍裁判法院被判監禁7個月零5日。海關對判刑表示歡迎，認為具相當阻嚇作用，充分反映罪行的嚴重性。
@@ -71,6 +120,7 @@
 
 # 廣東稱要全面推進鄉村振興　辦好鄉村文藝晚會
 
+![廣東當局指，今年是「百千萬工程」的重要節點，要全面推進鄉村振興，發展文旅、辦好「廣東村晚」。（受訪者社交平台截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799224_1_20250407131336.jpg&q=85)
   
 
 廣東省政府指，今年是「百縣千鎮萬村高質量發展工程」，簡稱「百千萬工程」的重要節點，要全面推進鄉村振興，包括辦好「廣東村晚」，即是鄉村文藝晚會。

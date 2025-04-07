@@ -1,4 +1,4 @@
-# Djokovic not setting sights for Monte Carlo
+# Djokovic not setting sights high for Monte Carlo
 
 ![Novak Djokovic says his eye infection began during the recent Miami Open semi-finals. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799230_1_20250407125952.jpg&q=90)
   
