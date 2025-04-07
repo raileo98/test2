@@ -1,3 +1,51 @@
+# SAR 'committed to promoting Web3 development'
+
+![Paul Chan says the government will enable Web3 to grow in a responsible and sustainable manner. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799210_1_20250407112528.jpg&q=85)
+  
+
+The financial secretary said on Monday Hong Kong is committed to creating a promising and successful future for Web3, or third generation Internet, development.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm)
+
+---
+
+# Ghibli-style AI art can't match real animation: expert
+
+![The new feature transforms photos into the soft pastel palette style of Studio Ghibli. Photo courtesy of Raj Shroff](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799213_1_20250407113648.jpg&q=90)
+  
+
+A tech expert says people still prefer authentic animation over AI-generated art, despite ChatGPT's popular new function that creates Ghibli-style images.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799213-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799213-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799213-20250407.htm)
+
+---
+
 # HK triathletes clinch bronze on home soil
 
 ![The SAR team won third in the mixed relay on home soil. Screencap courtesy of Triathlon Association of Hong Kong China](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799202_1_20250407110223.jpg&q=90)
@@ -1387,53 +1435,5 @@ Officials have brushed off concerns that landlords might be hesitant about getti
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm)
-
----
-
-# HK 'remains art hub despite global market decline'
-
-![Lindsay Dewar says declining sales at events such as Art Basel Hong Kong reflect a global trend. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798264_1_20250331161511.jpg&q=90)
-  
-
-Hong Kong just wrapped up another year of art festivals, including Art Basel and Art Central this month, and they have led an investor to say the city remains an important hub for the market.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm)
-
----
-
-# Data breach of 128,000 'due to system fix and neglect'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798251_1_20250331144559.jpg&q=80)
-  
-
-The Office of the Privacy Commissioner for Personal Data says a data breach incident by ImagineX has led to nearly 128,000 people’s information being compromised.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm)
 
 ---

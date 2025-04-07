@@ -1,3 +1,51 @@
+# SAR 'committed to promoting Web3 development'
+
+![Paul Chan says the government will enable Web3 to grow in a responsible and sustainable manner. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799210_1_20250407112528.jpg&q=85)
+  
+
+The financial secretary said on Monday Hong Kong is committed to creating a promising and successful future for Web3, or third generation Internet, development.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm)
+
+---
+
+# Ghibli-style AI art can't match real animation: expert
+
+![The new feature transforms photos into the soft pastel palette style of Studio Ghibli. Photo courtesy of Raj Shroff](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799213_1_20250407113648.jpg&q=90)
+  
+
+A tech expert says people still prefer authentic animation over AI-generated art, despite ChatGPT's popular new function that creates Ghibli-style images.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799213-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799213-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799213-20250407.htm)
+
+---
+
 # HK triathletes clinch bronze on home soil
 
 ![The SAR team won third in the mixed relay on home soil. Screencap courtesy of Triathlon Association of Hong Kong China](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799202_1_20250407110223.jpg&q=90)
@@ -1387,53 +1435,5 @@ People on Friday flocked to cemeteries to pay their respects to their ancestors 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm)
-
----
-
-# Five men arrested in relation to child pornography
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798927_1_20250404125856.jpg&q=90)
-  
-
-Police on Friday said five local men were arrested in relation to child pornography, as officers warned about AI-generated pornographic images.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798927-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798927-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798927-20250404.htm)
-
----
-
-# Youtube megastar IShowSpeed arrives in Hong Kong
-
-![Popular streamer IShowSpeed took part in "villain-hitting" in Causeway Bay. Photo: YouTube/IShowSpeed](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798924_1_20250404125426.jpg&q=90)
-  
-
-Youtube mega-star I-Show-Speed arrived in Hong Kong on Friday, after a live stream tour across the mainland, and has made his way around Causeway Bay before seeing the pandas at Ocean Park.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm)
 
 ---

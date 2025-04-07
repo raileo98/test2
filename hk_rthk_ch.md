@@ -1,5 +1,29 @@
+# 消防及救護學院設國家安全教育資源中心　設主題消防車供「打卡」
+
+  
+
+本月15日是全民國家安全教育日，6支紀律部隊和兩個輔助隊伍由昨日起一連9日，發布影片介紹部門具意義的國家安全物品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799212-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799212-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799212-20250407.htm)
+
+---
+
 # 航班上今起不能用外置充電器　乘客稱影響不大上機前會為手機充電
 
+![今天起乘客不得在航班上使用外置充電器為其他便攜式電子裝置、不得為外置充電器充電、亦不得把外置充電器放置於行李架上。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799211_1_20250407113540.jpg&q=90)
   
 
 由今天起，飛機乘客不得在航班上使用外置充電器為其他便攜式電子裝置、不得為外置充電器充電、亦不得把外置充電器放置於行李架上。
@@ -69,6 +93,7 @@
 
 # 加強大眾對國安20個重點領域意識　周一鳴稱國安法非洪水猛獸
 
+![周一鳴說，有人嘗試污衊本港國安法並認為不應立法，猶如「把家中門窗拆掉」，會繼續危害本港安全。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799206_1_20250407113511.jpg&q=90)
   
 
 警務處處長周一鳴接受報章訪問表示，國安法與其他法例無分別，跟兇殺同屬嚴重罪行，只是國安法屬「重中之中」。由於大多市民的認知停留於調查工作，日後要加強大眾對國安20個重點領域的意識，例如經濟安全及網絡安全。對於剛卸任警務處處長的蕭澤頤被美國制裁，他強調對此「嗤之以鼻」，日後會繼續加強情報蒐集及主導工作。
@@ -92,6 +117,7 @@
 
 # 張李佳蕙獲委任為機管局新任行政總裁　任期今日起生效
 
+![機管局新任行政總裁張李佳蕙的3年任期今日起生效。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799205_1_20250407113440.jpg&q=90)
   
 
 機管局新任行政總裁張李佳蕙的3年任期今日起生效。
@@ -1405,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799133-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799133-20250406.htm)
-
----
-
-# 盧寵茂指公立醫院收費改革增保障　預約日無出現應付成本
-
-![盧寵茂強調能夠為市民增加保障，猶如政府送出一份保險一樣。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799131_1_20250406185601.jpg&q=90)
-  
-
-公立醫院收費改革首階段明年元旦起實施。至於方案有無微調空間，醫務衞生局局長盧寵茂強調，收費改革已討論多時，強調能為市民增加保障，就如政府送出一份保險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm)
 
 ---
