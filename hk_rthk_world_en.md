@@ -240,10 +240,10 @@ France's Marine Le Pen on Sunday invoked Martin Luther King's struggle for civil
 
 # Recovering Pope makes surprise appearance in Vatican
 
-![Pope Francis gestures as he appears for the first time since his return to the Vatican, in Saint Peter square, at the Vatican. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799132_1_20250406183756.jpg&q=90)
+![Pope Francis gestures as he appears for the first time since his return to the Vatican, in Saint Peter Square, at the Vatican. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799132_1_20250406183756.jpg&q=90)
   
 
-Pope Francis, who is recovering after a serious case of pneumonia, made a surprise public appearance Sunday as he mingled with crowds at the Vatican just two weeks after leaving hospital.
+Pope Francis, who is recovering after a serious case of pneumonia, made a surprise public appearance on Sunday as he mingled with crowds at the Vatican just two weeks after leaving hospital.
 
   
 
@@ -267,7 +267,7 @@ Pope Francis, who is recovering after a serious case of pneumonia, made a surpri
 ![Demonstrators are seen while thousands of pro-Palestine protestors gather in front of the U.S. Capitol in Washington DC, on April 5, 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799127_1_20250406174947.jpg&q=90)
   
 
-Britain's Foreign Secretary David Lammy said on Saturday it was "unacceptable" and deeply concerning that Israel had detained two UK lawmakers and denied them entry.
+Britain's Foreign Secretary David Lammy said it was "unacceptable" and deeply concerning that Israel had detained two UK lawmakers and denied them entry.
 
   
 

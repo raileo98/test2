@@ -1,3 +1,26 @@
+# 田北辰關注前特首辦搬去將重建物業　行政署形容物盡其用
+
+  
+
+立法會財委會一連五日舉行8次共21個環節的特別會議，審議25/26年度政府開支預算。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799246-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799246-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799246-20250407.htm)
+
+---
+
 # 報道指33名區議員八成大會無發言　麥美娟：非為發言而發言
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799238_1_20250407140234.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799026-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799026-20250405.htm)
-
----
-
-# 啟德青年驛站旅舍　由中國旅遊集團旗下博盛文旅營運須自負盈虧
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799025_1_20250405143248.jpg&q=80)
-  
-
-去年《施政報告》提出改造啟德社區隔離設施作為「青年驛站」旅舍，以及青年文化藝術與體育交流空間。民政及青年事務局局長麥美娟表示，標書審議工作已經完成，由中國旅遊集團旗下公司為主要股東的博盛文旅有限公司作為營運團體，香港中旅發展及帝盛酒店集團為協辦機構，合作營運青年發展設施，租約期為5年，營運團體需要自負盈虧。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799025-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799025-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799025-20250405.htm)
 
 ---

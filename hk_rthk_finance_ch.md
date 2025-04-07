@@ -1,3 +1,27 @@
+# 日股急挫近8%
+
+![日經指數一度跌近9%，收市報31136點，跌2644點，跌幅7.83%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799244_1_20250407150505.jpg&q=90)
+  
+
+日股一度急跌近3000點，日經指數早段失守31000點，低見30792點，跌幅近9%，收市報31136點，跌2644點，跌幅7.83%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799244-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799244-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799244-20250407.htm)
+
+---
+
 # 台股急挫9.7%　創有紀錄以來最大跌幅
 
 ![台灣加權指數收市報19232點，跌2065點，跌幅9.7%，創有紀錄以來最大跌幅。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799242_2_20250407145427.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798986-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798986-20250405.htm)
-
----
-
-# 歐洲3大指數挫逾4%至近5%　倫敦指數錄約5年最大單日跌幅
-
-![美國公布對等關稅，觸發市場動盪。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798982_1_20250405013609.jpg&q=90)
-  
-
-市場對貿易戰的預期升溫，歐洲3大指數全線下挫，跌幅超過4%至近5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798982-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798982-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798982-20250405.htm)
 
 ---
