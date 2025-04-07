@@ -1,3 +1,27 @@
+# 台股急挫9.7%　創有紀錄以來最大跌幅
+
+![台灣加權指數收市報19232點，跌2065點，跌幅9.7%，創有紀錄以來最大跌幅。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799242_2_20250407145427.jpg&q=90)
+  
+
+台灣股市重挫近10%收市，創有紀錄以來最大跌幅。重磅股份台積電及鴻海觸及10%跌停板。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799242-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799242-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799242-20250407.htm)
+
+---
+
 # 證監會向持牌虛擬資產交易平台發出提供質押服務監管指引
 
 ![證監會向持牌虛擬資產交易平台發出有關提供質押服務的監管指引，以及向投資虛擬資產的證監會認可基金，提供有關參與質押活動的指引。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799236_1_20250407132948.jpg&q=90)

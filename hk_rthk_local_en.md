@@ -144,7 +144,7 @@ Hong Kong, China secured a bronze medal in the mixed relay at the Asia Triathlon
 
 # Five arrested in drink driving clampdown
 
-![An officer takes part in the operation in East Kowloon. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799170_1_20250407082147.jpg&q=85)
+![Five are arrested and verbal warnings are issued in the operation. Photo courtesy of Hong Kong police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799170_1_20250407082147.jpg&q=85)
   
 
 Traffic police in East Kowloon on Monday said they had arrested five drivers during a clampdown on drink driving over the weekend.
