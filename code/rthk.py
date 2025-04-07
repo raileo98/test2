@@ -248,7 +248,8 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
             return response
         
         except Exception as e:
-            if str(e).strip() == 'Cannot select a disposable connection to ease the charge':
+            # if str(e).strip() == 'Cannot select a disposable connection to ease the charge':
+            if str(e).strip().startswith('Cannot select a disposable connection to ease the charge'):
                 continue
             else:
                 print(f"請求 {url} 出錯: {e}，嘗試重試...")
