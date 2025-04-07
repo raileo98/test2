@@ -1,3 +1,50 @@
+# 恒指跌幅擴大至逾3000點　創歷來最大點數跌幅
+
+![恒生指數較早時報19812點，跌3037點，跌幅逾13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799251_1_20250407153556.jpg&q=60)
+  
+
+貿易戰陰霾拖低環球股市，港股失守2萬點關口，跌幅擴大至逾3000點，創歷來最大點數跌幅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm)
+
+---
+
+# 新生嬰兒獎勵金計劃年底檢討　政府將檢視成效或有無需要調整
+
+  
+
+立法會財委會舉行特別會議，審議25/26年度政府開支預算。工聯會議員鄧家彪關注，新生嬰兒二萬元獎勵金計劃運行1.4年，平均1年多了3萬名嬰兒出生，是否符合當局期望的成效，目前財政緊絀情況下，計劃在年底結束後會否恆常化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799252-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799252-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799252-20250407.htm)
+
+---
+
 # 議員關注增新聞主任職位　特首辦稱擴展新媒體及加強公關工作
 
   
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799039-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799039-20250405.htm)
-
----
-
-# 陳茂波：美國加徵關稅易引市場情緒反應　政府有監察機制建立緩衝
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799038_1_20250405155621.jpg&q=90)
-  
-
-財政司司長陳茂波出席香港新聞博覽館舉辦的論壇時表示，美國總統特朗普向全球各國加徵對等關稅，容易引起市場情緒反應，特別是在金融市場，特區政府已有監察機制，期望及早識別出問題，然後化解，以及建立一個較大的緩衝。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799038-20250405.htm)
-
----
-
-# 運輸署料今日較後時間及明日較多旅客陸路入境　籲預留充裕時間
-
-![運輸署預料今日較後時間及明日，將有較多跨境旅客使用各陸路管制站回港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799036_1_20250405155929.jpg&q=85)
-  
-
-運輸署預料今日較後時間及明日，將有較多跨境旅客使用各陸路管制站回港，呼籲入境旅客及早規劃行程，預留充裕交通時間，盡量選擇於非繁忙時段出行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm)
 
 ---

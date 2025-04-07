@@ -1,3 +1,27 @@
+# 恒指跌幅擴大至逾3000點　創歷來最大點數跌幅
+
+![恒生指數較早時報19812點，跌3037點，跌幅逾13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799251_1_20250407153556.jpg&q=60)
+  
+
+貿易戰陰霾拖低環球股市，港股失守2萬點關口，跌幅擴大至逾3000點，創歷來最大點數跌幅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm)
+
+---
+
 # 滬股跌逾7%　5年最大單日跌幅　中央匯金再次增持ETF
 
 ![內地股市顯著下挫，上證綜合指數跌幅7.34%，創5年最大單日跌幅。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799248_1_20250407152224.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm)
-
----
-
-# 金價曾挫逾3%　下試3000美元關口
-
-![現貨金一度跌逾3%，跌至每盎司3016美元水平，較早時徘徊3037美元，跌2.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798996_1_20250405055651.jpg&q=85)
-  
-
-金價下跌，貿易戰加劇引發投資者對全球經濟衰退的擔憂，投資者拋售黃金，以填補股市大跌帶來的損失。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm)
 
 ---
