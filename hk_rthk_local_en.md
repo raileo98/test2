@@ -1,3 +1,27 @@
+# Five arrested in drink driving clampdown
+
+![An officer takes part in the operation in East Kowloon. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799170_1_20250407082147.jpg&q=85)
+  
+
+Traffic police in East Kowloon on Monday said they had arrested five drivers during a clampdown on drink driving over the weekend.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm)
+
+---
+
 # Coldplay fans urged to plan journeys to Kai Tak
 
 ![The government said there will be special transport arrangements for the Coldplay concerts this week. Image from Coldplay's social media.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799115_1_20250406151732.jpg&q=90)
@@ -1411,29 +1435,5 @@ The Office of the Privacy Commissioner for Personal Data (PCPD) on Monday issued
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm)
-
----
-
-# CityU strikes global research deal with Cambridge
-
-![City University president Freddy Boey with University of Cambridge vice-chancellor Deborah Prentice at the signing ceremony. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798243_1_20250331135251.jpg&q=85)
-  
-
-The City University of Hong Kong (CityU) and the University of Cambridge signed a global research collaboration deal on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798243-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798243-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798243-20250331.htm)
 
 ---

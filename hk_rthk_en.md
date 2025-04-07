@@ -1,3 +1,51 @@
+# Five arrested in drink driving clampdown
+
+![An officer takes part in the operation in East Kowloon. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799170_1_20250407082147.jpg&q=85)
+  
+
+Traffic police in East Kowloon on Monday said they had arrested five drivers during a clampdown on drink driving over the weekend.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm)
+
+---
+
+# World scrambles to temper Trump tariffs
+
+![US President Donald Trump delivers remarks on tariffs in the Rose Garden at the White House, April 2, 2025. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799149_1_20250407011036.jpg&q=90)
+  
+
+More than 50 countries have sought talks with President Donald Trump in a scramble to ease punishing tariffs on exports to the United States, the White House said on Sunday, as trade partners braced for fallout.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm)
+
+---
+
 # Israeli forces kill US-Palestinian teen, says mayor
 
 ![The boy was shot dead in the West Bank town of Turmus Ayya. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799159_1_20250407060637.jpg&q=80)
@@ -1387,53 +1435,5 @@ The United States is the sole bidder for the 2031 Women's World Cup, and the Uni
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798854-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798854-20250403.htm)
-
----
-
-# Sinner doping woes blamed on ex-physio
-
-![Jannik Sinner's running afoul of anti-doping rules has been blamed on former physiotherapist Giacomo Naldi by physical trainer Umberto Ferrara. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798835_1_20250403184040.jpg&q=90)
-  
-
-Tennis world number one Jannik Sinner's former physical trainer Umberto Ferrara said on Thursday he was blameless in the case of the three-time Grand Slam champion testing positive twice for a banned substance.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm)
-
----
-
-# Sanctions on officials are 'insults to rule of law'
-
-![Law Society president Roden Tong takes issue with US targeting of public officials, lawyers or even businessmen for carrying out their duties. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798828_1_20250403175853.jpg&q=80)
-  
-
-Any sanctions imposed on public officers are "insults" to the rule of law, the head of Hong Kong's Law Society said on Thursday, days after the United States took action against six officials.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798828-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798828-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798828-20250403.htm)
 
 ---

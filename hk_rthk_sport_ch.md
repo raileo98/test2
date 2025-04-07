@@ -1,5 +1,6 @@
 # 英超利物浦2:3富咸　曼聯0:0曼城
 
+![利物浦作客2:3不敵富咸，今季聯賽第二次輸波。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799164_1_20250407080734.jpg&q=90)
   
 
 英格蘭超級足球聯賽，榜首的利物浦失分，作客2:3不敵富咸，今季聯賽第二次輸波。

@@ -1,3 +1,99 @@
+# 日股跌勢加劇　日經指數重挫近8%
+
+![日經指數較早時報31181點，跌2599點，跌幅7.7%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799172_1_20250407083530.jpg&q=90)
+  
+
+日股跌勢加劇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799172-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799172-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799172-20250407.htm)
+
+---
+
+# 韓股初段跌逾4.5%
+
+![首爾綜合指數較早時報2351點，跌114點，跌幅4.63%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799167_1_20250407080902.jpg&q=90)
+  
+
+南韓股市初段重挫逾4.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799167-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799167-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799167-20250407.htm)
+
+---
+
+# 日本2月實質薪酬連續兩個月下跌　按月跌1.2%
+
+![日本數據顯示，由於通脹上升，2月實際薪酬連續兩個月下跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799165_1_20250407081027.jpg&q=90)
+  
+
+日本數據顯示，由於通脹上升，2月實際薪酬連續兩個月下跌，按年跌1.2%，1月修正後按年跌2.8%。日本政府用以計算實質薪酬的通脹率為4.3%，低於1月的4.7%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799165-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799165-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799165-20250407.htm)
+
+---
+
+# 日股初段跌逾1100點
+
+![日經指數較早時報32590點，跌1189點，跌幅3.52%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799166_1_20250407080635.jpg&q=90)
+  
+
+東京股市初段延續跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799166-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799166-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799166-20250407.htm)
+
+---
+
 # 日圓兌美元升逾1%　油價跌3%或以上
 
 ![日圓兌美元升逾1%，較早時報145.09日圓。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799163_1_20250407070022.jpg&q=80)
@@ -1340,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm)
-
----
-
-# 特朗普暗示關稅帶來衝擊但美國經濟將變得強勁　白宮籲相信總統
-
-![美國總統特朗普公布的對等關稅措施引發市場動盪。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798874_1_20250404014823.jpg&q=90)
-  
-
-美國總統特朗普公布的對等關稅措施引發市場動盪後，特朗普在社交平台貼文，指手術已結束，病人存活過來並正在康復，預計會比以前更強大。外電解讀為特朗普承認關稅帶來衝擊，但美國經濟仍將會變得更強勁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm)
-
----
-
-# 世貿組織稱美國關稅措施或致全球商品貿易量今年萎縮約1%
-
-![伊維拉呼籲世貿成員防止貿易緊張局勢加劇。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798873_1_20250404012242.jpg&q=90)
-  
-
-世界貿易組織總幹事伊維拉表示，美國剛宣布的新關稅及今年年初以來推出的措施，可能導致今年全球商品貿易量整體萎縮約1%，較先前預測下調近四個百分點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm)
-
----
-
-# 加拿大反制　向不符合美墨加協定的美國進口汽車徵收25%關稅
-
-![卡尼指出，加拿大對美國貿易的嚴重依賴已經結束。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798871_1_20250404003303.jpg&q=90)
-  
-
-加拿大總理卡尼宣布，對所有不符合美墨加協定的美國進口汽車徵收25%關稅，回應美國從星期四起對所有進口汽車徵收25%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm)
-
----
-
-# 美元指數跌幅擴大至近2%　兌日圓跌穿146　離岸人民幣反彈
-
-![美元指數失守102水平，較早時報101.36，跌幅逾1.7%；美元兌日圓較早時跌逾2.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798869_1_20250403230641.jpg&q=85)
-  
-
-美國總統特朗普公布的對等關稅政策，較市場預期激進，金融市場顯著波動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798869-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798869-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798869-20250403.htm)
 
 ---

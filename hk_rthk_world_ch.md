@@ -1,3 +1,23 @@
+# 韓媒：南韓政府初步定於6月3日舉行總統選舉
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799173-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799173-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799173-20250407.htm)
+
+---
+
 # 也門胡塞武裝：美軍空襲薩那致4死16傷
 
 ![美軍周六空襲也門北部城市薩達，有建築物受損。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799157_1_20250407051701.jpg&q=65)
@@ -1415,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm)
-
----
-
-# 以軍稱近期行動剷除巴勒斯坦武裝組織兩名高級成員
-
-![以軍近期持續對加沙採取軍事行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799004_1_20250405093840.jpg&q=80)
-  
-
-以色列國防軍與國家安全總局發表聯合聲明指出，在近期對加沙地帶的軍事行動中，剷除巴勒斯坦武裝組織兩名高級成員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799004-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799004-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799004-20250405.htm)
 
 ---

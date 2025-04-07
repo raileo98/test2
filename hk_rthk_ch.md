@@ -1,5 +1,122 @@
+# 日股跌勢加劇　日經指數重挫近8%
+
+![日經指數較早時報31181點，跌2599點，跌幅7.7%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799172_1_20250407083530.jpg&q=90)
+  
+
+日股跌勢加劇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799172-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799172-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799172-20250407.htm)
+
+---
+
+# 韓媒：南韓政府初步定於6月3日舉行總統選舉
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799173-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799173-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799173-20250407.htm)
+
+---
+
+# 韓股初段跌逾4.5%
+
+![首爾綜合指數較早時報2351點，跌114點，跌幅4.63%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799167_1_20250407080902.jpg&q=90)
+  
+
+南韓股市初段重挫逾4.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799167-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799167-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799167-20250407.htm)
+
+---
+
+# 日本2月實質薪酬連續兩個月下跌　按月跌1.2%
+
+![日本數據顯示，由於通脹上升，2月實際薪酬連續兩個月下跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799165_1_20250407081027.jpg&q=90)
+  
+
+日本數據顯示，由於通脹上升，2月實際薪酬連續兩個月下跌，按年跌1.2%，1月修正後按年跌2.8%。日本政府用以計算實質薪酬的通脹率為4.3%，低於1月的4.7%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799165-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799165-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799165-20250407.htm)
+
+---
+
+# 日股初段跌逾1100點
+
+![日經指數較早時報32590點，跌1189點，跌幅3.52%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799166_1_20250407080635.jpg&q=90)
+  
+
+東京股市初段延續跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799166-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799166-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799166-20250407.htm)
+
+---
+
 # 英超利物浦2:3富咸　曼聯0:0曼城
 
+![利物浦作客2:3不敵富咸，今季聯賽第二次輸波。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799164_1_20250407080734.jpg&q=90)
   
 
 英格蘭超級足球聯賽，榜首的利物浦失分，作客2:3不敵富咸，今季聯賽第二次輸波。
@@ -1315,127 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799096-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799096-20250406.htm)
-
----
-
-# 美國多州惡劣天氣持續　最少16人因天氣相關原因死亡
-
-![美國國家氣象局預計多個州的數十個地點將達到該機構所界定的「重大洪水階段」。（美國國家氣象局網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799094_1_20250406114534.jpg&q=90)
-  
-
-美國多個州的惡劣天氣持續，南部和中西部部分地區，周六遭遇暴雨和洪水，加上近數日強風暴雨，亦出現龍捲風，令有關地區積水嚴重。天氣預報警告，部分地區的河水水位將於未來幾日持續上漲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799094-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799094-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799094-20250406.htm)
-
----
-
-# 「浪漫勇士」迪拜草地大賽以馬鼻之差僅敗
-
-![「浪漫勇士」(8號)在一級賽杜拜草地大賽(1800米)中，僅以些微距離負於日本代表「神志勇進」(9號)跑獲亞軍，完成中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799095_1_20250406105056.jpg&q=85)
-![「浪漫勇士」(8號)在一級賽杜拜草地大賽(1800米)中跑獲亞軍，累積獎金增至近二億一千五百萬港元，其累積獎金繼續冠絕全球賽駒。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799095_2_20250406105056.jpg&q=90)
-![練馬師沈集成（右）率領「浪漫勇士」及其團隊，完成為期四個月的中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799095_3_20250406105056.jpg&q=90)
-  
-
-香港馬王「浪漫勇士」於阿聯酋出戰迪拜草地大賽，衝線時以馬鼻之差，不敵日本賽駒「神志勇進」得第二；總結遠征中東三場賽事，「浪漫勇士」共奪得一冠兩亞。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799095-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799095-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799095-20250406.htm)
-
----
-
-# 葉柏強：疫後兒童性侵個案增加　部分涉互聯網
-
-![葉柏強留意到近年社署有關虐兒數據庫中，超過三分一的個案涉及性侵。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799093_1_20250406121156.jpg&q=90)
-  
-
-港大臨床醫學學院兒童及青少年科學系臨床教授葉柏強表示，疫後復常以來，整體虐兒個案數字一直大幅上升包括入院個案，當中涉及性侵個案亦增加。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799093-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799093-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799093-20250406.htm)
-
----
-
-# 以色列承認上月加沙15名緊急救援人員被殺事件中以軍犯錯
-
-![救援隊在其中一名遇害救援人員身上找到一部手機，內存這段長5分鐘的錄影片段。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799090_1_20250406114418.jpg&q=90)
-  
-
-以色列承認上月於加沙南部有15名緊急救援人員被殺的事件中，以軍士兵犯錯，但強調最少6名死者與巴勒斯坦武裝組織哈馬斯有關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799090-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799090-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799090-20250406.htm)
-
----
-
-# 紀律部隊及輔助隊伍一連9日介紹國安物品　警務處首日登場
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799092_1_20250406103550.jpg&q=80)
-  
-
-本月15日是全民國家安全教育日，6支紀律部隊和兩個輔助隊伍由今日起一連9日，發布影片介紹部門具意義的國家安全物品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799092-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799092-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799092-20250406.htm)
 
 ---

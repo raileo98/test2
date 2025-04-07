@@ -1,3 +1,27 @@
+# World scrambles to temper Trump tariffs
+
+![US President Donald Trump delivers remarks on tariffs in the Rose Garden at the White House, April 2, 2025. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799149_1_20250407011036.jpg&q=90)
+  
+
+More than 50 countries have sought talks with President Donald Trump in a scramble to ease punishing tariffs on exports to the United States, the White House said on Sunday, as trade partners braced for fallout.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm)
+
+---
+
 # Israeli forces kill US-Palestinian teen, says mayor
 
 ![The boy was shot dead in the West Bank town of Turmus Ayya. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799159_1_20250407060637.jpg&q=80)
@@ -1411,29 +1435,5 @@ Myanmar will mark a minute of silence on Tuesday in tribute to victims of the co
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm)
-
----
-
-# Nasa's astronauts speak after unexpected stay in space
-
-![Nasa astronauts, from left - Nick Hague, Suni Williams and Butch Wilmore - speak out for the first time since their return to Earth. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798377_1_20250401090640.jpg&q=90)
-  
-
-Nasa astronauts Butch Wilmore and Suni Williams said on Monday that they hold themselves partly responsible for what went wrong on their extended stay in space and would fly on Boeing's Starliner again.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm)
 
 ---
