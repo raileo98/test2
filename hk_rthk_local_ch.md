@@ -1,3 +1,26 @@
+# 報道指33名區議員八成大會無發言　麥美娟：非為發言而發言
+
+  
+
+民政及青年事務局局長麥美娟表示，區議會今年會推出加強版的區議員「會見市民計劃」，區議員會透過「流動會客室」的方式，在各區設立街站，加強與市民接觸，令他們可以多向區議員表達意見。她希望市民多支持和參與，各區稍後會因應情況，公布這些街站的時間表和地點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799238-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799238-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799238-20250407.htm)
+
+---
+
 # 男子攜私煙抵港判囚7個月5日　海關稱判刑具阻嚇作用
 
 ![海關對判刑表示歡迎，認為具相當阻嚇作用，充分反映罪行的嚴重性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799229_1_20250407131242.jpg&q=80)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799025-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799025-20250405.htm)
-
----
-
-# 香港工商界代表稱業界對美國大幅加徵關稅感無奈
-
-![有香港工商界代表，呼籲不要自亂陣腳，要積極開拓其他市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799024_1_20250405124607.jpg&q=90)
-  
-
-美國對全球多國徵收「對等關稅」，其中對華累計關稅增至54%。中國作出反制措施，下星期四起，對原產於美國的所有進口商品加徵34%關稅等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799024-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799024-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799024-20250405.htm)
 
 ---
