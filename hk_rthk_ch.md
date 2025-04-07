@@ -1,3 +1,75 @@
+# 證監會向持牌虛擬資產交易平台發出提供質押服務監管指引
+
+![證監會向持牌虛擬資產交易平台發出有關提供質押服務的監管指引，以及向投資虛擬資產的證監會認可基金，提供有關參與質押活動的指引。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799236_1_20250407132948.jpg&q=90)
+  
+
+證監會分別向持牌虛擬資產交易平台發出有關提供質押服務的監管指引，以及向投資虛擬資產的證監會認可基金，提供有關參與質押活動的指引。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799236-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799236-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799236-20250407.htm)
+
+---
+
+# 商務部召開美資企業圓桌會　Tesla等20多間企業參加
+
+![商務部表示，美國以各種借口宣布對包括中國在內的所有貿易伙伴濫施關稅，嚴重損害以規則為基礎的多邊貿易體制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799240_1_20250407141600.jpg&q=75)
+  
+
+商務部昨日召開美資企業圓桌會，電動汽車生產商Tesla等20多間美資企業參加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799240-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799240-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799240-20250407.htm)
+
+---
+
+# 恒指失守2萬點關口　跌近2900點
+
+![恒生指數較早時報19973點，跌2875點，跌幅近13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799239_1_20250407140918.jpg&q=90)
+  
+
+港股失守2萬點，恒生指數較早時報19973點，跌2875點，跌幅近13%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799239-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799239-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799239-20250407.htm)
+
+---
+
 # 剛果民主共和國暴雨成災　首都金沙薩升至33人死亡
 
 ![金沙薩多條主要道路被淹浸，交通主要道路癱瘓，多區停水停電。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799233_1_20250407131955.jpg&q=90)
@@ -48,6 +120,7 @@
 
 # 報道指33名區議員八成大會無發言　麥美娟：非為發言而發言
 
+![麥美娟相信市民都希望區議員善用會議時間，而非「為發言而發言」，為達到某些數字而重複意見。（周國安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799238_1_20250407140234.jpg&q=90)
   
 
 民政及青年事務局局長麥美娟表示，區議會今年會推出加強版的區議員「會見市民計劃」，區議員會透過「流動會客室」的方式，在各區設立街站，加強與市民接觸，令他們可以多向區議員表達意見。她希望市民多支持和參與，各區稍後會因應情況，公布這些街站的時間表和地點。

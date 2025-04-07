@@ -1,3 +1,75 @@
+# 證監會向持牌虛擬資產交易平台發出提供質押服務監管指引
+
+![證監會向持牌虛擬資產交易平台發出有關提供質押服務的監管指引，以及向投資虛擬資產的證監會認可基金，提供有關參與質押活動的指引。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799236_1_20250407132948.jpg&q=90)
+  
+
+證監會分別向持牌虛擬資產交易平台發出有關提供質押服務的監管指引，以及向投資虛擬資產的證監會認可基金，提供有關參與質押活動的指引。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799236-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799236-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799236-20250407.htm)
+
+---
+
+# 商務部召開美資企業圓桌會　Tesla等20多間企業參加
+
+![商務部表示，美國以各種借口宣布對包括中國在內的所有貿易伙伴濫施關稅，嚴重損害以規則為基礎的多邊貿易體制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799240_1_20250407141600.jpg&q=75)
+  
+
+商務部昨日召開美資企業圓桌會，電動汽車生產商Tesla等20多間美資企業參加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799240-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799240-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799240-20250407.htm)
+
+---
+
+# 恒指失守2萬點關口　跌近2900點
+
+![恒生指數較早時報19973點，跌2875點，跌幅近13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799239_1_20250407140918.jpg&q=90)
+  
+
+港股失守2萬點，恒生指數較早時報19973點，跌2875點，跌幅近13%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799239-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799239-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799239-20250407.htm)
+
+---
+
 # 港股跌勢加劇　恒指跌逾2600點
 
 ![恒指較早時報20238點，跌2611點，跌幅11.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799232_1_20250407131404.jpg&q=90)
@@ -1362,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm)
-
----
-
-# 中國反制美國　道指早段曾瀉逾1700點
-
-![中國推出關稅措施反制美國，美股3大指數連續第二日下挫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798975_1_20250404230200.jpg&q=90)
-  
-
-中國推出關稅措施反制美國，美股3大指數連續第二日下挫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm)
-
----
-
-# 劉兆佳指中方反制肯定不只是姿態　莊太量料或引發小股災
-
-![國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798972_1_20250404220059.jpg&q=80)
-  
-
-全國港澳研究會顧問劉兆佳分析，中方以組合拳方式反制美國，肯定不會只是姿態，形容一定要令對方感到痛苦。而香港亦要研究是否對美國進口貨品施加關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm)
-
----
-
-# 中國出多招反制美國　包括向原產美國的進口商品加34%關稅
-
-![中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798971_1_20250404220458.jpg&q=75)
-  
-
-中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm)
 
 ---

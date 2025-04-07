@@ -1,3 +1,27 @@
+# 商務部召開美資企業圓桌會　Tesla等20多間企業參加
+
+![商務部表示，美國以各種借口宣布對包括中國在內的所有貿易伙伴濫施關稅，嚴重損害以規則為基礎的多邊貿易體制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799240_1_20250407141600.jpg&q=75)
+  
+
+商務部昨日召開美資企業圓桌會，電動汽車生產商Tesla等20多間美資企業參加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799240-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799240-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799240-20250407.htm)
+
+---
+
 # 剛果民主共和國暴雨成災　首都金沙薩升至33人死亡
 
 ![金沙薩多條主要道路被淹浸，交通主要道路癱瘓，多區停水停電。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799233_1_20250407131955.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799032-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799032-20250405.htm)
-
----
-
-# SpaceX團隊完成人類首次載人圍繞地球兩極飛行任務
-
-![搭載飛船的火箭上月底從佛羅里達州的航天中心發射升空。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799031_1_20250405142718.jpg&q=90)
-  
-
-美國太空探索技術公司SpaceX的私人宇航團隊，完成人類首次載人圍繞地球兩極的飛行任務，4名機組人員搭乘龍飛船成功降落太平洋。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm)
 
 ---
