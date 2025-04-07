@@ -1,3 +1,27 @@
+# Djokovic not setting sights for Monte Carlo
+
+![Novak Djokovic says his eye infection began during the recent Miami Open semi-finals. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799230_1_20250407125952.jpg&q=90)
+  
+
+World No 5 Novak Djokovic, a finalist at the recent Miami Masters, said he did not have high expectations for the Monte Carlo Masters as he was suffering from the effects of an eye infection.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799230-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799230-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799230-20250407.htm)
+
+---
+
 # Alcaraz admits Sinner pressure getting to him
 
 ![Carlos Alcaraz says he is at peace with not being able to displace Jannik Sinner from his top ranking. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799227_1_20250407124847.jpg&q=90)
@@ -1428,29 +1452,5 @@ Barcelona swept to a comfortable 3-0 victory over Osasuna to move three points c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797785-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797785-20250328.htm)
-
----
-
-# LeBron snaps Lakers' three-game slump with late tip-in
-
-![LeBron James (23) and the Lakers snapped a three-game losing streak. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797649_1_20250327120443.jpg&q=85)
-  
-
-LeBron James tipped in a buzzer-beating rebound with 0.1 seconds remaining as the Los Angeles Lakers halted their three-game losing streak with a pulsating 120-119 road victory over the Indiana Pacers.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm)
 
 ---

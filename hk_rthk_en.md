@@ -1,3 +1,27 @@
+# Djokovic not setting sights for Monte Carlo
+
+![Novak Djokovic says his eye infection began during the recent Miami Open semi-finals. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799230_1_20250407125952.jpg&q=90)
+  
+
+World No 5 Novak Djokovic, a finalist at the recent Miami Masters, said he did not have high expectations for the Monte Carlo Masters as he was suffering from the effects of an eye infection.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799230-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799230-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799230-20250407.htm)
+
+---
+
 # Alcaraz admits Sinner pressure getting to him
 
 ![Carlos Alcaraz says he is at peace with not being able to displace Jannik Sinner from his top ranking. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799227_1_20250407124847.jpg&q=90)
@@ -1411,29 +1435,5 @@ Israel said it killed a commander of the Palestinian militant group Hamas on Fri
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm)
-
----
-
-# HK International Track Cup to attract 150 cyclists
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798942_1_20250404160739.jpg&q=85)
-  
-
-One of the National Games test events – the Hong Kong International Track Cup – will be held from April 19 to 21, attracting professional cyclists from around the world.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm)
 
 ---
