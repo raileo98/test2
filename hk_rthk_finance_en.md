@@ -1,6 +1,54 @@
+# HK market functioning normally despite sell-off: FS
+
+![Paul Chan says investors should exercise caution going forward as market fluctuations are expected to continue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799293_1_20250407191203.jpg&q=80)
+  
+
+Financial Secretary Paul Chan said the Hong Kong stock market and the local currency remain robust and strong, after the US tariffs triggered the biggest single-day sell-off for the Hang Seng Index on record.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm)
+
+---
+
+# HK stocks slump has retail investors seeing red
+
+![Retail investors mostly saw red on the worst day for Hong Kong stocks in nearly three decades. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799281_2_20250407180508.jpg&q=90)
+  
+
+Small-time investors in Hong Kong were left reeling on Monday as US President Donald Trump's punishing tariffs and Beijing's retaliation saw the city's stock market suffer its worst day in almost three decades.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm)
+
+---
+
 # Black Monday hit for stocks on tariffs chaos
 
-![A securities brokerage trader in Hong Kong sees red on his screen on a day that saw the Hang Seng Index lose more than 3,100 points to end at 19,710.26. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799241_1_20250407161838.jpg&q=90)
+![The Hang Seng Index ends 13.22 percent down at 19,828.30. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799241_4_20250407172158.jpg&q=85)
   
 
 Asian and European equities collapsed on a black Monday for markets after China hammered the United States with its own hefty tariffs, ramping up a trade war many fear could spark a recession.
@@ -19,6 +67,30 @@ Asian and European equities collapsed on a black Monday for markets after China 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799241-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799241-20250407.htm)
+
+---
+
+# 'Govt will stay vigilant over market changes'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799235_1_20250407134313.jpg&q=90)
+  
+
+Under Secretary for Financial Services and the Treasury Joseph Chan said on Monday the government will pay close attention to the stock market and ensure that the city remains financially stable.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm)
 
 ---
 
@@ -1366,77 +1438,5 @@ A deputy at Beijing's top office on Hong Kong affairs has called on the SAR to r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm)
-
----
-
-# Tesla sales fall off a cliff in Europe
-
-![A woman encourages people outside the Tesla Centre Park Royal in London to boycott the electric vehicle giant. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797297_1_20250325132757.jpg&q=90)
-  
-
-European sales of Tesla electric cars dropped 49 percent in January and February compared with the same period a year earlier, the ACEA manufacturers' association said on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm)
-
----
-
-# Hang Seng Index opens over a percentage point lower
-
-![US President Donald Trump's reciprocal tariffs are due to be unveiled on April 2. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797260_1_20250325094919.jpg&q=90)
-  
-
-The Hang Seng Index lost 262.24 points, or 1.1 percent, to open at 23,643.32 on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm)
-
----
-
-# Hyundai to invest US$21 billion in US manufacturing
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797250_1_20250325084822.jpg&q=90)
-  
-
-South Korean auto giant Hyundai on Monday announced a multi-billion-dollar investment in the United States, including a new US$5.8 billion steel plant.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm)
 
 ---

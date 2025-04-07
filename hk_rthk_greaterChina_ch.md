@@ -1,3 +1,99 @@
+# 中央紀委國家監委駐中央組織部紀檢監察組原組長李剛開除黨籍公職
+
+![中央紀委國家監委駐中央組織部紀檢監察組原組長李剛開除黨籍公職](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799294_1_20250407192341.jpg&q=90)
+  
+
+中央紀委國家監委駐中央組織部紀檢監察組原組長李剛，嚴重違紀違法，被開除黨籍和公職。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799294-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799294-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799294-20250407.htm)
+
+---
+
+# 國家體育總局排球運動管理中心原主任李全強受賄判囚10年3個月
+
+![國家體育總局排球運動管理中心原主任李全強受賄判囚10年3個月](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799292_1_20250407192330.jpg&q=90)
+  
+
+國家體育總局排球運動管理中心原主任李全強受賄案，在江蘇省揚州市中級人民法院一審判囚10年3個月，罰款人民幣80萬元，沒收個人受賄犯罪所得，上繳國庫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799292-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799292-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799292-20250407.htm)
+
+---
+
+# 陳茂波：金融體系穩健交易暢順有序　政府嚴防金融風險
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799287_1_20250407183131.jpg&q=90)
+  
+
+財政司司長陳茂波表示，本港股市今日下跌超過3千點，全日成交6200億元，是反映了環球悲觀的投資情緒，但他指港匯仍然非常強勁，香港金融體系仍然相當穩健，交易暢順有秩序進行，沒有發現任何對香港市場造成系統性影響的不正常行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm)
+
+---
+
+# 文旅部稱清明節小長假國內出遊總花費逾575億元人民幣
+
+![文旅部稱清明節小長假逾1.26億人次國內出遊。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799243_1_20250407145821.jpg&q=80)
+  
+
+中國文化和旅遊部數據顯示，清明節假期3天，國內出遊1億2千6百萬人次，增長6.3%；國內出遊總花費超過575億元人民幣，增長6.7%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799243-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799243-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799243-20250407.htm)
+
+---
+
 # 中方冀南韓有序推進政治議程　保持政局和社會穩定
 
 ![林劍稱中方希望南韓有序地推進國內的政治議程。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799257_1_20250407155309.jpg&q=90)
@@ -167,6 +263,7 @@
 
 # 中方強烈不滿及堅決反對少數國家與組織罔顧事實干涉中國內政
 
+![發言人說中方敦促有關國家和組織恪守對中方所作的政治承諾。（中國駐加拿大使館網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799197_1_20250407165040.jpg&q=90)
   
 
 中國駐加拿大使館表示，中方強烈不滿、堅決反對並絕不接受少數國家與組織罔顧事實、顛倒黑白及公然干涉中國內政。
@@ -1344,100 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm)
-
----
-
-# 習近平參加植樹活動　要求解決林草資源總量不足問題
-
-![習近平與在場的幹部群眾、少先隊員交談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798841_2_20250403191940.jpg&q=90)
-  
-
-中共中央總書記、國家主席、中央軍委主席習近平，參加植樹活動時強調，植樹造林是生態文明建設重要一環，各地區各部門要進一步行動，積極參與造林綠化，踐行綠色發展理念，弘揚生態文化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798841-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798841-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798841-20250403.htm)
-
----
-
-# 澳門開通至歐洲貨運直航包機服務
-
-  
-
-澳門國際機場藉近年跨境電商速迅發展，成功開通至歐洲貨運直航包機服務。由埃塞俄比亞航空執飛、來往澳門至西班牙馬德里的首個貨運包機，朝早在澳門運出第一批電商產品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798832-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798832-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798832-20250403.htm)
-
----
-
-# 中證監召開民營科企座談會　將加快推動新一輪資本市場改革開放
-
-![吳清表示，民營經濟是國民經濟的重要組成部分，是推動科技創新的重要力量，將加快推動新一輪資本市場改革開放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798831_1_20250403181034.jpg&q=90)
-  
-
-中國證監會近日召開深化資本市場投融資綜合改革民營科技企業座談會。中證監主席吳清表示，民營經濟是國民經濟的重要組成部分，是推動科技創新的重要力量，將加快推動新一輪資本市場改革開放。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm)
-
----
-
-# 美國對華徵收34%對等關稅　特朗普任內稅率增至54%
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798830_1_20250403183937.jpg&q=90)
-  
-
-美國總統特朗普簽署他形容為歷史性的行政命令，向多個與美國有貿易往來的國家及地區實施對等關稅，下星期三生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm)
 
 ---

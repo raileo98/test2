@@ -1,6 +1,198 @@
+# Southampton sack manager Ivan Juric after relegation
+
+![Under Juric, the Saints have lost seven of their past eight league matches. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799297_1_20250407195542.jpg&q=90)
+  
+
+Southampton have sacked manager Ivan Juric following their relegation from the Premier League, the club announced on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799297-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799297-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799297-20250407.htm)
+
+---
+
+# HK market functioning normally despite sell-off: FS
+
+![Paul Chan says investors should exercise caution going forward as market fluctuations are expected to continue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799293_1_20250407191203.jpg&q=80)
+  
+
+Financial Secretary Paul Chan said the Hong Kong stock market and the local currency remain robust and strong, after the US tariffs triggered the biggest single-day sell-off for the Hang Seng Index on record.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm)
+
+---
+
+# World Expo hit with methane risk ahead of opening
+
+![Organisers barred people from coming near the affected area at Expo 2025 in Osaka for about an hour to ventilate it. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799288_1_20250407183551.jpg&q=75)
+  
+
+A level of methane high enough to potentially ignite a fire was detected at the World Expo site in Japan, organisers said on Monday, less than a week before the event opens.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799288-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799288-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799288-20250407.htm)
+
+---
+
+# Britain may close hundreds of quangos to cut costs
+
+![Quangos, or quasi-autonomous non-governmental organizations, will be reviewed with a view to closing or merging them or bringing their functions back into government departments. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799284_1_20250407182022.jpg&q=75)
+  
+
+Britain said it could close hundreds of arms-length government agencies, as it looks to reform the state to cut costs and improve productivity in what it called "a new era of global instability".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm)
+
+---
+
+# HK stocks slump has retail investors seeing red
+
+![Retail investors mostly saw red on the worst day for Hong Kong stocks in nearly three decades. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799281_2_20250407180508.jpg&q=90)
+  
+
+Small-time investors in Hong Kong were left reeling on Monday as US President Donald Trump's punishing tariffs and Beijing's retaliation saw the city's stock market suffer its worst day in almost three decades.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm)
+
+---
+
+# Nurturing talent 'cornerstone of innovation and tech'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799279_1_20250407173600.jpg&q=90)
+  
+
+Nurturing talent is the "cornerstone" in innovation and technology (I&T) development, according to the city's tech chief on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799279-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799279-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799279-20250407.htm)
+
+---
+
+# US tariffs 'amount to unilateralism and bullying'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799275_1_20250407172101.jpg&q=90)
+  
+
+China on Monday accused the US of unilateralism, protectionism and economic bullying with tariffs, while calling on representatives of American companies including Tesla to “take concrete actions” to resolve the tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799275-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799275-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799275-20250407.htm)
+
+---
+
+# 'DC members shouldn't speak just for the sake of it'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799254_1_20250407154426.jpg&q=90)
+  
+
+Home affairs minister Alice Mak on Monday defended some district councillors who reportedly have not spoken during meetings for an entire year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm)
+
+---
+
 # Power bank ban doesn't leave some air passengers wired
 
-![A sign lays down the law on power banks at the airport. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799260_1_20250407163157.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799260_1_20250407163157.jpg&q=80)
   
 
 From Monday, airline passengers have been banned from using and charging their power banks during flights and storing portable chargers in overhead compartments.
@@ -24,7 +216,7 @@ From Monday, airline passengers have been banned from using and charging their p
 
 # Black Monday hit for stocks on tariffs chaos
 
-![A securities brokerage trader in Hong Kong sees red on his screen on a day that saw the Hang Seng Index lose more than 3,100 points to end at 19,710.26. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799241_1_20250407161838.jpg&q=90)
+![The Hang Seng Index ends 13.22 percent down at 19,828.30. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799241_4_20250407172158.jpg&q=85)
   
 
 Asian and European equities collapsed on a black Monday for markets after China hammered the United States with its own hefty tariffs, ramping up a trade war many fear could spark a recession.
@@ -48,7 +240,7 @@ Asian and European equities collapsed on a black Monday for markets after China 
 
 # 'Govt will stay vigilant over market changes'
 
-![Joseph Chan's reassurance comes after a black Monday for equity markets that saw the Hang Seng Index plunge more than 10 percent in opening trades. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799235_1_20250407134313.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799235_1_20250407134313.jpg&q=90)
   
 
 Under Secretary for Financial Services and the Treasury Joseph Chan said on Monday the government will pay close attention to the stock market and ensure that the city remains financially stable.
@@ -72,7 +264,7 @@ Under Secretary for Financial Services and the Treasury Joseph Chan said on Mond
 
 # Trump calls tariffs havoc 'medicine'
 
-![Donald Trump speaks to reporters aboard Air Force One on his way back to the White House after a weekend of golf in Florida. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799234_1_20250407131818.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799234_1_20250407131818.jpg&q=90)
   
 
 US President Donald Trump warned foreign governments they would have to pay "a lot of money" to lift sweeping tariffs, characterising the duties as "medicine" and triggering further carnage across global financial markets on Monday.
@@ -147,7 +339,7 @@ Carlos Alcaraz said pressure to reclaim the world number one ranking from the su
 ![Vivian Cheung has been appointed as the Airport Authority's CEO. Photo courtesy of the Airport Authority.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799220_1_20250407120401.jpg&q=90)
   
 
-The Airport Authority Hong Kong has appointed Vivian Cheung as its chief executive.
+The Airport Authority Hong Kong board has appointed Vivian Cheung as its chief executive.
 
   
 
@@ -1243,197 +1435,5 @@ A senior member of a leading national think tank says China's retaliatory tariff
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm)
-
----
-
-# Alex Ovechkin matches Gretzky's NHL record
-
-![Ovechkin tied Gretzky's monumental mark with a power-play goal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799014_1_20250405103308.jpg&q=90)
-  
-
-Alex Ovechkin scored twice to tie Wayne Gretzky's record of 894 NHL career goals on Friday, matching a mark that once seemed unassailable.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799014-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799014-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799014-20250405.htm)
-
----
-
-# Van der Poel and Pogacar face off in Tour of Flanders
-
-![There are five ultra-long one-day bike races known as the Monuments, and the Tour of Flanders is considered the greatest. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799008_1_20250405095319.jpg&q=90)
-  
-
-Come rain or shine 750,000 fans are expected to turn out on Sunday for cycling's most revered one-day race, the Tour of Flanders, for a Tadej Pogacar and Mathieu van der Poel showdown.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799008-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799008-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799008-20250405.htm)
-
----
-
-# Four men to appear in court over spate of burglaries
-
-![Police allege that property totalling about HK$375,000 was taken during the thefts. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799007_1_20250405093500.jpg&q=70)
-  
-
-Four mainland men, arrested in Yuen Long on Thursday on suspicion of burglary and illegal entry, will have their case brought up in court on Saturday in Kwun Tong.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799007-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799007-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799007-20250405.htm)
-
----
-
-# Tariffs to raise inflation, cool growth: Fed Chair
-
-![Jerome Powell said on Friday that he expected the current uncertainty to decline in the coming months. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798991_1_20250405044209.jpg&q=90)
-  
-
-US President Donald Trump's tariffs risk higher unemployment and will likely cause inflation to rise and growth to slow, Federal Reserve Chair Jerome Powell said on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm)
-
----
-
-# Major Wall Street indices fall by over 5 percent
-
-![A trader on the floor of the American Stock Exchange. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798992_1_20250405045214.jpg&q=90)
-  
-
-Wall Street stocks suffered another bruising sell-off on Friday as major indices slumped more than five percent following President Donald Trump's aggressive tariff policies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798992-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798992-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798992-20250405.htm)
-
----
-
-# Trump extends TikTok deadline to find buyer
-
-![The new 75-day delay pushes the deadline to June 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798987_1_20250405031437.jpg&q=90)
-  
-
-US President Donald Trump on Friday extended the deadline for TikTok to find a non-Chinese buyer or face a ban in the United States, allowing 75 more days to find a solution.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm)
-
----
-
-# US stocks tumble again, extending rout on trade war
-
-![All three major indices on Wall Street are still heading south. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798973_1_20250404221313.jpg&q=90)
-  
-
-Wall Street stocks opened sharply lower on Friday, shrugging off solid US hiring data and extending a rout after China retaliated in kind to President Donald Trump's global trade tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798973-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798973-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798973-20250404.htm)
-
----
-
-# Trump wants 'direct talks' with Iran on nukes deal
-
-![President Trump says that last month he wrote to Iran's supreme leader, Ayatollah Ali Khamenei, to call for nuclear negotiations. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798967_1_20250404204544.jpg&q=90)
-  
-
-US President Donald Trump said on Thursday he wanted "direct talks" with Tehran on a nuclear deal, after he threatened to bomb Iran if it develops nuclear weapons.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798967-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798967-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798967-20250404.htm)
 
 ---

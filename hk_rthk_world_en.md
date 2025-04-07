@@ -1,6 +1,30 @@
+# Britain may close hundreds of quangos to cut costs
+
+![Quangos, or quasi-autonomous non-governmental organizations, will be reviewed with a view to closing or merging them or bringing their functions back into government departments. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799284_1_20250407182022.jpg&q=75)
+  
+
+Britain said it could close hundreds of arms-length government agencies, as it looks to reform the state to cut costs and improve productivity in what it called "a new era of global instability".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm)
+
+---
+
 # Trump calls tariffs havoc 'medicine'
 
-![Donald Trump speaks to reporters aboard Air Force One on his way back to the White House after a weekend of golf in Florida. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799234_1_20250407131818.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799234_1_20250407131818.jpg&q=90)
   
 
 US President Donald Trump warned foreign governments they would have to pay "a lot of money" to lift sweeping tariffs, characterising the duties as "medicine" and triggering further carnage across global financial markets on Monday.
@@ -1411,29 +1435,5 @@ At least three people were killed and seven wounded in an Israeli airstrike on B
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm)
-
----
-
-# Australia hit by floods in inland area size of France
-
-![A homestead is inundated by floodwaters near the town of Jundah in south-west Queensland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798443_1_20250401145343.jpg&q=85)
-  
-
-Whole herds of cattle have drowned in vast inland floods sweeping across the Australian outback, officials said on Tuesday, as the muddy tide drenched an area the size of France.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798443-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798443-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798443-20250401.htm)
 
 ---

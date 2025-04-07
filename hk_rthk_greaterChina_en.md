@@ -1,3 +1,51 @@
+# World Expo hit with methane risk ahead of opening
+
+![Organisers barred people from coming near the affected area at Expo 2025 in Osaka for about an hour to ventilate it. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799288_1_20250407183551.jpg&q=75)
+  
+
+A level of methane high enough to potentially ignite a fire was detected at the World Expo site in Japan, organisers said on Monday, less than a week before the event opens.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799288-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799288-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799288-20250407.htm)
+
+---
+
+# US tariffs 'amount to unilateralism and bullying'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799275_1_20250407172101.jpg&q=90)
+  
+
+China on Monday accused the US of unilateralism, protectionism and economic bullying with tariffs, while calling on representatives of American companies including Tesla to “take concrete actions” to resolve the tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799275-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799275-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799275-20250407.htm)
+
+---
+
 # China says US must 'stop using tariffs as a weapon'
 
 ![Foreign Ministry spokesperson Guo Jiakun wrote on Facebook that "the market has spoken," after Wall Street headed south two days in a row. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799060_1_20250405203120.jpg&q=90)
@@ -1391,53 +1439,5 @@ Former Masters champion Patrick Reed qualified for the British Open after coming
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm)
-
----
-
-# McLaren's Piastri wins Chinese Grand Prix
-
-![McLaren's Oscar Piastri celebrates on the podium after winning the Chinese Grand Prix with second placed McLaren's Lando Norris and third placed Mercedes' George Russell. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797037_1_20250323172831.jpg&q=55)
-  
-
-Oscar Piastri led from pole to win the Chinese Grand Prix on Sunday as McLaren used a one-stop strategy to complete a dominant one-two with Lando Norris second.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm)
-
----
-
-# China prepared for 'shocks' of trade war: Premier Li
-
-![Delivering the opening address to the China Development Forum, Premier Li called on global executives to capture opportunities from the nation's renewed innovation drive. Photo: www.fmprc.gov.cn](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797024_1_20250323152102.jpg&q=90)
-  
-
-Premier Li Qiang told a gathering of business executives in Beijing on Sunday that China will adhere to the correct direction of economic globalisation, practise true multilateralism and strive to be a force for stability and certainty.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797024-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797024-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797024-20250323.htm)
 
 ---

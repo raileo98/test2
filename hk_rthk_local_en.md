@@ -1,6 +1,102 @@
+# HK market functioning normally despite sell-off: FS
+
+![Paul Chan says investors should exercise caution going forward as market fluctuations are expected to continue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799293_1_20250407191203.jpg&q=80)
+  
+
+Financial Secretary Paul Chan said the Hong Kong stock market and the local currency remain robust and strong, after the US tariffs triggered the biggest single-day sell-off for the Hang Seng Index on record.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm)
+
+---
+
+# HK stocks slump has retail investors seeing red
+
+![Retail investors mostly saw red on the worst day for Hong Kong stocks in nearly three decades. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799281_2_20250407180508.jpg&q=90)
+  
+
+Small-time investors in Hong Kong were left reeling on Monday as US President Donald Trump's punishing tariffs and Beijing's retaliation saw the city's stock market suffer its worst day in almost three decades.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm)
+
+---
+
+# Nurturing talent 'cornerstone of innovation and tech'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799279_1_20250407173600.jpg&q=90)
+  
+
+Nurturing talent is the "cornerstone" in innovation and technology (I&T) development, according to the city's tech chief on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799279-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799279-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799279-20250407.htm)
+
+---
+
+# 'DC members shouldn't speak just for the sake of it'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799254_1_20250407154426.jpg&q=90)
+  
+
+Home affairs minister Alice Mak on Monday defended some district councillors who reportedly have not spoken during meetings for an entire year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm)
+
+---
+
 # Power bank ban doesn't leave some air passengers wired
 
-![A sign lays down the law on power banks at the airport. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799260_1_20250407163157.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799260_1_20250407163157.jpg&q=80)
   
 
 From Monday, airline passengers have been banned from using and charging their power banks during flights and storing portable chargers in overhead compartments.
@@ -24,7 +120,7 @@ From Monday, airline passengers have been banned from using and charging their p
 
 # 'Govt will stay vigilant over market changes'
 
-![Joseph Chan's reassurance comes after a black Monday for equity markets that saw the Hang Seng Index plunge more than 10 percent in opening trades. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799235_1_20250407134313.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799235_1_20250407134313.jpg&q=90)
   
 
 Under Secretary for Financial Services and the Treasury Joseph Chan said on Monday the government will pay close attention to the stock market and ensure that the city remains financially stable.
@@ -51,7 +147,7 @@ Under Secretary for Financial Services and the Treasury Joseph Chan said on Mond
 ![Vivian Cheung has been appointed as the Airport Authority's CEO. Photo courtesy of the Airport Authority.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799220_1_20250407120401.jpg&q=90)
   
 
-The Airport Authority Hong Kong has appointed Vivian Cheung as its chief executive.
+The Airport Authority Hong Kong board has appointed Vivian Cheung as its chief executive.
 
   
 
@@ -1339,101 +1435,5 @@ Hong Kong's top court has overturned the acquittal of a former lawmaker for reve
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798417-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798417-20250401.htm)
-
----
-
-# Dongjiang water fuels HK's economic miracle: Lee
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798404_1_20250401105005.jpg&q=90)
-  
-
-Chief Executive John Lee said on Tuesday Dongjiang water has fuelled Hong Kong's economic miracle, contributing to the city's sustainable development and long-term prosperity.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798404-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798404-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798404-20250401.htm)
-
----
-
-# China condemns fresh sanctions on officials
-
-![The Commissioner's Office of the Foreign Ministry in Hong Kong has accused the US of slandering the city's rule of law, democracy, freedom and human rights situation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798399_1_20250401103258.jpg&q=85)
-  
-
-Beijing has warned of "strong and resolute" countermeasures against fresh sanctions imposed on six mainland and Hong Kong officials by the United States.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798399-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798399-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798399-20250401.htm)
-
----
-
-# SAR government hits out as officials sanctioned by US
-
-![The government said the move exposed US barbarity under its hegemony. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798354_1_20250401054205.jpg&q=80)
-  
-
-The SAR government on Tuesday condemned the United States after the US put six mainland and Hong Kong officials on its sanctions list.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798354-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798354-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798354-20250401.htm)
-
----
-
-# China condemns 'economic coercion'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798334_1_20250331215247.jpg&q=90)
-  
-
-China on Monday reaffirmed its resolute opposition to moves that infringe upon and undermine other countries' legitimate rights and interests through economic coercion, hegemonic practices or bullying.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm)
 
 ---

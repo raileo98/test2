@@ -1,3 +1,218 @@
+# 美日視像會議　石破茂指雙方同意任命官員跟進關稅
+
+  
+
+日本首相石破茂晚上與美國總統特朗普舉行視像會議。石破茂表示，會上向特朗普表明日本連續5年在美國大額投資，要求美方審視關稅措施，雙方同意任命官員負責討論關稅問題。石破茂又表示，考慮適當時候與特朗普面對面會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799300-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799300-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799300-20250407.htm)
+
+---
+
+# 特朗普批中國無視切勿報復的警告
+
+![特朗普批評中國無視切勿報復的警告，向美國產品徵收34%關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799298_1_20250407200913.jpg&q=90)
+  
+
+美國總統特朗普批評中國無視切勿報復的警告，向美國產品徵收34%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799298-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799298-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799298-20250407.htm)
+
+---
+
+# 兩名中國人於南韓空軍基地附近拍攝　遭刑事立案禁止離境
+
+![兩名中國人於南韓空軍基地附近拍攝　遭刑事立案禁止離境](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799274_1_20250407172049.jpg&q=90)
+  
+
+兩名中國人在南韓水原空軍基地附近拍攝戰機，被警方刑事立案，禁止離境。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799274-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799274-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799274-20250407.htm)
+
+---
+
+# 特朗普將關稅喻為良藥　指需解決中美逆差
+
+![特朗普將關稅比喻為「良藥」，指有時需要靠吃藥解決問題。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799273_1_20250407171020.jpg&q=90)
+  
+
+美國總統特朗普在「空軍一號」專機，回應傳媒有關關稅措施引發金融市場震盪的提問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799273-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799273-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799273-20250407.htm)
+
+---
+
+# 陳茂波：金融體系穩健交易暢順有序　政府嚴防金融風險
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799287_1_20250407183131.jpg&q=90)
+  
+
+財政司司長陳茂波表示，本港股市今日下跌超過3千點，全日成交6200億元，是反映了環球悲觀的投資情緒，但他指港匯仍然非常強勁，香港金融體系仍然相當穩健，交易暢順有秩序進行，沒有發現任何對香港市場造成系統性影響的不正常行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm)
+
+---
+
+# 莎拉完成為杜特爾特組建法律團隊　昨由海牙返抵馬尼拉
+
+![莎拉早前在海牙國際刑事法院外被傳媒包圍。（法新社資料圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799268_1_20250407165055.jpg&q=90)
+  
+
+菲律賓副總統莎拉昨晚從荷蘭海牙，返抵菲律賓首都馬尼拉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799268-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799268-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799268-20250407.htm)
+
+---
+
+# 塞爾維亞總統提名貝爾格萊德大學醫學院教授馬楚特為新總理人選
+
+![武契奇表示維護和平穩定是新政府的主要責任。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799267_1_20250407173823.jpg&q=90)
+  
+
+塞爾維亞總統武契奇宣布，提名貝爾格萊德大學醫學院教授馬楚特為新一屆總理人選。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799267-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799267-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799267-20250407.htm)
+
+---
+
+# 彭博：美國關稅或導致蘋果公司在美國銷售主要產品漲價
+
+![報道指最新的關稅衝擊，將是蘋果面臨的最大考驗。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799237_1_20250407135040.jpg&q=90)
+  
+
+彭博報道，美國推出的「對等關稅」可能導致蘋果公司在美國銷售的主要產品漲價。報道提到，最新的關稅衝擊將是蘋果面臨的最大考驗，即使蘋果進一步調整供應鏈、推動供應商降價，一旦關稅按計劃實施，蘋果仍將承受成本與利潤率壓力，不得不考慮調整產品在美國的售價。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799237-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799237-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799237-20250407.htm)
+
+---
+
+# 石破茂稱盡最大努力維持企業周轉　歐盟稱對美方關稅回應應該相稱
+
+![石破茂表示為應對美國政府的關稅措施，將盡最大努力維持包括中小企業在內的資金周轉和就業。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799265_1_20250407173747.jpg&q=90)
+  
+
+日本首相石破茂表示，為應對美國政府的關稅措施，將盡最大努力維持包括中小企業在內的資金周轉和就業，並在國內對策方面做到萬無一失。他出席國會預算委員會會議時又說希望盡快訪美，向美國總統特朗普闡述日方立場，強調必須提出日方的一攬子方案，重申日本無採取不公平做法，日本對美投資為美國創造就業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799265-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799265-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799265-20250407.htm)
+
+---
+
 # 中方冀南韓有序推進政治議程　保持政局和社會穩定
 
 ![林劍稱中方希望南韓有序地推進國內的政治議程。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799257_1_20250407155309.jpg&q=90)
@@ -168,6 +383,7 @@
 
 # 中方強烈不滿及堅決反對少數國家與組織罔顧事實干涉中國內政
 
+![發言人說中方敦促有關國家和組織恪守對中方所作的政治承諾。（中國駐加拿大使館網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799197_1_20250407165040.jpg&q=90)
   
 
 中國駐加拿大使館表示，中方強烈不滿、堅決反對並絕不接受少數國家與組織罔顧事實、顛倒黑白及公然干涉中國內政。
@@ -431,7 +647,7 @@
 
 # 緬甸大地震已造成3564人死亡
 
-![在緬甸首都內比都，地震災民在樹林中過夜。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799148_1_20250407004351.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799148_1_20250407004351.jpg&q=90)
   
 
 緬甸國家管理委員會說，截至當地時間周日晚，大地震已造成3564人遇難、5012人受傷，另有210人失蹤。
@@ -1222,221 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799069-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799069-20250406.htm)
-
----
-
-# 俄羅斯國防部稱烏軍24小時襲擊俄方能源基礎設施14次
-
-![俄羅斯國防部周六說，過去24小時，烏克蘭軍隊14次襲擊俄羅斯能源基礎設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799068_1_20250406003206.jpg&q=90)
-  
-
-俄羅斯國防部周六說，過去24小時，烏克蘭軍隊14次襲擊俄羅斯能源基礎設施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799068-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799068-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799068-20250406.htm)
-
----
-
-# 中柬兩軍啟動聯合演習　提高戰略協作水平
-
-![柬埔寨首相洪瑪奈（前中）出席中柬雲壤港聯合保障和訓練中心掛牌儀式。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799065_1_20250405230812.jpg&q=90)
-  
-
-中國和柬埔寨兩國的軍隊在中柬雲壤港聯合保障和訓練中心組織「金龍-2025」聯合演習啟動活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799065-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799065-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799065-20250405.htm)
-
----
-
-# UTS網球賽首於亞洲舉行　10月啟德體藝館8球手競逐錦標
-
-![香港站賽事將由8名球手競逐錦標，包括澳洲球手迪文拿奧與中國球手張之臻等。（UTS網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799064_1_20250405223925.jpg&q=90)
-  
-
-中國香港網球總會宣布，網球賽事Ultimate Tennis Showdown（UTS）今年10月14至15日，在啟德體育園體藝館一連兩日上演，是這項賽事首度在亞洲舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799064-20250405.htm)
-
----
-
-# 日本發生旅遊巴意外　據報47人受傷包括香港人
-
-![日本發生旅遊巴意外　據報47人受傷包括香港人](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799062_1_20250405215151.jpg&q=90)
-  
-
-日本東京以西一條高速公路發生涉及旅遊巴的意外，據報47人受傷，包括香港人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799062-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799062-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799062-20250405.htm)
-
----
-
-# 特朗普指關稅措施打擊中國多於美國
-
-![美國總統特朗普指關稅措施打擊中國多於美國。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799061_1_20250405212003.jpg&q=90)
-  
-
-美國總統特朗普回應對所有國家進口商品加徵關稅，指中國遭受的打擊比美國嚴重得多，又指中國和許多國家過往對美國採取惡劣態度，如今美國不再無助。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799061-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799061-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799061-20250405.htm)
-
----
-
-# 日本東京以西發生涉旅遊巴意外　據報47人受傷
-
-![日本東京以西發生涉旅遊巴意外　據報47人受傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799059_1_20250405204212.jpg&q=90)
-  
-
-日本東京以西一條高速公路發生涉及旅遊巴的意外，據報47人受傷，大部分是外國人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799059-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799059-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799059-20250405.htm)
-
----
-
-# 外交部：中國政府強烈譴責美國濫施關稅　將採措施維護利益
-
-![中國強烈譴責和堅決反對美國濫施關稅，指施壓和威脅不是同中方打交道的正確方式。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799055_1_20250405191815.jpg&q=80)
-  
-
-中國強烈譴責和堅決反對美國濫施關稅，指施壓和威脅不是同中方打交道的正確方式。中方將採取堅決措施，維護自身主權安全發展利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm)
-
----
-
-# 美股連續兩個交易日急挫　鮑威爾：是否調整貨幣政策言之尚早
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799050_1_20250405182938.jpg&q=90)
-  
-
-市場憂慮貿易戰加劇，美股連續兩個交易日急挫，三大指數跌幅均逾5%，道瓊斯指數跌穿3萬9千點水平；至於納斯達克指數再跌近千點，技術上進入熊市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799050-20250405.htm)
-
----
-
-# 泰國將倒塌大樓鋼筋樣本送往檢驗　中國大使館：反對詆毀抹黑中企
-
-![泰國當局將倒塌的國家審計署大樓鋼筋樣本送到實驗室檢驗，確認是否符合標準。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799046_1_20250405172826.jpg&q=35)
-  
-
-泰國曼谷在建的國家審計署大樓早前受緬甸大地震波及倒塌。泰國當局再將大樓不同區域收集到的鋼筋樣本送到實驗室檢驗，確認是否符合標準。當局又計劃採集大樓混凝土板樣本檢查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm)
 
 ---
