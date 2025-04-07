@@ -1,3 +1,27 @@
+# Second US child dies of measles, almost 650 ill
+
+![People stand outside a church after the funeral for an eight-year-old girl who died of measles in Seminole, Texas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799174_1_20250407083943.jpg&q=90)
+  
+
+A measles outbreak has killed a second child in the southwestern United States, authorities said on Sunday, with almost 650 people now infected as the highly-contagious disease spreads.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799174-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799174-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799174-20250407.htm)
+
+---
+
 # Five arrested in drink driving clampdown
 
 ![An officer takes part in the operation in East Kowloon. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799170_1_20250407082147.jpg&q=85)
@@ -1411,29 +1435,5 @@ Hungary's government has decided to withdraw from the International Criminal Cou
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798838-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798838-20250403.htm)
-
----
-
-# USA to host 2031 Women's World Cup, UK in 2035
-
-![Spain are the current Fifa Women's World Cup champions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798854_1_20250403205634.jpg&q=80)
-  
-
-The United States is the sole bidder for the 2031 Women's World Cup, and the United Kingdom is set to host the 2035 tournament, Fifa president Gianni Infantino announced on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798854-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798854-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798854-20250403.htm)
 
 ---

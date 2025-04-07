@@ -1,3 +1,27 @@
+# Second US child dies of measles, almost 650 ill
+
+![People stand outside a church after the funeral for an eight-year-old girl who died of measles in Seminole, Texas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799174_1_20250407083943.jpg&q=90)
+  
+
+A measles outbreak has killed a second child in the southwestern United States, authorities said on Sunday, with almost 650 people now infected as the highly-contagious disease spreads.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799174-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799174-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799174-20250407.htm)
+
+---
+
 # World scrambles to temper Trump tariffs
 
 ![US President Donald Trump delivers remarks on tariffs in the Rose Garden at the White House, April 2, 2025. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799149_1_20250407011036.jpg&q=90)
@@ -1411,29 +1435,5 @@ South Korea’s Constitutional Court said it will rule on whether to formally di
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798397-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798397-20250401.htm)
-
----
-
-# Myanmar to mark minute of silence for quake victims
-
-![An aerial view shows flattened buildings in the Mandalay region, Myanmar. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798381_1_20250401091723.jpg&q=80)
-  
-
-Myanmar will mark a minute of silence on Tuesday in tribute to victims of the country's devastating earthquake that has killed more than 2,000 people, as hopes dim of finding more survivors in the rubble of ruined buildings.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm)
 
 ---
