@@ -1,5 +1,55 @@
+# 恒指低收3021點　主板成交近6209億元創新高
+
+![恒生指數收市報19828點，跌3021點，跌幅13.2%，是自2008年10月以來最大百分比跌幅。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799263_1_20250407161632.jpg&q=80)
+  
+
+市場憂慮貿易衝突升級加劇及引發經濟衰退，港股失守2萬點關口。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799263-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799263-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799263-20250407.htm)
+
+---
+
+# 馬屎洲2018年有飛機意外　報告指初始螺旋低於要求致失控
+
+![意外調查報告，認為事故成因是飛行員在低於總會要求的最低螺旋高度下，進行初始螺旋。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799262_1_20250407163006.jpg&q=90)
+  
+
+民航意外調查機構公布在2018年6月24日中國香港飛行總會一架飛機在馬屎洲的意外調查報告，認為事故成因是飛行員在低於總會要求的最低螺旋高度下，進行初始螺旋。該動作隨後發展為完全螺旋而令飛行員失去對飛機的控制。飛行員在重新控制飛機後，在有限的高度下已無法作出有效的修正，導致飛機撞擊地面。調查小組就事故向中國香港飛行總會提出兩項安全建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799262-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799262-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799262-20250407.htm)
+
+---
+
 # 理大成立計算機及數學科學學院　孫東：培養人才是創科發展的基石
 
+![理工大學新成立「計算機及數學科學學院」。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799261_2_20250407162945.jpg&q=90)
+![孫東表示，當局將持續推動科學教育，加強數碼教育，協助香港發展成國際創科中心。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799261_1_20250407162114.jpg&q=80)
   
 
 創新科技及工業局局長孫東表示，特區政府多管齊下擴大創新科技人才庫，為年輕人培養未來所需的技能，當局將持續推動科學教育，加強數碼教育，協助香港發展成國際創科中心。
@@ -119,6 +169,7 @@
 
 # 反修例案件約96%已審結　司法機構料法律程序輪候時間將改善
 
+![梁悅賢表示，截至去年，在已提交不同級別法院審理的2350多宗反修例案件中，已審結約2260宗，約佔96%。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799256_1_20250407160701.jpg&q=90)
   
 
 司法機構政務長梁悅賢在立法會財委會特別會議上表示，司法機構在24/25年度，繼續優先處理與2019年反逃犯條例修訂事件相關的案件及與國家安全相關的案件。

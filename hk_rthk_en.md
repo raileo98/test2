@@ -1,3 +1,27 @@
+# Black Monday hit for stocks on tariffs chaos
+
+![A securities brokerage trader in Hong Kong sees red on his screen on a day that saw the Hang Seng Index lose more than 3,100 points to end at 19,710.26. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799241_1_20250407161838.jpg&q=90)
+  
+
+Asian and European equities collapsed on a black Monday for markets after China hammered the United States with its own hefty tariffs, ramping up a trade war many fear could spark a recession.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799241-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799241-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799241-20250407.htm)
+
+---
+
 # 'Govt will stay vigilant over market changes'
 
 ![Joseph Chan's reassurance comes after a black Monday for equity markets that saw the Hang Seng Index plunge more than 10 percent in opening trades. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799235_1_20250407134313.jpg&q=90)
@@ -1411,29 +1435,5 @@ Manchester City midfielder Kevin De Bruyne confirmed on Friday that he will leav
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm)
-
----
-
-# China to impose tariffs of 34pc on all US goods
-
-![The authorities in Beijing say the countermeasure will be effective from April 10. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798960_1_20250404190851.jpg&q=90)
-  
-
-China on Friday announced the imposition of tariffs of 34 percent on all goods from the United States, as a countermeasure to the sweeping tariffs imposed by the Trump administration.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm)
 
 ---

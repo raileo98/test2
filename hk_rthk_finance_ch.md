@@ -1,3 +1,27 @@
+# 恒指低收3021點　主板成交近6209億元創新高
+
+![恒生指數收市報19828點，跌3021點，跌幅13.2%，是自2008年10月以來最大百分比跌幅。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799263_1_20250407161632.jpg&q=80)
+  
+
+市場憂慮貿易衝突升級加劇及引發經濟衰退，港股失守2萬點關口。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799263-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799263-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799263-20250407.htm)
+
+---
+
 # 歐洲主要股市下挫逾5-7%
 
 ![法蘭克福DAX指數報19147點，跌1493點，跌幅7.24%，歐洲主要股市下挫。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799258_1_20250407155312.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799002-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799002-20250405.htm)
-
----
-
-# 美國3月非農業新增職位勝預期　分析料關稅影響最早4月數據反映
-
-![分析估計，對等關稅帶來的影響，最快在4月美國非農業就業報告顯現。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798998_1_20250405072254.jpg&q=90)
-  
-
-美國3月非農業新增職位22.8萬個，遠高於市場預期的13.5萬個，亦高於2月向下修訂的11.7萬個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm)
 
 ---
