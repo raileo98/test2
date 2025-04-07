@@ -1,3 +1,51 @@
+# Three people die in helicopter crash off Japan
+
+![An ambulance carrying a person rescued from the medical evacuation helicopter accident arrives at Fukuoka Washiro Hospital in Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799178_1_20250407085759.jpg&q=90)
+  
+
+A medical transport helicopter carrying a patient fell into the sea in southwestern Japan Sunday, leaving three of the six people aboard dead, the Japan coast guard said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799178-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799178-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799178-20250407.htm)
+
+---
+
+# Nikkei plunges on Trump tariff concerns
+
+![A display shows the sharp decline in the Nikkei average stock price. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799177_1_20250407084857.jpg&q=90)
+  
+
+Japan's Nikkei share index plunged further on Monday, as US futures pointed to additional losses on Wall Street over President Donald Trump's punishing tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm)
+
+---
+
 # Second US child dies of measles, almost 650 ill
 
 ![People stand outside a church after the funeral for an eight-year-old girl who died of measles in Seminole, Texas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799174_1_20250407083943.jpg&q=90)
@@ -1387,53 +1435,5 @@ A bitcoin investor who bought a SpaceX flight for himself and three polar explor
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm)
-
----
-
-# Bangkok reviews construction safety in quake aftermath
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798389_1_20250401094853.jpg&q=90)
-  
-
-Thai authorities said they were investigating why a single office tower block under construction in Bangkok collapsed during Friday's earthquake that otherwise caused limited damage in the capital.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798389-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798389-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798389-20250401.htm)
-
----
-
-# Impeachment crunch time for Yoon on Friday
-
-![Yoon Suk-yeol will learn whether he has the top job in South Korea come Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798397_1_20250401101622.jpg&q=90)
-  
-
-South Korea’s Constitutional Court said it will rule on whether to formally dismiss or reinstate impeached President Yoon Suk Yeol on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798397-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798397-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798397-20250401.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 台股復市　加權指數重挫近10%
+
+![加權指數失守20000點，較早時報19217點，跌幅9.77%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799180_1_20250407090400.jpg&q=90)
+  
+
+台灣股市假期後復市，追回外圍及區內跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799180-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799180-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799180-20250407.htm)
+
+---
+
+# 台灣交易所：若股市非理性下跌將配合主管機關實施穩定市場措施
+
+![台灣證券交易所表示，若股市非理性下跌，將配合主管機關政策進一步實施穩定市場措施。（交易所網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799176_1_20250407084301.jpg&q=90)
+  
+
+台灣證券交易所表示，若股市非理性下跌，將配合主管機關政策進一步實施穩定市場措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799176-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799176-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799176-20250407.htm)
+
+---
+
 # 日股跌勢加劇　日經指數重挫近8%
 
 ![日經指數較早時報31181點，跌2599點，跌幅7.7%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799172_1_20250407083530.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798880-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798880-20250404.htm)
-
----
-
-# 歐洲主要股市低收　德法股市挫逾3%
-
-![法蘭克福DAX指數報21717點，跌673點，跌幅3.01%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798879_1_20250404042312.jpg&q=90)
-  
-
-歐洲主要股市下跌。投資者擔心貿易戰不斷升溫將剎停經濟增長。對經濟敏感的銀行、基礎資源、銀行及奢侈品類股份下挫，資金流入防守性較強的公用及房地產股份。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798879-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798879-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798879-20250404.htm)
-
----
-
-# 清明節長假期開始　深圳口岸料日均95萬人次出入境
-
-![當局預計，羅湖、福田和深圳灣口岸是承擔假期出入境客流的主力口岸。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798876_1_20250404025651.jpg&q=90)
-  
-
-清明節長假期今日開始，深圳口岸辦預計，假期期間日均出入境人數95萬人次，其中今日是出入境高峰，預計單日客流量達103萬人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm)
 
 ---

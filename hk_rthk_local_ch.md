@@ -1,3 +1,28 @@
+# 內地民間「村晚」盛行    發起人稱可振興鄉村文旅經濟
+
+![廣東恩平今年初舉辦了一場由當地居民及大學生籌辦的鄉村文藝晚會「村晚」。（受訪者社交平台截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799179_1_20250407085829.jpg&q=90)
+![鄭偉庭（左）說，村晚讓更多人認識他的文創作品；李勁新（中）認為可好好利用鄉村自然資源發展休閒旅遊；劉景峰（右）說，民間村晚有助加強村民凝聚力。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799179_3_20250407091014.jpg&q=90)
+  
+
+廣東當局表示，今年是廣東「百縣千鎮萬村高質量發展工程」、簡稱「百千萬工程」的重要節點，要全面推進鄉村振興，包括推廣文旅、辦好「廣東村晚」、即鄉村文藝晚會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm)
+
+---
+
 # 警方太子道東截查私家車檢獲毒品拘捕3人
 
 ![警方在東九龍打擊酒後駕駛。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799162_1_20250407065413.jpg&q=85)
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798957-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798957-20250404.htm)
-
----
-
-# 中國對原產於美國所有進口商品加徵34%關稅
-
-![國務院關稅稅則委員會宣布本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798952_1_20250404182448.jpg&q=90)
-  
-
-國務院關稅稅則委員會宣布，本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm)
 
 ---

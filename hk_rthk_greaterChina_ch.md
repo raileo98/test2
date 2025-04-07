@@ -1,3 +1,28 @@
+# 內地民間「村晚」盛行    發起人稱可振興鄉村文旅經濟
+
+![廣東恩平今年初舉辦了一場由當地居民及大學生籌辦的鄉村文藝晚會「村晚」。（受訪者社交平台截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799179_1_20250407085829.jpg&q=90)
+![鄭偉庭（左）說，村晚讓更多人認識他的文創作品；李勁新（中）認為可好好利用鄉村自然資源發展休閒旅遊；劉景峰（右）說，民間村晚有助加強村民凝聚力。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799179_3_20250407091014.jpg&q=90)
+  
+
+廣東當局表示，今年是廣東「百縣千鎮萬村高質量發展工程」、簡稱「百千萬工程」的重要節點，要全面推進鄉村振興，包括推廣文旅、辦好「廣東村晚」、即鄉村文藝晚會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm)
+
+---
+
 # 《人民日報》再發文指中國有強大抗壓能力面對美國關稅霸凌衝擊
 
 ![文章說，中國是超大規模經濟體，面對美國的關稅霸凌衝擊，具有強大的抗壓能力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799141_1_20250406215425.jpg&q=35)
@@ -1416,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm)
-
----
-
-# 中國政府第二批援助緬甸物資運抵仰光機場
-
-![中國政府向緬甸提供的第二批緊急人道救災援助物資抵達仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798791_1_20250403144239.jpg&q=90)
-  
-
-緬甸大地震搜救工作持續，國家管理委員會說，截至當地時間今天上午8時，強震已導致3085人死亡，4715人受傷，另有341人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm)
 
 ---

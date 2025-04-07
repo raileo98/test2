@@ -1,3 +1,76 @@
+# 台股復市　加權指數重挫近10%
+
+![加權指數失守20000點，較早時報19217點，跌幅9.77%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799180_1_20250407090400.jpg&q=90)
+  
+
+台灣股市假期後復市，追回外圍及區內跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799180-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799180-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799180-20250407.htm)
+
+---
+
+# 內地民間「村晚」盛行    發起人稱可振興鄉村文旅經濟
+
+![廣東恩平今年初舉辦了一場由當地居民及大學生籌辦的鄉村文藝晚會「村晚」。（受訪者社交平台截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799179_1_20250407085829.jpg&q=90)
+![鄭偉庭（左）說，村晚讓更多人認識他的文創作品；李勁新（中）認為可好好利用鄉村自然資源發展休閒旅遊；劉景峰（右）說，民間村晚有助加強村民凝聚力。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799179_3_20250407091014.jpg&q=90)
+  
+
+廣東當局表示，今年是廣東「百縣千鎮萬村高質量發展工程」、簡稱「百千萬工程」的重要節點，要全面推進鄉村振興，包括推廣文旅、辦好「廣東村晚」、即鄉村文藝晚會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm)
+
+---
+
+# 台灣交易所：若股市非理性下跌將配合主管機關實施穩定市場措施
+
+![台灣證券交易所表示，若股市非理性下跌，將配合主管機關政策進一步實施穩定市場措施。（交易所網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799176_1_20250407084301.jpg&q=90)
+  
+
+台灣證券交易所表示，若股市非理性下跌，將配合主管機關政策進一步實施穩定市場措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799176-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799176-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799176-20250407.htm)
+
+---
+
 # 日股跌勢加劇　日經指數重挫近8%
 
 ![日經指數較早時報31181點，跌2599點，跌幅7.7%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799172_1_20250407083530.jpg&q=90)
@@ -24,7 +97,11 @@
 
 # 韓媒：南韓政府初步定於6月3日舉行總統選舉
 
+![韓媒稱南韓政府初步定於今年6月3日舉行大選，填補上星期被罷免的尹錫悅的總統職務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799173_1_20250407090000.jpg&q=90)
   
+
+南韓傳媒報道，南韓政府初步定於今年6月3日，舉行總統大選，填補上星期被罷免的尹錫悅的總統職務。
+
   
 
 
@@ -1360,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799102-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799102-20250406.htm)
-
----
-
-# 九龍城有私家車撞傷女途人　車上2乘客不適
-
-![九龍城有私家車撞傷女途人　車上2乘客不適](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799100_1_20250406121548.jpg&q=90)
-  
-
-九龍城早上近11時發生交通意外，一輛私家車駛至賈炳達道128號附近時，撞向路邊鐵欄和指示牌，一名女途人受傷倒地，車上兩名女乘客亦報稱頸痛。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799100-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799100-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799100-20250406.htm)
-
----
-
-# 陳茂波堅決反對美國加徵關稅　本港保持警惕作好準備應對
-
-![陳茂波表示，地緣局勢發展困擾全球貿易前景，香港短期內亦難免會受到一定影響。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799097_1_20250406121315.jpg&q=90)
-  
-
-美國將對香港的進口產品徵收對等關稅，財政司司長陳茂波表示堅決反對，又說此時此刻更須保持警惕，以底綫思維做好充分準備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799097-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799097-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799097-20250406.htm)
-
----
-
-# 專家稱本港百日咳個案處於低水平　未打疫苗兒童外遊需做好預防
-
-![葉柏強表示，留意到最近日本及東南亞出現百日咳等傳染病爆發，相關感染數字明顯上升。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799096_1_20250406121248.jpg&q=90)
-  
-
-港大臨床醫學學院兒童及青少年科學系臨床教授葉柏強表示，留意到最近日本及東南亞出現百日咳等傳染病爆發，相關感染數字明顯上升，目前本港百日咳感染數字處於非常低水平，未見嚴重爆發，但不應掉以輕心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799096-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799096-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799096-20250406.htm)
 
 ---
