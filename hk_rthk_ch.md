@@ -1,3 +1,27 @@
+# 澳洲財長：澳洲能應對美國關稅直接影響　但經濟增長受到衝擊
+
+![澳洲財長查默斯表示，澳洲能夠應對美國實施關稅的直接影響，但澳洲經濟將受到打擊。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799228_1_20250407124743.jpg&q=85)
+  
+
+澳洲財長查默斯表示，澳洲能夠應對美國實施關稅的直接影響，但隨著美國和中國經濟增長放緩，澳洲經濟將受到打擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799228-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799228-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799228-20250407.htm)
+
+---
+
 # 男子攜私煙抵港判囚7個月5日　海關稱判刑具阻嚇作用
 
   
@@ -1404,29 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799146-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799146-20250407.htm)
-
----
-
-# 教宗方濟各出院後首次公開露面　在聖伯多祿廣場發表簡短講話
-
-![方濟各在聖伯多祿廣場出席為病人舉行的彌撒。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799145_1_20250406225457.jpg&q=85)
-  
-
-教宗方濟各出院兩星期後首次公開露面，在梵蒂岡聖伯多祿廣場發表簡短講話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm)
 
 ---

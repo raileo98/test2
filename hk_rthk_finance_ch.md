@@ -1,3 +1,27 @@
+# 澳洲財長：澳洲能應對美國關稅直接影響　但經濟增長受到衝擊
+
+![澳洲財長查默斯表示，澳洲能夠應對美國實施關稅的直接影響，但澳洲經濟將受到打擊。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799228_1_20250407124743.jpg&q=85)
+  
+
+澳洲財長查默斯表示，澳洲能夠應對美國實施關稅的直接影響，但隨著美國和中國經濟增長放緩，澳洲經濟將受到打擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799228-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799228-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799228-20250407.htm)
+
+---
+
 # 恒指半日跌2445點　成交額升至逾3200億元
 
 ![恒指中午收市報20404點，跌2445點，跌幅10.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799221_1_20250407120957.jpg&q=80)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm)
-
----
-
-# 學者稱郵輪以香港為母港正逐漸增加
-
-![黃家榮稱郵輪旅遊從疫後復蘇，以香港為母港的郵輪佔香港停泊郵輪數目一半。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798930_1_20250404131309.jpg&q=85)
-  
-
-旅遊發展局表示，3月總共有17艘國際郵輪訪港，帶來數以千計遊客。去年共有30家郵輪公司派船來港，比前一年增加12家；郵輪旅客總流量35.5萬人次，按年上升63%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm)
 
 ---
