@@ -1,3 +1,122 @@
+# 高盛調低明年油價預測　因經濟衰退風險加劇
+
+![高盛下調明年布蘭特期油及紐約期油年度平均價預測，表示經濟衰退風險進一步加大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799200_1_20250407105725.jpg&q=85)
+  
+
+投資銀行高盛下調明年布蘭特期油及紐約期油年度平均價預測，表示經濟衰退風險進一步加大，產油國增加供應可能超過原先的假設。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799200-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799200-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799200-20250407.htm)
+
+---
+
+# 陳浩濂：金融市場瞬息萬變　政府與監管機構進行跨市場全天候監管
+
+  
+
+美國總統特朗普的關稅措施引發環球股市下挫，財經事務及庫務局副局長陳浩濂表示，金融市場瞬息萬變，在維護金融安全方面，政府與金融監管機構一直緊密合作，對貨幣、股票、期貨、衍生工具等市場進行跨市場、聯動式和全天候監管。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799201-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799201-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799201-20250407.htm)
+
+---
+
+# 央視「玉淵譚天」文章指特朗普濫施關稅　美國上下開展自救行動
+
+![文章指關稅措施從根本上重塑美國人生活。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799195_1_20250407104031.jpg&q=75)
+  
+
+央視旗下社交平台「玉淵譚天」發文，形容關稅措施為美國帶來的風暴才剛剛開始。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm)
+
+---
+
+# 陳茂波稱致力推動Web3.0發展　確保市場完整性不扼殺創新
+
+![陳茂波說，特區政府一直透過平衡和有利於創新的監管方式，尋求為市場參與者維持公平的競爭環境。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799199_1_20250407110403.jpg&q=85)
+  
+
+財政司司長陳茂波表示，香港致力推動第三代互聯網「Web3.0」發展，因Web3.0背後的區塊鏈技術，具備安全、透明和低成本的特點，特區政府一直透過平衡和有利於創新的監管方式，尋求為市場參與者維持公平的競爭環境。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799199-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799199-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799199-20250407.htm)
+
+---
+
+# 日本及南韓均表示會採取措施支持企業應對關稅
+
+![日本政府指，必須採取一切可用手段，減輕美國關稅對經濟的打擊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799198_1_20250407104704.jpg&q=85)
+  
+
+美國對貿易夥伴徵收對等關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799198-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799198-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799198-20250407.htm)
+
+---
+
 # 日經指數31000點關口反覆　半日跌2188點
 
 ![日經指數半日收報31591點，跌2188點，跌幅6.48%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799196_1_20250407103435.jpg&q=90)
@@ -1316,125 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm)
-
----
-
-# 內地股市休市
-
-![內地今日假期，金融市場休市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798903_1_20250404095431.jpg&q=90)
-  
-
-內地今日假期，金融市場休市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798903-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798903-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798903-20250404.htm)
-
----
-
-# 日本2月家庭開支3個月來首次下跌
-
-![日本2月家庭開支按年下跌0.5%，跌幅小過市場預期，但就是3個月來首次下跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798902_1_20250404094446.jpg&q=85)
-  
-
-日本2月家庭開支按年下跌0.5%，跌幅小過市場預期，但就是3個月來首次下跌，反映物價高企打擊日本家庭消費意欲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798902-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798902-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798902-20250404.htm)
-
----
-
-# 台股假期休市
-
-![台灣今日假期，金融市場休市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798897_1_20250404090614.jpg&q=90)
-  
-
-台灣今日假期，金融市場休市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798897-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798897-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798897-20250404.htm)
-
----
-
-# 分析料資產市場波動持續一段時間　人行或多做貨幣政策應對貿易戰
-
-![郭家耀認為若美國減息及美元下跌，內地或多做貨幣政策減輕貿易戰對內地的衝擊。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798896_1_20250404084836.jpg&q=90)
-  
-
-投資者憂慮美國全面關稅政策引發大規模貿易戰及經濟衰退。紐約股市急跌，3個主要指數創約5年來最大單日跌幅，跌幅近4%至6%。歐洲股市亦下挫。倫敦、法蘭克福及巴黎股市分別跌約1.6%至3.3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798896-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798896-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798896-20250404.htm)
-
----
-
-# 《環看天下》：特朗普宣布對等關稅　分析料通脹加劇無可避免
-
-![特朗普宣布向全球多國及地區實施「對等關稅」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798894_1_20250404082028.jpg&q=90)
-  
-
-美國總統特朗普宣布，向全球多國實施「對等關稅」，包括向所有進口貨品，徵收10%「基準關稅」，個別國家的稅率更高，包括向中國貨品繼原有加徵20%關稅後，額外再加徵34%「對等關稅」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm)
 
 ---

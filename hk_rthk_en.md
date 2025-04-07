@@ -1,3 +1,27 @@
+# Doncic soars as Lakers silence Thunder
+
+![Luka Doncic (77) shoots between Oklahoma City Thunder guards Alex Caruso and Cason Wallace  during the second half at Paycom Center. Alonzo Adams-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799203_1_20250407110657.jpg&q=90)
+  
+
+Luka Doncic scored 30 points as the Los Angeles Lakers produced a devastating display of long-range shooting to score a surprising 126-99 blowout over the No1 ranked Oklahoma City Thunder.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799203-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799203-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799203-20250407.htm)
+
+---
+
 # Seoul to set presidential election for June 3: Yonhap
 
 ![People attended a rally to celebrate the expulsion of South Korean President Yoon Suk Yeol in Seoul on Saturday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799191_1_20250407101114.jpg&q=90)
@@ -1411,29 +1435,5 @@ Wall Street led a global markets bloodbath on Thursday as countries around the w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm)
-
----
-
-# Attack on Gaza medics likely Israeli 'war crimes': UN
-
-![People and Palestinian rescuers run for cover as Israeli strike hits a school in the al-Tuffah neighbourhood in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798885_1_20250404052856.jpg&q=85)
-  
-
-The death of 15 medics and humanitarian workers in Gaza after shots were fired at their ambulances raises further concerns of "war crimes by the Israeli army," the UN High Commissioner for Human Rights said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798885-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798885-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798885-20250404.htm)
 
 ---

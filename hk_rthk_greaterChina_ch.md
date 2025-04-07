@@ -1,3 +1,27 @@
+# 央視「玉淵譚天」文章指特朗普濫施關稅　美國上下開展自救行動
+
+![文章指關稅措施從根本上重塑美國人生活。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799195_1_20250407104031.jpg&q=75)
+  
+
+央視旗下社交平台「玉淵譚天」發文，形容關稅措施為美國帶來的風暴才剛剛開始。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm)
+
+---
+
 # 中方強烈不滿及堅決反對少數國家與組織罔顧事實干涉中國內政
 
   
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798806-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798806-20250403.htm)
-
----
-
-# 外交部：反對美國打著「對等」幌子加關稅　促美方糾正錯誤做法
-
-![外交部發言人郭嘉昆表示，中方堅決反對美方打著「對等」的幌子，對中國在內的多國輸美產品加徵關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798804_1_20250403154448.jpg&q=90)
-  
-
-在北京，外交部回應美國加徵關稅，發言人郭嘉昆表示，美方打著「對等」的幌子，對包括中國在內的多國輸美產品加徵關稅，嚴重違反世貿組織規則，嚴重損害以規則為基礎的多邊貿易體制。中方對此堅決反對，將採取必要措施堅定維護自身正當利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm)
 
 ---

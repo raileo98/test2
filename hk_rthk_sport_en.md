@@ -1,3 +1,27 @@
+# Doncic soars as Lakers silence Thunder
+
+![Luka Doncic (77) shoots between Oklahoma City Thunder guards Alex Caruso and Cason Wallace  during the second half at Paycom Center. Alonzo Adams-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799203_1_20250407110657.jpg&q=90)
+  
+
+Luka Doncic scored 30 points as the Los Angeles Lakers produced a devastating display of long-range shooting to score a surprising 126-99 blowout over the No1 ranked Oklahoma City Thunder.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799203-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799203-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799203-20250407.htm)
+
+---
+
 # Foreigners run in Pyongyang Marathon, first in 6 years
 
 ![Participants take part in the 31st Pyongyang International Marathon in Pyongyang. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799137_1_20250406204551.jpg&q=85)
@@ -1428,29 +1452,5 @@ The winner of this year's expanded Club World Cup in the United States will rece
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm)
-
----
-
-# New Zealand aim for HK Sevens three-peat
-
-![The Melrose Claymores, a tournament featuring Asian teams that runs alongside the Sevens, will be back this weekend. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797526_4_20250326175525.jpg&q=80)
-  
-
-The men’s and women’s squad from New Zealand are chasing their third straight Hong Kong Sevens title this weekend when they battle it out at the brand new Kai Tak Stadium.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm)
 
 ---

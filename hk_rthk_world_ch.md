@@ -1,3 +1,27 @@
+# 央視「玉淵譚天」文章指特朗普濫施關稅　美國上下開展自救行動
+
+![文章指關稅措施從根本上重塑美國人生活。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799195_1_20250407104031.jpg&q=75)
+  
+
+央視旗下社交平台「玉淵譚天」發文，形容關稅措施為美國帶來的風暴才剛剛開始。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm)
+
+---
+
 # 中方強烈不滿及堅決反對少數國家與組織罔顧事實干涉中國內政
 
   
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm)
-
----
-
-# 烏克蘭有住宅區被俄導彈轟炸　最少19死包括9名兒童
-
-![克里維里赫巿一個住宅區，星期五被俄羅斯的導彈擊中，烏方官員說最少19人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799012_1_20250405104232.jpg&q=80)
-  
-
-烏克蘭克里維里赫巿一個住宅區，星期五被俄羅斯的導彈擊中，烏方官員說最少19人死亡，當中包括9名兒童，俄方就說行動是針對於當地進行的一個軍事會議。遇襲後市內發生火警，有住宅樓宇受損。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm)
 
 ---

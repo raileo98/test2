@@ -1,3 +1,73 @@
+# 張李佳蕙獲委任為機管局新任行政總裁　任期今日起生效
+
+  
+
+機管局新任行政總裁張李佳蕙的3年任期今日起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799205-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799205-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799205-20250407.htm)
+
+---
+
+# 陳浩濂：金融市場瞬息萬變　政府與監管機構進行跨市場全天候監管
+
+  
+
+美國總統特朗普的關稅措施引發環球股市下挫，財經事務及庫務局副局長陳浩濂表示，金融市場瞬息萬變，在維護金融安全方面，政府與金融監管機構一直緊密合作，對貨幣、股票、期貨、衍生工具等市場進行跨市場、聯動式和全天候監管。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799201-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799201-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799201-20250407.htm)
+
+---
+
+# 陳茂波稱致力推動Web3.0發展　確保市場完整性不扼殺創新
+
+![陳茂波說，特區政府一直透過平衡和有利於創新的監管方式，尋求為市場參與者維持公平的競爭環境。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799199_1_20250407110403.jpg&q=85)
+  
+
+財政司司長陳茂波表示，香港致力推動第三代互聯網「Web3.0」發展，因Web3.0背後的區塊鏈技術，具備安全、透明和低成本的特點，特區政府一直透過平衡和有利於創新的監管方式，尋求為市場參與者維持公平的競爭環境。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799199-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799199-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799199-20250407.htm)
+
+---
+
 # 周一鳴談理大行動籲勿標籤被捕年輕人　稱幕後推手最「惡毒」
 
 ![周一鳴說，當時每日都接觸到被捕年輕人，發現他們多受朋輩影響，缺乏清晰動機，並強調事件的「幕後推手」最「惡毒」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799193_1_20250407104240.jpg&q=80)
@@ -1367,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm)
-
----
-
-# 美國網紅遊港多處有支持者等候　天后站有閘機被破壞港鐵已報警
-
-![這名美國網紅今日到港九多個地點，多處有支持者等候。（直播截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798970_1_20250404215538.jpg&q=90)
-  
-
-一名美國網紅近日來港，今日到港九多個地點，多處有大批他的支持者等候。期間在港鐵天后站，有設施被毀壞，港鐵已經報警，並譴責作出相關行為的人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm)
-
----
-
-# 莊太量指中國反制或令美國及歐洲股市下跌　料美國難應付多國反制
-
-![莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798968_1_20250404205933.jpg&q=85)
-  
-
-國務院關稅稅則委員會宣布，本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。他相信，美股有機會繼續跌，近日有機會引發全球小股災。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm)
-
----
-
-# 劉兆佳指中方以組合拳反擊美國　認為不是姿態要令對方感到痛苦
-
-![劉兆佳分析，在眾多國家之中，中國最有實力對美國強硬反制，中國對美國有大量順差，美國買中國貨多於中國買美國貨。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798966_1_20250404205624.jpg&q=80)
-  
-
-國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施，包括對原產美國的進口商品加徵34%關稅，對7類中重稀土相關物項實施出口管制等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm)
 
 ---

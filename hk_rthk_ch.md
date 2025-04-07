@@ -1,3 +1,145 @@
+# 張李佳蕙獲委任為機管局新任行政總裁　任期今日起生效
+
+  
+
+機管局新任行政總裁張李佳蕙的3年任期今日起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799205-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799205-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799205-20250407.htm)
+
+---
+
+# 高盛調低明年油價預測　因經濟衰退風險加劇
+
+![高盛下調明年布蘭特期油及紐約期油年度平均價預測，表示經濟衰退風險進一步加大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799200_1_20250407105725.jpg&q=85)
+  
+
+投資銀行高盛下調明年布蘭特期油及紐約期油年度平均價預測，表示經濟衰退風險進一步加大，產油國增加供應可能超過原先的假設。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799200-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799200-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799200-20250407.htm)
+
+---
+
+# 陳浩濂：金融市場瞬息萬變　政府與監管機構進行跨市場全天候監管
+
+  
+
+美國總統特朗普的關稅措施引發環球股市下挫，財經事務及庫務局副局長陳浩濂表示，金融市場瞬息萬變，在維護金融安全方面，政府與金融監管機構一直緊密合作，對貨幣、股票、期貨、衍生工具等市場進行跨市場、聯動式和全天候監管。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799201-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799201-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799201-20250407.htm)
+
+---
+
+# 央視「玉淵譚天」文章指特朗普濫施關稅　美國上下開展自救行動
+
+![文章指關稅措施從根本上重塑美國人生活。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799195_1_20250407104031.jpg&q=75)
+  
+
+央視旗下社交平台「玉淵譚天」發文，形容關稅措施為美國帶來的風暴才剛剛開始。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm)
+
+---
+
+# 陳茂波稱致力推動Web3.0發展　確保市場完整性不扼殺創新
+
+![陳茂波說，特區政府一直透過平衡和有利於創新的監管方式，尋求為市場參與者維持公平的競爭環境。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799199_1_20250407110403.jpg&q=85)
+  
+
+財政司司長陳茂波表示，香港致力推動第三代互聯網「Web3.0」發展，因Web3.0背後的區塊鏈技術，具備安全、透明和低成本的特點，特區政府一直透過平衡和有利於創新的監管方式，尋求為市場參與者維持公平的競爭環境。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799199-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799199-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799199-20250407.htm)
+
+---
+
+# 日本及南韓均表示會採取措施支持企業應對關稅
+
+![日本政府指，必須採取一切可用手段，減輕美國關稅對經濟的打擊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799198_1_20250407104704.jpg&q=85)
+  
+
+美國對貿易夥伴徵收對等關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799198-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799198-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799198-20250407.htm)
+
+---
+
 # 日經指數31000點關口反覆　半日跌2188點
 
 ![日經指數半日收報31591點，跌2188點，跌幅6.48%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799196_1_20250407103435.jpg&q=90)
@@ -1291,149 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm)
-
----
-
-# 人民日報文章指美國濫施關稅衝擊全球經濟秩序穩定　中國堅決反對
-
-![文章指美國有關做法是以關稅手段顛覆現有國際經貿秩序。（人民網網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799125_1_20250406182535.jpg&q=90)
-  
-
-《人民日報》刊登文章指出，近期美國以各種借口宣布對包括中國在內的所有交易伙伴濫施關稅，嚴重侵犯各國正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序穩定，中國政府對此強烈譴責，堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm)
-
----
-
-# 美國及越南商界促華盛頓推遲對越南商品徵收46%對等關稅
-
-![越南是很多西方國家企業在東南亞的主要生產基地。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799124_1_20250406182602.jpg&q=85)
-  
-
-美國及越南商界向華盛頓方面請求推遲對越南商品徵收46%「對等關稅」，指出徵稅將損害商界及兩地商業關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm)
-
----
-
-# 內地鐵路部門採取措施應對清明假期返程客流高峰
-
-![國家鐵路集團預計，今日全國鐵路預計發送旅客2000萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799122_1_20250406165744.jpg&q=85)
-  
-
-國家鐵路集團表示，小長假最後一天，全國鐵路預計發送旅客2000萬人次，計劃加開1214列旅客列車，鐵路部門有多項措施應對清明假期返程客流高峰。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm)
-
----
-
-# 南韓一架直升機在協助撲救山火期間墜毀　一名機師死亡
-
-![南韓近期山火頻頻，大量房屋及建築物損毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799121_1_20250406162748.jpg&q=90)
-  
-
-南韓一架滅火直升機在東南部城市大邱協助撲救山火期間墜毀，消防部門表示機上一名機師死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799121-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799121-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799121-20250406.htm)
-
----
-
-# 港大醫學院與團體辦外傭免費體檢活動　逾百人參與
-
-![過百名外傭到場參加。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799120_2_20250406162418.jpg&q=85)
-  
-
-港大醫學院和中風研究組首次在醫學院校園，舉辦外傭免費健康檢查活動，以提升外傭對中風的關注度和認識，從而積極預防並及早治療，過百名外傭到場參加。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799120-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799120-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799120-20250406.htm)
-
----
-
-# 德國發現疑似二戰遺留未爆炸彈散逾1萬5千人　列車服務受限
-
-![德國北部發現疑似二戰遺留的未爆炸彈，當局疏散超過1萬5千人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799119_1_20250406172508.jpg&q=80)
-  
-
-德國北部發現疑似二戰遺留的未爆炸彈，當局疏散超過1萬5千人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm)
 
 ---
