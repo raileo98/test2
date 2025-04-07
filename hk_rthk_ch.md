@@ -1,3 +1,26 @@
+# 男子攜私煙抵港判囚7個月5日　海關稱判刑具阻嚇作用
+
+  
+
+一名入境男子因進口未完稅香煙及未有向海關人員申報，違反《應課稅品條例》，以及進口另類吸煙產品，違反《進出口條例》，日前在西九龍裁判法院被判監禁7個月零5日。海關對判刑表示歡迎，認為具相當阻嚇作用，充分反映罪行的嚴重性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799229-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799229-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799229-20250407.htm)
+
+---
+
 # 城大男學生涉食堂及圖書館內襲警等　被控6罪押後至本月16日
 
   
@@ -69,6 +92,7 @@
 
 # 外置充電器今起不得航班上使用亦不得放置行李架上　有旅客稱合理
 
+![由今天起，飛機乘客不得在航班上使用外置充電器，亦不得把充電器放置於行李架上。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799222_1_20250407125158.jpg&q=90)
   
 
 民航處規定，由今天起，飛機乘客不得在航班上使用外置充電器，亦不得把充電器放置於行李架上。
@@ -1404,29 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm)
-
----
-
-# 入境處指截至晚上9時　逾55萬人次經各口岸入境
-
-![入境處表示，截至晚上9時，有超過55萬人次經各口岸入境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799144_1_20250406223802.jpg&q=75)
-  
-
-清明節三日長周末假期最後一天，入境處表示，截至晚上9時，有超過55萬人次經各口岸入境，當中43萬多人次是香港居民。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm)
 
 ---

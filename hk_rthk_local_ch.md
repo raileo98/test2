@@ -1,3 +1,26 @@
+# 男子攜私煙抵港判囚7個月5日　海關稱判刑具阻嚇作用
+
+  
+
+一名入境男子因進口未完稅香煙及未有向海關人員申報，違反《應課稅品條例》，以及進口另類吸煙產品，違反《進出口條例》，日前在西九龍裁判法院被判監禁7個月零5日。海關對判刑表示歡迎，認為具相當阻嚇作用，充分反映罪行的嚴重性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799229-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799229-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799229-20250407.htm)
+
+---
+
 # 城大男學生涉食堂及圖書館內襲警等　被控6罪押後至本月16日
 
   
@@ -46,6 +69,7 @@
 
 # 外置充電器今起不得航班上使用亦不得放置行李架上　有旅客稱合理
 
+![由今天起，飛機乘客不得在航班上使用外置充電器，亦不得把充電器放置於行李架上。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799222_1_20250407125158.jpg&q=90)
   
 
 民航處規定，由今天起，飛機乘客不得在航班上使用外置充電器，亦不得把充電器放置於行李架上。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799024-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799024-20250405.htm)
-
----
-
-# 水務署署長稱仍在檢討水費調整　用水量大行業冀加水費循序漸進
-
-![黃恩諾表示，仍在檢討水費調整，但他看過水費調整，對於節省用水的彈性言，並非十分顯著。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799022_1_20250405122558.jpg&q=90)
-  
-
-水務署署長黃恩諾表示，仍在檢討水費調整，但他看過水費的調整，對於節省用水的彈性而言，並非十分顯著，當局希望做到收回成本，用者自付，亦要顧及民生和經濟情況。他說，與一些用水量大的行業，例如賓館業界，餐飲業及建造業等商討過，大家都理解本港水費多年未有調整，希望即使加水費，最好循序漸進，不要一下子加太多。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm)
 
 ---

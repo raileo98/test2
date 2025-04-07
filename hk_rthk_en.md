@@ -1,3 +1,27 @@
+# Alcaraz admits Sinner pressure getting to him
+
+![Carlos Alcaraz says he is at peace with not being able to displace Jannik Sinner from his top ranking. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799227_1_20250407124847.jpg&q=90)
+  
+
+Carlos Alcaraz said pressure to reclaim the world number one ranking from the suspended Jannik Sinner has had a negative impact on his form this season.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799227-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799227-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799227-20250407.htm)
+
+---
+
 # Vivian Cheung takes over reins at Airport Authority
 
 ![Vivian Cheung has been appointed as the Airport Authority's CEO. Photo courtesy of the Airport Authority.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799220_1_20250407120401.jpg&q=90)
@@ -1411,29 +1435,5 @@ One of the National Games test events – the Hong Kong International Track Cup 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm)
-
----
-
-# S Korea seizes two tons of cocaine in record bust
-
-![The drugs were packed in 56 sacks and hidden in a secret compartment behind the engine room. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798939_1_20250404153820.jpg&q=90)
-  
-
-South Korea discovered and seized two tons of cocaine hidden aboard a Norwegian-flagged vessel, authorities said on Friday, marking the country's largest drug bust to date.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm)
 
 ---

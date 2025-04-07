@@ -1,3 +1,27 @@
+# Alcaraz admits Sinner pressure getting to him
+
+![Carlos Alcaraz says he is at peace with not being able to displace Jannik Sinner from his top ranking. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799227_1_20250407124847.jpg&q=90)
+  
+
+Carlos Alcaraz said pressure to reclaim the world number one ranking from the suspended Jannik Sinner has had a negative impact on his form this season.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799227-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799227-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799227-20250407.htm)
+
+---
+
 # HK triathletes clinch bronze on home soil
 
 ![The SAR team won third in the mixed relay on home soil. Screencap courtesy of Triathlon Association of Hong Kong China](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799202_1_20250407110223.jpg&q=90)
@@ -1428,29 +1452,5 @@ LeBron James tipped in a buzzer-beating rebound with 0.1 seconds remaining as th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm)
-
----
-
-# Fils outplays top seed Zverev in Miami Open upset
-
-![Alexander Zverev returns a shot against Arthur Fils in their fourth-round match at the Hard Rock Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797645_1_20250327114411.jpg&q=90)
-  
-
-France's Arthur Fils upset top-seed Alexander Zverev with an outstanding display earning him a 3-6, 6-3, 6-4 win over the German in the fourth round of the Miami Open.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm)
 
 ---
