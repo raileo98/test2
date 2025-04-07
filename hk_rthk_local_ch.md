@@ -1,3 +1,26 @@
+# 外置充電器今起不得航班上使用亦不得放置行李架上　有旅客稱合理
+
+  
+
+民航處規定，由今天起，飛機乘客不得在航班上使用外置充電器，亦不得把充電器放置於行李架上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799222-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799222-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799222-20250407.htm)
+
+---
+
 # 工程公司負責人因維修工程糾紛涉「起底」客戶　被私隱公署拘捕
 
 ![男子涉嫌在未經客戶的同意下披露她的個人資料，違反《個人資料（私隱）條例》規定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799219_1_20250407121141.jpg&q=80)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799018-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799018-20250405.htm)
-
----
-
-# 房協發新租約全面規管富戶　凌嘉勤：若不接受有4個月寬限期遷出
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799017_1_20250405111850.jpg&q=90)
-  
-
-房協會向出租屋邨租戶發出新的租約，全面規管富戶。房協主席凌嘉勤出席本台節目《星期六問責》表示，新租約有附加條款，要求住戶需要定期申報入息和資產，如果不接受條款，住戶有4個月寬限期遷出單位。房協已陸續向住戶解釋，並計劃在9月前，舉辦超過100場解說會，向2萬5千個租戶講解新做法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm)
 
 ---

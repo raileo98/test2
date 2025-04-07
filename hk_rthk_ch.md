@@ -1,3 +1,26 @@
+# 外置充電器今起不得航班上使用亦不得放置行李架上　有旅客稱合理
+
+  
+
+民航處規定，由今天起，飛機乘客不得在航班上使用外置充電器，亦不得把充電器放置於行李架上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799222-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799222-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799222-20250407.htm)
+
+---
+
 # 恒指半日跌2445點　成交額升至逾3200億元
 
 ![恒指中午收市報20404點，跌2445點，跌幅10.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799221_1_20250407120957.jpg&q=80)
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm)
-
----
-
-# 休班警涉酒後駕駛被檢控明早提堂
-
-![警方表示，該名男警已被停職。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799139_1_20250406211945.jpg&q=40)
-  
-
-一名休班男警去年10月11日凌晨，在元朗公路駕駛電單車期間懷疑失控並翻側，警方到場後在他身上發現酒氣，其後證實他的血液酒精濃度超標。該名休班警員已被控一項「在血液中的酒精濃度超過訂明限度的情況下駕駛汽車」罪，案件明日上午在粉嶺判法院提堂。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm)
 
 ---

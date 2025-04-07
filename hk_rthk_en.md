@@ -1,3 +1,27 @@
+# Vivian Cheung takes over reins at Airport Authority
+
+![Vivian Cheung has been appointed as the Airport Authority's CEO. Photo courtesy of the Airport Authority.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799220_1_20250407120401.jpg&q=90)
+  
+
+The Airport Authority Hong Kong has appointed Vivian Cheung as its chief executive.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm)
+
+---
+
 # National security education 'an everyday process'
 
 ![Secretary for Justice Paul Lam says national security risks might still exist despite Hong Kong being very stable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799215_1_20250407114227.jpg&q=80)
@@ -48,7 +72,7 @@ Boeing is poised to face a jury trial from Monday over the fatal 2019 crash of a
 
 # SAR 'committed to promoting Web3 development'
 
-![Paul Chan says the government will enable Web3 to grow in a responsible and sustainable manner. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799210_1_20250407112528.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799210_1_20250407112528.jpg&q=85)
   
 
 The financial secretary said on Monday Hong Kong is committed to creating a promising and successful future for Web3, or third generation Internet, development.
@@ -1411,29 +1435,5 @@ South Korea discovered and seized two tons of cocaine hidden aboard a Norwegian-
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm)
-
----
-
-# Fernandez header powers Chelsea into fourth
-
-![Spurs boss Ange Postecoglu had to endure chants of "you don't know what you're doing" from his own side's fans. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798934_1_20250404151409.jpg&q=90)
-  
-
-Chelsea climbed to fourth place in the Premier League as Enzo Fernandez sealed a 1-0 win that piled pressure on beleaguered Tottenham boss Ange Postecoglou on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798934-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798934-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798934-20250404.htm)
 
 ---

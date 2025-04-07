@@ -1,3 +1,27 @@
+# Vivian Cheung takes over reins at Airport Authority
+
+![Vivian Cheung has been appointed as the Airport Authority's CEO. Photo courtesy of the Airport Authority.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799220_1_20250407120401.jpg&q=90)
+  
+
+The Airport Authority Hong Kong has appointed Vivian Cheung as its chief executive.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm)
+
+---
+
 # National security education 'an everyday process'
 
 ![Secretary for Justice Paul Lam says national security risks might still exist despite Hong Kong being very stable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799215_1_20250407114227.jpg&q=80)
@@ -24,7 +48,7 @@ Hong Kong's justice chief has stressed that educating the public on national sec
 
 # SAR 'committed to promoting Web3 development'
 
-![Paul Chan says the government will enable Web3 to grow in a responsible and sustainable manner. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799210_1_20250407112528.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799210_1_20250407112528.jpg&q=85)
   
 
 The financial secretary said on Monday Hong Kong is committed to creating a promising and successful future for Web3, or third generation Internet, development.
@@ -1411,29 +1435,5 @@ Four of the world’s top football teams will be coming to Hong Kong this summer
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm)
-
----
-
-# Hygiene black spot list shrinks after clean-up
-
-![Warner Cheuk expressed gratitude for efforts to improve hygiene conditions. Photo courtesy of Information Services Department.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798281_1_20250331170515.jpg&q=90)
-  
-
-Hong Kong has become a lot cleaner in recent times with scores of rear lanes tidied up, dog mess issues resolved and waste dumping brought to an end in various locations, the government said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm)
 
 ---
