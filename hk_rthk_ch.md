@@ -1,3 +1,49 @@
+# 反修例案件約96%已審結　司法機構料法律程序輪候時間將改善
+
+  
+
+司法機構政務長梁悅賢在立法會財委會特別會議上表示，司法機構在24/25年度，繼續優先處理與2019年反逃犯條例修訂事件相關的案件及與國家安全相關的案件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799256-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799256-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799256-20250407.htm)
+
+---
+
+# 印度航空有客機2018年急速下降　報告指儀表著陸系統訊號波動
+
+  
+
+本港機場2018年10月發生一宗涉及印度航空波音787-8型客機急速下降的嚴重事故，民航意外調查機構發表調查報告。結果發現，造成事故的成因是由於儀表著陸系統的下滑道訊號波動，令飛機急速下降並偏離至預定航線下方，再加上隨後機組人員延遲復飛，使飛機進入機場時狀態越來越不穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799255-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799255-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799255-20250407.htm)
+
+---
+
 # 恒指跌幅擴大至逾3000點　創歷來最大點數跌幅
 
 ![恒生指數較早時報19812點，跌3037點，跌幅逾13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799251_1_20250407153556.jpg&q=60)
