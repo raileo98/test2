@@ -1,3 +1,26 @@
+# 「新型工業加速計劃」新項目建醫療藥物生產線　預算金額逾4億元
+
+  
+
+創新科技署宣布，「創新及科技基金」下「新型工業評審委員會」已支持一宗由亞洲先進同位素技術有限公司提交的「新型工業加速計劃」申請，項目計劃建立醫療用超導迴旋加速器及核素藥物生產線，其智能生產設施涵蓋高端先進技術，屬生命健康科技領域。該申請是「加速計劃」第二個獲評審委員會支持的項目，總預算金額超過4億元，預計「加速計劃」資助金額約為1億4千萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799218-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799218-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799218-20250407.htm)
+
+---
+
 # 內地3大指數半日跌逾6%至近10%　滬股失守3200點
 
 ![上證綜合指數半日收報3130點，跌211點，跌幅6.34%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799214_1_20250407113803.jpg&q=85)
@@ -65,6 +88,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799208-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799208-20250407.htm)
+
+---
+
+# 張李佳蕙獲委任為機管局新任行政總裁　任期今日起生效
+
+![機管局新任行政總裁張李佳蕙的3年任期今日起生效。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799205_1_20250407113440.jpg&q=90)
+  
+
+機管局新任行政總裁張李佳蕙的3年任期今日起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799205-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799205-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799205-20250407.htm)
 
 ---
 
@@ -141,7 +188,7 @@
 
 # 陳茂波稱致力推動Web3.0發展　確保市場完整性不扼殺創新
 
-![陳茂波說，特區政府一直透過平衡和有利於創新的監管方式，尋求為市場參與者維持公平的競爭環境。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799199_1_20250407110403.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799199_1_20250407110403.jpg&q=85)
   
 
 財政司司長陳茂波表示，香港致力推動第三代互聯網「Web3.0」發展，因Web3.0背後的區塊鏈技術，具備安全、透明和低成本的特點，特區政府一直透過平衡和有利於創新的監管方式，尋求為市場參與者維持公平的競爭環境。
@@ -1385,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm)
-
----
-
-# 中方指美方打著對等幌子嚴重損害以規則為基礎多邊貿易體制
-
-![發言人指美方做法是典型的單邊霸凌主義。（中國駐美國使館官網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798925_1_20250404130945.jpg&q=90)
-  
-
-中國駐美國使館發言人表示，中方堅決反對美方宣布的所謂對等關稅，將採取必要措施，堅定維護自身正當利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm)
-
----
-
-# 格奧爾基耶娃稱美國關稅對全球經濟前景構成重大風險
-
-![格奧爾基耶娃呼籲美國與貿易夥伴以建設性方式，努力紓緩緊張局勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798917_1_20250404123303.jpg&q=90)
-  
-
-國際貨幣基金組織總裁格奧爾基耶娃表示，現時全球經濟增長低迷，美國總統特朗普周三宣布的全面關稅措施，對全球經濟構成重大風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm)
 
 ---

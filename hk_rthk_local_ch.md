@@ -1,3 +1,26 @@
+# 「新型工業加速計劃」新項目建醫療藥物生產線　預算金額逾4億元
+
+  
+
+創新科技署宣布，「創新及科技基金」下「新型工業評審委員會」已支持一宗由亞洲先進同位素技術有限公司提交的「新型工業加速計劃」申請，項目計劃建立醫療用超導迴旋加速器及核素藥物生產線，其智能生產設施涵蓋高端先進技術，屬生命健康科技領域。該申請是「加速計劃」第二個獲評審委員會支持的項目，總預算金額超過4億元，預計「加速計劃」資助金額約為1億4千萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799218-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799218-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799218-20250407.htm)
+
+---
+
 # 消防及救護學院設國家安全教育資源中心　設主題消防車供「打卡」
 
 ![消防處在新一集影片中，介紹位於將軍澳百勝角消防及救護學院內的國家安全教育暨資源中心，中心內有虛擬的國家安全主題消防車供參觀者「打卡」。（消防處片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799212_1_20250407114534.jpg&q=90)
@@ -119,7 +142,7 @@
 
 # 陳茂波稱致力推動Web3.0發展　確保市場完整性不扼殺創新
 
-![陳茂波說，特區政府一直透過平衡和有利於創新的監管方式，尋求為市場參與者維持公平的競爭環境。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799199_1_20250407110403.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799199_1_20250407110403.jpg&q=85)
   
 
 財政司司長陳茂波表示，香港致力推動第三代互聯網「Web3.0」發展，因Web3.0背後的區塊鏈技術，具備安全、透明和低成本的特點，特區政府一直透過平衡和有利於創新的監管方式，尋求為市場參與者維持公平的競爭環境。
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm)
-
----
-
-# 陳祖恒籲業界勿再奢望再取美國大訂單　史立德指最終美國民眾埋單
-
-![多名商界人士在電台節目討論，美國加關稅對本港的影響。（商台直播截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799013_1_20250405112207.jpg&q=90)
-  
-
-美國對全球多國徵收「對等關稅」，其中美國對華加徵34%關稅，累計關稅增至54%。中國作出反制，下星期四起，對原產於美國的所有進口商品加徵34%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799013-20250405.htm)
 
 ---
