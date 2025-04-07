@@ -1,5 +1,30 @@
+# 恒指半日跌2445點　成交額升至逾3200億元
+
+![恒指中午收市報20404點，跌2445點，跌幅10.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799221_1_20250407120957.jpg&q=80)
+  
+
+美國對貿易夥伴徵收對等關稅，市場憂慮貿易衝突升級加劇及引發經濟衰退，港股跟隨亞洲區內股市向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799221-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799221-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799221-20250407.htm)
+
+---
+
 # 工程公司負責人因維修工程糾紛涉「起底」客戶　被私隱公署拘捕
 
+![男子涉嫌在未經客戶的同意下披露她的個人資料，違反《個人資料（私隱）條例》規定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799219_1_20250407121141.jpg&q=80)
   
 
 私隱專員公署在新界拘捕一名61歲中國籍男子，涉嫌在未經客戶的同意下披露她的個人資料，違反《個人資料（私隱）條例》規定，被捕人士獲准保釋。
@@ -47,6 +72,7 @@
 
 # 廣南聯絡綫西塱隧道出口明挖段主體結構封頂　將啟動鑽挖式工程
 
+![連接廣州站與廣州南站的廣南聯絡綫，西塱隧道出口明挖段主體結構封頂。（廣州鐵路）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799217_1_20250407121552.jpg&q=80)
   
 
 內地傳媒報道，連接廣州站與廣州南站的廣南聯絡綫，西塱隧道出口明挖段主體結構封頂，形容項目建設取得階段性成果，鑽挖式隧道工程即將啟動。
@@ -191,7 +217,7 @@
 ![周一鳴說，有人嘗試污衊本港國安法並認為不應立法，猶如「把家中門窗拆掉」，會繼續危害本港安全。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799206_1_20250407113511.jpg&q=90)
   
 
-警務處處長周一鳴接受報章訪問表示，國安法與其他法例無分別，跟兇殺同屬嚴重罪行，只是國安法屬「重中之中」。由於大多市民的認知停留於調查工作，日後要加強大眾對國安20個重點領域的意識，例如經濟安全及網絡安全。對於剛卸任警務處處長的蕭澤頤被美國制裁，他強調對此「嗤之以鼻」，日後會繼續加強情報蒐集及主導工作。
+警務處處長周一鳴接受報章訪問表示，國安法與其他法例無分別，跟兇殺同屬嚴重罪行，只是國安法屬「重中之重」。由於大多市民的認知停留於調查工作，日後要加強大眾對國安20個重點領域的意識，例如經濟安全及網絡安全。對於剛卸任警務處處長的蕭澤頤被美國制裁，他強調對此「嗤之以鼻」，日後會繼續加強情報蒐集及主導工作。
 
   
 
@@ -1406,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm)
-
----
-
-# 施紀賢回應美國對等關稅　指大家所知世界不復存在
-
-![施紀賢說，英國政府已經準備好介入，保護英國經濟免受美國關稅的影響。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799138_1_20250406213131.jpg&q=90)
-  
-
-英國首相施紀賢表示，伴隨著美國所謂對等關稅生效，大家所知道的世界已經不復存在。他說將繼續推動與美國達成經濟協議，以避免部分關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm)
 
 ---

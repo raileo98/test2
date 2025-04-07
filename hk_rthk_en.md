@@ -1,3 +1,27 @@
+# National security education 'an everyday process'
+
+![Secretary for Justice Paul Lam says national security risks might still exist despite Hong Kong being very stable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799215_1_20250407114227.jpg&q=80)
+  
+
+Hong Kong's justice chief has stressed that educating the public on national security is an ongoing effort, calling on people to stay vigilant against possible threats.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm)
+
+---
+
 # Trial looms for Boeing over 737 MAX crash in Eithiopia
 
 ![Two 737 MAX aircraft are assembled at Boeing's plant in Renton, Washington. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799216_1_20250407115025.jpg&q=60)
@@ -1411,29 +1435,5 @@ Chelsea climbed to fourth place in the Premier League as Enzo Fernandez sealed a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798934-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798934-20250404.htm)
-
----
-
-# Tourism chief vows to remain principled in her work
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798932_1_20250404134405.jpg&q=90)
-  
-
-The Secretary for Sports, Culture and Tourism emphasised that she will stay principled and innovative in her work, as she wrapped up her three-day trip to Beijing on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm)
 
 ---

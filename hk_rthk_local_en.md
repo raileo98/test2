@@ -1,3 +1,27 @@
+# National security education 'an everyday process'
+
+![Secretary for Justice Paul Lam says national security risks might still exist despite Hong Kong being very stable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799215_1_20250407114227.jpg&q=80)
+  
+
+Hong Kong's justice chief has stressed that educating the public on national security is an ongoing effort, calling on people to stay vigilant against possible threats.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm)
+
+---
+
 # SAR 'committed to promoting Web3 development'
 
 ![Paul Chan says the government will enable Web3 to grow in a responsible and sustainable manner. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799210_1_20250407112528.jpg&q=85)
@@ -1411,29 +1435,5 @@ Hong Kong has become a lot cleaner in recent times with scores of rear lanes tid
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm)
-
----
-
-# No extension in registering subdivided homes: govt
-
-![The government is hoping to introduce a bill on regulating compact homes in the latter half of 2025. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798272_1_20250331163658.jpg&q=80)
-  
-
-Officials have brushed off concerns that landlords might be hesitant about getting their dwellings declared as basic housing units under the planned new regulatory regime for subdivided flats, saying they would not consider extending a registration period.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm)
 
 ---

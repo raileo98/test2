@@ -1,3 +1,27 @@
+# 恒指半日跌2445點　成交額升至逾3200億元
+
+![恒指中午收市報20404點，跌2445點，跌幅10.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799221_1_20250407120957.jpg&q=80)
+  
+
+美國對貿易夥伴徵收對等關稅，市場憂慮貿易衝突升級加劇及引發經濟衰退，港股跟隨亞洲區內股市向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799221-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799221-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799221-20250407.htm)
+
+---
+
 # 「新型工業加速計劃」新項目建醫療藥物生產線　預算金額逾4億元
 
 ![「創新及科技基金」下「新型工業評審委員會」已支持一宗由亞洲先進同位素技術有限公司提交的「新型工業加速計劃」申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799218_1_20250407120108.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm)
-
----
-
-# 陳美寶：積極推進本港海空貨物聯運發展
-
-![陳美寶說，特區政府會繼續與機管局及業界攜手，加強機場的貨物處理能力和效率。（陳美寶社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798928_1_20250404135708.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶說，特區政府會繼續與機管局及業界攜手，加強機場的貨物處理能力和效率，積極推進「海空貨物聯運」發展，為大灣區貨物提供更無縫便捷的國際空運網絡，並提升機場的貨運設備，積極配合轉運、跨境電商及高價值溫控空運貨物的發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm)
 
 ---
