@@ -1,3 +1,51 @@
+# 剛果民主共和國暴雨成災　首都金沙薩升至33人死亡
+
+![金沙薩多條主要道路被淹浸，交通主要道路癱瘓，多區停水停電。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799233_1_20250407131955.jpg&q=90)
+  
+
+剛果民主共和國連日暴雨，釀成水災，首都金沙薩的死亡人數增至33人。氣象預報顯示，未來數日當地仍可能有暴雨。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799233-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799233-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799233-20250407.htm)
+
+---
+
+# 北韓再辦馬拉松　外界關注是否藉此契機擴大團體遊賺取外匯
+
+![北韓昨天再舉行平壤國際馬拉松賽。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799204_1_20250407111108.jpg&q=85)
+  
+
+北韓再舉辦平壤國際馬拉松賽，約200名海外跑手參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799204-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799204-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799204-20250407.htm)
+
+---
+
 # 央視「玉淵譚天」文章指特朗普濫施關稅　美國上下開展自救行動
 
 ![文章指關稅措施從根本上重塑美國人生活。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799195_1_20250407104031.jpg&q=75)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799031-20250405.htm)
-
----
-
-# 南韓總統辦公室網站暫停運作　指正在維修
-
-![南韓總統辦公室網站暫停運作。（南韓總統辦公室網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799030_1_20250405142745.jpg&q=90)
-  
-
-南韓總統辦公室網站暫停運作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799030-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799030-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799030-20250405.htm)
-
----
-
-# 內地商會促美方糾正損人不利己單邊霸凌
-
-![內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799020_1_20250405132447.jpg&q=75)
-  
-
-內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。中國醫藥保健品進出口商會表示，全球民眾健康權益不應受到不公平貿易措施侵害，堅決反對美方單邊貿易霸凌行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm)
 
 ---

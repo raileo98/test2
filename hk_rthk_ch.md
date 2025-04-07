@@ -1,3 +1,74 @@
+# 剛果民主共和國暴雨成災　首都金沙薩升至33人死亡
+
+![金沙薩多條主要道路被淹浸，交通主要道路癱瘓，多區停水停電。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799233_1_20250407131955.jpg&q=90)
+  
+
+剛果民主共和國連日暴雨，釀成水災，首都金沙薩的死亡人數增至33人。氣象預報顯示，未來數日當地仍可能有暴雨。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799233-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799233-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799233-20250407.htm)
+
+---
+
+# 北韓再辦馬拉松　外界關注是否藉此契機擴大團體遊賺取外匯
+
+![北韓昨天再舉行平壤國際馬拉松賽。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799204_1_20250407111108.jpg&q=85)
+  
+
+北韓再舉辦平壤國際馬拉松賽，約200名海外跑手參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799204-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799204-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799204-20250407.htm)
+
+---
+
+# 報道指33名區議員八成大會無發言　麥美娟：非為發言而發言
+
+  
+
+民政及青年事務局局長麥美娟表示，區議會今年會推出加強版的區議員「會見市民計劃」，區議員會透過「流動會客室」的方式，在各區設立街站，加強與市民接觸，令他們可以多向區議員表達意見。她希望市民多支持和參與，各區稍後會因應情況，公布這些街站的時間表和地點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799238-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799238-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799238-20250407.htm)
+
+---
+
 # 港股跌勢加劇　恒指跌逾2600點
 
 ![恒指較早時報20238點，跌2611點，跌幅11.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799232_1_20250407131404.jpg&q=90)
