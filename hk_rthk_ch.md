@@ -1,3 +1,50 @@
+# 韓股急挫近6%
+
+![首爾綜合指數收市報2328點，跌137點，跌幅5.57%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799245_1_20250407151700.jpg&q=90)
+  
+
+韓股急挫近6%，貼近全日最低位收市。首爾綜合指數收市報2328點，跌137點，跌幅5.57%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799245-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799245-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799245-20250407.htm)
+
+---
+
+# 田北辰關注前特首辦搬去將重建物業　行政署形容物盡其用
+
+  
+
+立法會財委會一連五日舉行8次共21個環節的特別會議，審議25/26年度政府開支預算。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799246-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799246-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799246-20250407.htm)
+
+---
+
 # 日股急挫近8%
 
 ![日經指數一度跌近9%，收市報31136點，跌2644點，跌幅7.83%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799244_1_20250407150505.jpg&q=90)
