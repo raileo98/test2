@@ -1,3 +1,51 @@
+# Seoul to set presidential election for June 3: Yonhap
+
+![People attended a rally to celebrate the expulsion of South Korean President Yoon Suk Yeol in Seoul on Saturday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799191_1_20250407101114.jpg&q=90)
+  
+
+South Korea's cabinet is expected to finalise a June 3 date for a presidential election following the removal of Yoon Suk Yeol last week for his short-lived martial law declaration, Yonhap news said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm)
+
+---
+
+# Hang Seng Index slumps on US tariff sell-off
+
+![Hong Kong's benchmark fell by over 9 percent at the start of trading. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799185_1_20250407093759.jpg&q=65)
+  
+
+Stocks plunged more than nine percent in Hong Kong on Monday on fears of a trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm)
+
+---
+
 # Three people die in helicopter crash off Japan
 
 ![An ambulance carrying a person rescued from the medical evacuation helicopter accident arrives at Fukuoka Washiro Hospital in Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799178_1_20250407085759.jpg&q=90)
@@ -1387,53 +1435,5 @@ The death of 15 medics and humanitarian workers in Gaza after shots were fired a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798885-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798885-20250404.htm)
-
----
-
-# Stocks, US dollar and oil sink, as gold hits high
-
-![Wall Street's main indices opened sharply lower, with the Nasdaq falling more than four percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798865_1_20250403221424.jpg&q=85)
-  
-
-Stock markets and the dollar tumbled on Thursday after President Donald Trump's latest tariffs salvo against countries worldwide, fanning a trade war that many fear will spark recession and ramp up inflation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798865-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798865-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798865-20250403.htm)
-
----
-
-# Hong Kong calls on US to withdraw 'bullying' tariffs
-
-![The SAR government says it'll take actions to defend the city's legitimate rights. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798851_1_20250403202459.jpg&q=85)
-  
-
-The SAR government has expressed strong disapproval and discontent over the United States for imposing a fresh round of tariffs and cancelling a duty-free exemption on small parcels.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm)
 
 ---

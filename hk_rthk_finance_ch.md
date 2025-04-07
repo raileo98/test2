@@ -1,3 +1,171 @@
+# 台股跌近10%　台積電及鴻海跌停板
+
+![台灣股市重挫逾9%，接近10%跌停。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799189_1_20250407095954.jpg&q=90)
+  
+
+台灣股市重挫逾9%，接近10%跌停。重磅股份台積電及鴻海觸及10%跌停板。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799189-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799189-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799189-20250407.htm)
+
+---
+
+# 恒指跌幅擴至逾2300點　上指數失守3200點
+
+![恒指大幅裂口低開逾2000點後，跌幅一度擴大至逾2300點，較早時報20540點，跌2309點，跌幅10.11%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799188_1_20250407095929.jpg&q=15)
+  
+
+市場憂慮貿易衝突升級加劇及引發經濟衰退，恒指大幅裂口低開逾2000點後，跌幅一度擴大至逾2300點，較早時報20540點，跌2309點，跌幅10.11%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799188-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799188-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799188-20250407.htm)
+
+---
+
+# 人行逆回購935億元人民幣
+
+![人行進行935億元人民幣7日期逆回購操作，利率1.5厘，投標量繼續與中標量相同。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799186_1_20250407094420.jpg&q=75)
+  
+
+人民銀行今日進行935億元人民幣7日期逆回購操作，利率1.5厘，投標量繼續與中標量相同。公開市場單日轉為淨回籠1517億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799186-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799186-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799186-20250407.htm)
+
+---
+
+# 高盛料34%關稅將拖低中國經濟增長至少0.7個百分點
+
+![高盛預計，34%關稅將拖累今年中國經濟增長至少0.7個百分點，預計中國將明顯加快寬鬆措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799183_1_20250407093606.jpg&q=85)
+  
+
+美國對華徵收34%對等關稅，中國亦對原產於美國的所有進口商品加徵34%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799183-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799183-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799183-20250407.htm)
+
+---
+
+# 滬深股市初段跌近4%至6%以上
+
+![上證指數較早時報3211點，跌130點，跌幅3.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799184_1_20250407093517.jpg&q=90)
+  
+
+內地股市初段顯著下挫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799184-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799184-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799184-20250407.htm)
+
+---
+
+# 港股急跌　恒指競價時段報20730點　跌2119點
+
+![恒指在競價時段報20730點，跌2119點，跌幅9.28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799182_1_20250407092626.jpg&q=75)
+  
+
+美國對貿易夥伴徵收對等關稅，亞太區主要股市急跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799182-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799182-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799182-20250407.htm)
+
+---
+
+# 人民幣兌美元中間價跌逾90點
+
+![人民幣中間價報7.198兌1美元，較上星期五中間價跌91點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799181_1_20250407091731.jpg&q=70)
+  
+
+人民幣中間價報7.198兌1美元，較上星期五中間價跌91點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799181-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799181-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799181-20250407.htm)
+
+---
+
 # 台股復市　加權指數重挫近10%
 
 ![加權指數失守20000點，較早時報19217點，跌幅9.77%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799180_1_20250407090400.jpg&q=90)
@@ -1268,173 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798892-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798892-20250404.htm)
-
----
-
-# 市場料聯儲局今年減息4次　聯儲局官員重申毋須急於減息
-
-![市場普遍預期今年將減息4次，6月將首次減息，減幅25點子。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798891_1_20250404075934.jpg&q=90)
-  
-
-市場對美國聯儲局減息的預期不斷升溫，普遍預期今年將減息4次，6月將首次減息，減幅25點子，到今年底聯邦基金利率將降至3.43厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798891-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798891-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798891-20250404.htm)
-
----
-
-# 港股美國預託證券較本港收市個別發展
-
-![滙控美國預託證券較本港收市跌逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798886_1_20250404053616.jpg&q=90)
-  
-
-滙控美國預託證券折合83.22港元，較本港收市跌逾3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798886-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798886-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798886-20250404.htm)
-
----
-
-# 美元兌多隻主要貨幣跌至6個月低位　美國債息大幅下跌
-
-![美元兌主要貨幣下跌，兌歐元、日圓及瑞士法郎都跌至6個月低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798884_1_20250404052802.jpg&q=75)
-  
-
-美元兌主要貨幣下跌，兌歐元、日圓及瑞士法郎都跌至6個月低位。投資者憂慮美國對等關稅引發全面貿易戰導致全球經濟急劇放緩及加劇通脹，正密切注視今晚美國公布非農業職位報告，以及聯儲局主席鮑威爾的講話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798884-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798884-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798884-20250404.htm)
-
----
-
-# 特朗普：市場反應屬意料中　若中國批准TikTok交易或獲減免
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798883_1_20250404052715.jpg&q=90)
-  
-
-美國總統特朗普表示，市場對關稅措施的反應屬意料之中，如果其他國家提出非常有吸引力的條件，他對於關稅談判持開放態度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798883-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798883-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798883-20250404.htm)
-
----
-
-# 紐約期金低收1.4%
-
-![外圍金價創新高後下跌。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798881_1_20250404045719.jpg&q=90)
-  
-
-外圍金價創新高後下跌。有交易商說，其他資產類別下跌，投資者沽出部分黃金以彌補損失。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798881-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798881-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798881-20250404.htm)
-
----
-
-# 紐約期油急跌逾6%
-
-![美國宣布全面徵收對等關稅；主要產油國同意增產，兩者拖累油價創2022年以來最大單日跌幅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798882_1_20250404050748.jpg&q=90)
-  
-
-原油期貨價格下挫。美國宣布全面徵收對等關稅市場憂慮打擊全球經濟；石油輸出國組織及盟友同意增產，兩者拖累油價創2022年以來最大單日跌幅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798882-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798882-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798882-20250404.htm)
-
----
-
-# 美股主要指數挫近4-6%　約5年最大單日跌幅
-
-![美股主要指數挫近4-6%，投資者憂慮全面貿易戰衝擊全球經濟增長。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798880_1_20250404044310.jpg&q=90)
-  
-
-紐約股市顯著下挫，3個主要指數收市跌近4%至近6%，尾市跌幅擴大。美國總統特朗普公布的對等關稅措施力度超出市場預期，中國及歐盟等已經表明將採取反制行動，其他貿易夥伴亦尋求與美國談判。投資者憂慮觸發全面貿易戰衝擊全球經濟增長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798880-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798880-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798880-20250404.htm)
 
 ---

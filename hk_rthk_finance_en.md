@@ -1,3 +1,27 @@
+# Hang Seng Index slumps on US tariff sell-off
+
+![Hong Kong's benchmark fell by over 9 percent at the start of trading. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799185_1_20250407093759.jpg&q=65)
+  
+
+Stocks plunged more than nine percent in Hong Kong on Monday on fears of a trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm)
+
+---
+
 # Nikkei plunges on Trump tariff concerns
 
 ![A display shows the sharp decline in the Nikkei average stock price. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799177_1_20250407084857.jpg&q=90)
@@ -1414,29 +1438,5 @@ President Donald Trump's plan to revitalise the US shipbuilding industry is like
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm)
-
----
-
-# US stocks rally on tariff optimism
-
-![The three main US indices rose on hopes that US President Donald Trump may dial down upcoming tariffs. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797239_1_20250325062931.jpg&q=90)
-  
-
-US stocks closed higher on Monday as traders welcomed news that the administration of President Donald Trump may dial down upcoming tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797239-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797239-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797239-20250325.htm)
 
 ---

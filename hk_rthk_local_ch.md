@@ -1,3 +1,50 @@
+# 林定國稱國家安全教育應持續每天都要做　制裁不影響工作決心
+
+  
+
+本月15日是第10屆「全民國家安全教育日」，律政司司長林定國表示，國家安全教育不應集中在某些特別的日子，他舉例說每年2月14日是情人節，說「難道那天你才對老婆好 」，認為應該持續每天都要做，又說這是他在法律方面推動國家安全教育的理念。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm)
+
+---
+
+# 港股急跌　恒指競價時段報20730點　跌2119點
+
+![恒指在競價時段報20730點，跌2119點，跌幅9.28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799182_1_20250407092626.jpg&q=75)
+  
+
+美國對貿易夥伴徵收對等關稅，亞太區主要股市急跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799182-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799182-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799182-20250407.htm)
+
+---
+
 # 內地民間「村晚」盛行    發起人稱可振興鄉村文旅經濟
 
 ![廣東恩平今年初舉辦了一場由當地居民及大學生籌辦的鄉村文藝晚會「村晚」。（受訪者社交平台截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799179_1_20250407085829.jpg&q=90)
@@ -1391,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798959-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798959-20250404.htm)
-
----
-
-# 6地警方聯手打擊兒童色情物品拘捕435人　本港7名男子被捕
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798958_1_20250404185026.jpg&q=85)
-  
-
-本港警方聯同日本、南韓、新加坡等合共6個地方的執法機關，聯手打擊兒童色情物品，拘捕435人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798958-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798958-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798958-20250404.htm)
-
----
-
-# 上水疑有狗隻遭毒殺4死2失蹤
-
-![上水疑有狗隻遭毒殺，4隻狗口吐白沫死亡。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798957_1_20250404184735.jpg&q=75)
-  
-
-上水古洞發生懷疑毒殺狗隻案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798957-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798957-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798957-20250404.htm)
 
 ---

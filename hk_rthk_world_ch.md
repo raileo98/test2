@@ -1,3 +1,50 @@
+# 林定國稱國家安全教育應持續每天都要做　制裁不影響工作決心
+
+  
+
+本月15日是第10屆「全民國家安全教育日」，律政司司長林定國表示，國家安全教育不應集中在某些特別的日子，他舉例說每年2月14日是情人節，說「難道那天你才對老婆好 」，認為應該持續每天都要做，又說這是他在法律方面推動國家安全教育的理念。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm)
+
+---
+
+# 以軍襲加沙據報最少40死　哈馬斯旗下派別發射火箭炮襲以南
+
+![以色列方面表示，大約有10枚火箭炮從加沙地帶中部發射，造成5人受傷。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799175_1_20250407085858.jpg&q=90)
+  
+
+以色列再攻擊加沙地帶，新華社引述巴勒斯坦傳媒報道，最少40人死於當地周日以軍的襲擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799175-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799175-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799175-20250407.htm)
+
+---
+
 # 韓媒：南韓政府初步定於6月3日舉行總統選舉
 
 ![韓媒稱南韓政府初步定於今年6月3日舉行大選，填補上星期被罷免的尹錫悅的總統職務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799173_1_20250407090000.jpg&q=90)
@@ -1391,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm)
-
----
-
-# 南韓總統辦公室15名高級幕僚呈辭被駁回　總理稱避免治國空白期
-
-![韓悳洙駁回總統辦公室15名高級幕僚提交的辭呈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799009_1_20250405095539.jpg&q=90)
-  
-
-南韓總理辦公室表示，代行總統職務的總理韓悳洙，昨日駁回總統辦公室15名高級幕僚提交的辭呈。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799009-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799009-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799009-20250405.htm)
-
----
-
-# 《華盛頓郵報》：美國國稅局將裁減2萬職位　佔員工總數四分一
-
-![國稅局早前已流失多名高級管理層及數千名員工，包括負責稅務審計的專員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799005_1_20250405090311.jpg&q=70)
-  
-
-《華盛頓郵報》報道，美國國稅局將大規模裁員，預計裁減2萬個工作崗位，佔國稅局員工總數四分之一。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799005-20250405.htm)
 
 ---

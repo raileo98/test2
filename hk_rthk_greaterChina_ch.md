@@ -1,3 +1,26 @@
+# 林定國稱國家安全教育應持續每天都要做　制裁不影響工作決心
+
+  
+
+本月15日是第10屆「全民國家安全教育日」，律政司司長林定國表示，國家安全教育不應集中在某些特別的日子，他舉例說每年2月14日是情人節，說「難道那天你才對老婆好 」，認為應該持續每天都要做，又說這是他在法律方面推動國家安全教育的理念。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm)
+
+---
+
 # 內地民間「村晚」盛行    發起人稱可振興鄉村文旅經濟
 
 ![廣東恩平今年初舉辦了一場由當地居民及大學生籌辦的鄉村文藝晚會「村晚」。（受訪者社交平台截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799179_1_20250407085829.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm)
-
----
-
-# 崔建春約見梅儒瑞　就美國制裁中方官員提出嚴正交涉
-
-![崔建春昨日約見美國駐香港總領事梅儒瑞，就美國國務院宣布對6名中方官員實施無理制裁，並發布抹黑香港的《2025年香港政策法報告》提出嚴正交涉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798800_1_20250403161446.jpg&q=80)
-  
-
-外交部駐港特派員崔建春昨日約見美國駐香港總領事梅儒瑞，就美國國務院宣布對6名中方官員實施無理制裁，並發布抹黑香港的《2025年香港政策法報告》提出嚴正交涉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm)
 
 ---

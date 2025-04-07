@@ -1,3 +1,27 @@
+# Seoul to set presidential election for June 3: Yonhap
+
+![People attended a rally to celebrate the expulsion of South Korean President Yoon Suk Yeol in Seoul on Saturday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799191_1_20250407101114.jpg&q=90)
+  
+
+South Korea's cabinet is expected to finalise a June 3 date for a presidential election following the removal of Yoon Suk Yeol last week for his short-lived martial law declaration, Yonhap news said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm)
+
+---
+
 # Three people die in helicopter crash off Japan
 
 ![An ambulance carrying a person rescued from the medical evacuation helicopter accident arrives at Fukuoka Washiro Hospital in Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799178_1_20250407085759.jpg&q=90)
@@ -1411,29 +1435,5 @@ Tesla investors are bracing for a drop in first-quarter vehicle deliveries as a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm)
-
----
-
-# Crypto investor Wang leads first polar space mission
-
-![SpaceX's Falcon 9 rocket carries the four commercial astronauts into a 90-degree inclination polar orbit on the Fram2 mission after launching from Kennedy Space Center in Cape Canaveral, Florida. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798408_1_20250401112340.jpg&q=90)
-  
-
-A bitcoin investor who bought a SpaceX flight for himself and three polar explorers has blasted off on the first rocket ride to carry people over the North and South poles .
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm)
 
 ---
