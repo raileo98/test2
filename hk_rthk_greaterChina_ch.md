@@ -1,3 +1,26 @@
+# 清明節假期全國口岸逾620萬人次出入境　較去年同期增近兩成
+
+  
+
+國家移民管理局公布，清明節假期全國口岸錄得超過621.2萬人次出入境，日均207.1萬人次，較去年同期增長19.7%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799208-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799208-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799208-20250407.htm)
+
+---
+
 # 央視「玉淵譚天」文章指特朗普濫施關稅　美國上下開展自救行動
 
 ![文章指關稅措施從根本上重塑美國人生活。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799195_1_20250407104031.jpg&q=75)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm)
-
----
-
-# 外交部：菲律賓炮製多宗所謂「中國間諜案」　促停止捕風捉影
-
-![郭嘉昆表示，中國司法機關和有關部門嚴格依法辦案，也將保障有關人員的合法權益。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798806_1_20250403155437.jpg&q=90)
-  
-
-國家安全機關偵破一宗菲律賓間諜案，拘捕3名涉嫌在中國境內從事間諜活動的菲律賓籍人士。外交部表示，有關部門已經公佈具體情況，中國司法機關和有關部門嚴格依法辦案，也將保障有關人員的合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798806-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798806-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798806-20250403.htm)
 
 ---

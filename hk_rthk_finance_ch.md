@@ -1,3 +1,26 @@
+# 港交所：將一視同仁加快整體上市審批時間
+
+  
+
+證監會及聯交所早前就優化新上市申請審批流程，雙方將分別在不多於40個營業日內，確認相關申請是否存在重大監管關注事項。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799209-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799209-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799209-20250407.htm)
+
+---
+
 # 高盛調低明年油價預測　因經濟衰退風險加劇
 
 ![高盛下調明年布蘭特期油及紐約期油年度平均價預測，表示經濟衰退風險進一步加大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799200_1_20250407105725.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm)
-
----
-
-# 日股半日跌近3%
-
-![日經指數半日跌917點，報33818點，跌幅2.64%。 （交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798912_1_20250404104640.jpg&q=85)
-  
-
-東京股市下跌。日經指數半日跌917點，報33818點，跌幅2.64%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm)
 
 ---

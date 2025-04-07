@@ -1,6 +1,78 @@
+# HK triathletes clinch bronze on home soil
+
+![The SAR team won third in the mixed relay on home soil. Screencap courtesy of Triathlon Association of Hong Kong China](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799202_1_20250407110223.jpg&q=90)
+  
+
+Hong Kong, China secured a bronze medal in the mixed relay at the Asia Triathlon Sprint Championships.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm)
+
+---
+
+# Ovechkin scores 895th goal for all-time NHL record
+
+![Alex Ovechkin broke the NHL all-time career goals record previously held by Wayne Gretzky. Photo courtesy of Geoff Burke-Imagn Images via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799168_1_20250407080934.jpg&q=90)
+  
+
+Alex Ovechkin scored his 895th NHL career goal, etching his name into ice hockey history by finally passing the previous all-time record he shared with Wayne Gretzky.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799168-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799168-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799168-20250407.htm)
+
+---
+
+# Man City held by Man Utd in derby stalemate
+
+![Manchester City's hopes of Champions League qualification remain in the balance after a dismal derby at Manchester United ended in a 0-0 stalemate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799169_1_20250407081504.jpg&q=85)
+  
+
+Manchester United boss Ruben Amorim said his side must improve "everywhere" after a dismal derby against Manchester City ended 0-0 on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799169-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799169-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799169-20250407.htm)
+
+---
+
 # Doncic soars as Lakers silence Thunder
 
-![Luka Doncic (77) shoots between Oklahoma City Thunder guards Alex Caruso and Cason Wallace  during the second half at Paycom Center. Alonzo Adams-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799203_1_20250407110657.jpg&q=90)
+![Luka Doncic shoots between Oklahoma City Thunder guards Alex Caruso and Cason Wallace during the second half at Paycom Center. Alonzo Adams-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799203_1_20250407110657.jpg&q=90)
   
 
 Luka Doncic scored 30 points as the Los Angeles Lakers produced a devastating display of long-range shooting to score a surprising 126-99 blowout over the No1 ranked Oklahoma City Thunder.
@@ -1380,77 +1452,5 @@ France's Arthur Fils upset top-seed Alexander Zverev with an outstanding display
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm)
-
----
-
-# Teenage Filipino Eala stuns Swiatek at Miami Open
-
-![Alexandra Eala is the first player from the Philippines to reach the semi-finals of a WTP 1000 tournament. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797607_1_20250327071056.jpg&q=90)
-  
-
-Alexandra Eala, a 19-year-old wildcard from the Philippines, produced a huge upset at the Miami Open on Wednesday, defeating world number two Iga Swiatek 6-2 7-5 to reach the semi-finals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm)
-
----
-
-# Coleman Wong ready to climb up world tennis rankings
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797605_1_20250327063121.jpg&q=90)
-  
-
-The SAR's tennis star, Coleman Wong, said late Wednesday that he was more confident about cracking the top 100 in the men's singles world rankings, following his historic success at the Miami Open.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm)
-
----
-
-# World Club Cup winner to score up to US$125 million
-
-![This year's Club World Cup will take place from June 14 to July 13 in the United States. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797561_1_20250326204658.jpg&q=90)
-  
-
-The winner of this year's expanded Club World Cup in the United States will receive up to US$125 million in prize money, Fifa announced on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm)
 
 ---

@@ -1,3 +1,95 @@
+# 航班上今起不能用外置充電器　乘客稱影響不大上機前會為手機充電
+
+  
+
+由今天起，飛機乘客不得在航班上使用外置充電器為其他便攜式電子裝置、不得為外置充電器充電、亦不得把外置充電器放置於行李架上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799211-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799211-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799211-20250407.htm)
+
+---
+
+# 港交所：將一視同仁加快整體上市審批時間
+
+  
+
+證監會及聯交所早前就優化新上市申請審批流程，雙方將分別在不多於40個營業日內，確認相關申請是否存在重大監管關注事項。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799209-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799209-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799209-20250407.htm)
+
+---
+
+# 清明節假期全國口岸逾620萬人次出入境　較去年同期增近兩成
+
+  
+
+國家移民管理局公布，清明節假期全國口岸錄得超過621.2萬人次出入境，日均207.1萬人次，較去年同期增長19.7%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799208-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799208-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799208-20250407.htm)
+
+---
+
+# 加強大眾對國安20個重點領域意識　周一鳴稱國安法非洪水猛獸
+
+  
+
+警務處處長周一鳴接受報章訪問表示，國安法與其他法例無分別，跟兇殺同屬嚴重罪行，只是國安法屬「重中之中」。由於大多市民的認知停留於調查工作，日後要加強大眾對國安20個重點領域的意識，例如經濟安全及網絡安全。對於剛卸任警務處處長的蕭澤頤被美國制裁，他強調對此「嗤之以鼻」，日後會繼續加強情報蒐集及主導工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799206-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799206-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799206-20250407.htm)
+
+---
+
 # 張李佳蕙獲委任為機管局新任行政總裁　任期今日起生效
 
   
@@ -1337,101 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm)
-
----
-
-# Coldplay演唱會散場時港鐵加密班次　特別巴士線方便過境
-
-![英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會。（Cityline 網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799130_1_20250406185539.jpg&q=90)
-  
-
-英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會，港鐵散場時會加密班次，尾班接駁東鐵綫過境列車，晚上約11時分別在宋皇臺站及啟德站開出。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799130-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799130-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799130-20250406.htm)
-
----
-
-# 入境處：截至下午4時　逾27.7萬人次經各口岸入境
-
-![截至下午4時，逾27.7萬人次經各口岸入境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799129_1_20250406182555.jpg&q=90)
-  
-
-清明節三日長周末假期最後一日，入境處表示，截至下午4時，有27萬7000多人次經各口岸入境，另有25萬6000多人次出境，總出入境人數合計有53萬4000多人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm)
-
----
-
-# 緬甸地震災區天氣炎熱　特區救援隊備多種藥物確保適合出勤
-
-![醫護團隊分別講述當地救援工作及如何應對高溫天氣。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799128_1_20250406181110.jpg&q=90)
-  
-
-特區救援隊繼續在緬甸地震災區協助搜救工作，醫護團隊分別講述當地救援工作及如何應對高溫天氣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm)
-
----
-
-# 南韓代總統或周二確定大選日期　李在明或辭任共同民主黨黨魁參選
-
-![預料尹錫悅會在一星期內搬離總統官邸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799126_2_20250406174757.jpg&q=90)
-  
-
-在南韓，被罷免總統職務的尹錫悅發信感謝支持者，表示雖然已不再擔任總統，但會一直守護大家。外界預料尹錫悅會在一星期內搬離位於首爾龍山區的總統官邸，搬回他在首爾市瑞草區的私人住宅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm)
 
 ---

@@ -1,6 +1,102 @@
+# HK triathletes clinch bronze on home soil
+
+![The SAR team won third in the mixed relay on home soil. Screencap courtesy of Triathlon Association of Hong Kong China](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799202_1_20250407110223.jpg&q=90)
+  
+
+Hong Kong, China secured a bronze medal in the mixed relay at the Asia Triathlon Sprint Championships.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm)
+
+---
+
+# Ovechkin scores 895th goal for all-time NHL record
+
+![Alex Ovechkin broke the NHL all-time career goals record previously held by Wayne Gretzky. Photo courtesy of Geoff Burke-Imagn Images via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799168_1_20250407080934.jpg&q=90)
+  
+
+Alex Ovechkin scored his 895th NHL career goal, etching his name into ice hockey history by finally passing the previous all-time record he shared with Wayne Gretzky.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799168-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799168-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799168-20250407.htm)
+
+---
+
+# Man City held by Man Utd in derby stalemate
+
+![Manchester City's hopes of Champions League qualification remain in the balance after a dismal derby at Manchester United ended in a 0-0 stalemate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799169_1_20250407081504.jpg&q=85)
+  
+
+Manchester United boss Ruben Amorim said his side must improve "everywhere" after a dismal derby against Manchester City ended 0-0 on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799169-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799169-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799169-20250407.htm)
+
+---
+
+# Sara Duterte back home for electoral fight
+
+![Sara Duterte addresses supporters outside the International Criminal Court in The Hague last month. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799207_1_20250407111536.jpg&q=90)
+  
+
+Impeached Philippine Vice President Sara Duterte has returned home after nearly a month at her father's side in The Hague, where he is facing a charge of crimes against humanity, her communications team said Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm)
+
+---
+
 # Doncic soars as Lakers silence Thunder
 
-![Luka Doncic (77) shoots between Oklahoma City Thunder guards Alex Caruso and Cason Wallace  during the second half at Paycom Center. Alonzo Adams-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799203_1_20250407110657.jpg&q=90)
+![Luka Doncic shoots between Oklahoma City Thunder guards Alex Caruso and Cason Wallace during the second half at Paycom Center. Alonzo Adams-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799203_1_20250407110657.jpg&q=90)
   
 
 Luka Doncic scored 30 points as the Los Angeles Lakers produced a devastating display of long-range shooting to score a surprising 126-99 blowout over the No1 ranked Oklahoma City Thunder.
@@ -1339,101 +1435,5 @@ Youtube mega-star I-Show-Speed arrived in Hong Kong on Friday, after a live stre
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm)
-
----
-
-# HK manufacturers to wait-and-see amid Trump tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798915_1_20250404113116.jpg&q=90)
-  
-
-The president of the Chinese Manufacturers' Association of Hong Kong has voiced its strong opposition towards US President Donald Trump's latest round of levies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm)
-
----
-
-# South Korea court upholds President Yoon's impeachment
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798910_1_20250404103033.jpg&q=90)
-  
-
-South Korea's Constitutional Court on Friday decided to oust President Yoon Suk Yeol, upholding parliament's impeachment motion over his short-lived imposition of martial law last year that sparked the country's worst political crisis in decades.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798910-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798910-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798910-20250404.htm)
-
----
-
-# Canada imposing 25% tariff on some US auto imports
-
-![Canada's Prime Minister Mark Carney speaks about tariffs at a press conference on Parliament Hill in Ottawa, Canada. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798895_1_20250404084801.jpg&q=90)
-  
-
-Canada said it would impose a 25 percent tariff on tens of thousands of vehicles imported from the United States, retaliating against US President Donald Trump's levies that came into effect on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798895-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798895-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798895-20250404.htm)
-
----
-
-# US stocks close down sharply on tariff fallout
-
-![The S&P 500 dropped 4.8 percent in its biggest loss since 2020. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798887_1_20250404054252.jpg&q=90)
-  
-
-Wall Street led a global markets bloodbath on Thursday as countries around the world reeled from President Donald Trump's trade war, while the White House insisted the US economy will emerge victorious.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm)
 
 ---

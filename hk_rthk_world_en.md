@@ -1,3 +1,27 @@
+# Sara Duterte back home for electoral fight
+
+![Sara Duterte addresses supporters outside the International Criminal Court in The Hague last month. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799207_1_20250407111536.jpg&q=90)
+  
+
+Impeached Philippine Vice President Sara Duterte has returned home after nearly a month at her father's side in The Hague, where he is facing a charge of crimes against humanity, her communications team said Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm)
+
+---
+
 # Seoul to set presidential election for June 3: Yonhap
 
 ![People attended a rally to celebrate the expulsion of South Korean President Yoon Suk Yeol in Seoul on Saturday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799191_1_20250407101114.jpg&q=90)
@@ -1411,29 +1435,5 @@ A massive fire caused by a gas pipeline leak forced people from their homes and 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm)
-
----
-
-# Tesla faces backlash over Musk, weakening demand
-
-![Sales of Tesla EVs are slowing in Europe amid a growing backlash against its CEO Elon Musk over his political views. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798413_1_20250401120524.jpg&q=90)
-  
-
-Tesla investors are bracing for a drop in first-quarter vehicle deliveries as a backlash against CEO Elon Musk's politics exacerbates weakening demand for the electric vehicle maker's lineup.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 航班上今起不能用外置充電器　乘客稱影響不大上機前會為手機充電
+
+  
+
+由今天起，飛機乘客不得在航班上使用外置充電器為其他便攜式電子裝置、不得為外置充電器充電、亦不得把外置充電器放置於行李架上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799211-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799211-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799211-20250407.htm)
+
+---
+
+# 加強大眾對國安20個重點領域意識　周一鳴稱國安法非洪水猛獸
+
+  
+
+警務處處長周一鳴接受報章訪問表示，國安法與其他法例無分別，跟兇殺同屬嚴重罪行，只是國安法屬「重中之中」。由於大多市民的認知停留於調查工作，日後要加強大眾對國安20個重點領域的意識，例如經濟安全及網絡安全。對於剛卸任警務處處長的蕭澤頤被美國制裁，他強調對此「嗤之以鼻」，日後會繼續加強情報蒐集及主導工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799206-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799206-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799206-20250407.htm)
+
+---
+
 # 張李佳蕙獲委任為機管局新任行政總裁　任期今日起生效
 
   
@@ -1389,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799011-20250405.htm)
-
----
-
-# 劉兆佳指中方反制肯定不只是姿態　莊太量料或引發小股災
-
-![國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798972_1_20250404220059.jpg&q=80)
-  
-
-全國港澳研究會顧問劉兆佳分析，中方以組合拳方式反制美國，肯定不會只是姿態，形容一定要令對方感到痛苦。而香港亦要研究是否對美國進口貨品施加關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm)
-
----
-
-# 中國出多招反制美國　包括向原產美國的進口商品加34%關稅
-
-![中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798971_1_20250404220458.jpg&q=75)
-  
-
-中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm)
 
 ---

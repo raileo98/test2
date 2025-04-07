@@ -1,3 +1,27 @@
+# HK triathletes clinch bronze on home soil
+
+![The SAR team won third in the mixed relay on home soil. Screencap courtesy of Triathlon Association of Hong Kong China](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799202_1_20250407110223.jpg&q=90)
+  
+
+Hong Kong, China secured a bronze medal in the mixed relay at the Asia Triathlon Sprint Championships.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm)
+
+---
+
 # Five arrested in drink driving clampdown
 
 ![An officer takes part in the operation in East Kowloon. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799170_1_20250407082147.jpg&q=85)
@@ -1411,29 +1435,5 @@ The Office of the Privacy Commissioner for Personal Data says a data breach inci
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm)
-
----
-
-# Privacy watchdog issues AI guidelines for employees
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798247_1_20250331141847.jpg&q=90)
-  
-
-The Office of the Privacy Commissioner for Personal Data (PCPD) on Monday issued a checklist to guide organisations in regulating their employees’ use of generative artificial intelligence.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm)
 
 ---
