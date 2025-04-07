@@ -1,3 +1,27 @@
+# 滬股跌逾7%　5年最大單日跌幅　中央匯金再次增持ETF
+
+![內地股市顯著下挫，上證綜合指數跌幅7.34%，創5年最大單日跌幅。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799248_1_20250407152224.jpg&q=90)
+  
+
+內地股市顯著下挫，創業板指數跌逾12%。消費電子、電池及人工智能概念股下跌；農業股逆市上市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799248-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799248-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799248-20250407.htm)
+
+---
+
 # 中方批評美國關稅以對等為名行霸權之實　將美國優先凌駕國際規則
 
 ![林劍批評美國加徵關稅，是以對等為名，行霸權之實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799247_1_20250407152315.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm)
-
----
-
-# 英美期油低收約7%或以上　OPEC+增產加劇油價跌勢
-
-![油價急挫，英美期油曾創4年新低，收市分別跌6.5%及7.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798995_1_20250405055022.jpg&q=90)
-  
-
-油價急挫，英美期油曾創4年新低，中國採取反制措施，對美國商品加徵關稅，市場憂慮全球貿易戰急劇升溫，引發經濟衰退。投資銀行摩根大通預料，今年底前，全球經濟衰退可能性由40%上升至60%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm)
 
 ---

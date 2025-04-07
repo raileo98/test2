@@ -1,3 +1,50 @@
+# 議員關注增新聞主任職位　特首辦稱擴展新媒體及加強公關工作
+
+  
+
+立法會財委會舉行特別會議，審議25/26年度政府開支預算。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799250-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799250-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799250-20250407.htm)
+
+---
+
+# 滬股跌逾7%　5年最大單日跌幅　中央匯金再次增持ETF
+
+![內地股市顯著下挫，上證綜合指數跌幅7.34%，創5年最大單日跌幅。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799248_1_20250407152224.jpg&q=90)
+  
+
+內地股市顯著下挫，創業板指數跌逾12%。消費電子、電池及人工智能概念股下跌；農業股逆市上市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799248-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799248-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799248-20250407.htm)
+
+---
+
 # 中方批評美國關稅以對等為名行霸權之實　將美國優先凌駕國際規則
 
 ![林劍批評美國加徵關稅，是以對等為名，行霸權之實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799247_1_20250407152315.jpg&q=90)

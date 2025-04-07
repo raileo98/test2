@@ -1,3 +1,26 @@
+# 議員關注增新聞主任職位　特首辦稱擴展新媒體及加強公關工作
+
+  
+
+立法會財委會舉行特別會議，審議25/26年度政府開支預算。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799250-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799250-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799250-20250407.htm)
+
+---
+
 # 黃竹坑一名男生涉情緒激動襲擊兩名學校職員被捕
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799036-20250405.htm)
-
----
-
-# 民青局資助約30個以「東江水供港60周年」為主題交流項目
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799028_1_20250405143324.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟主持「東江水供港60周年」主題活動啟動禮。今年是東江水供港60周年，為紀念及慶祝這個重要的里程碑，民青局將為青年人舉辦及提供一系列相關主題活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799028-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799028-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799028-20250405.htm)
 
 ---
