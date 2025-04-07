@@ -1,3 +1,27 @@
+# 中方批評美國關稅以對等為名行霸權之實　將美國優先凌駕國際規則
+
+![林劍批評美國加徵關稅，是以對等為名，行霸權之實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799247_1_20250407152315.jpg&q=90)
+  
+
+在北京，外交部批評美國向各國徵收對等關稅，是以對等為名，行霸權之實，犧牲各國利益，服務一己之私，將美國優先凌駕國際規則，是典型的單邊主義、保護主義和經濟霸凌行徑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm)
+
+---
+
 # 廣東稱要全面推進鄉村振興　辦好鄉村文藝晚會
 
 ![廣東當局指，今年是「百千萬工程」的重要節點，要全面推進鄉村振興，發展文旅、辦好「廣東村晚」。（受訪者社交平台截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799224_1_20250407131336.jpg&q=85)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798822-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798822-20250403.htm)
-
----
-
-# 習近平向老撾國家主席致唁電　就坎代逝世表示沉痛哀悼
-
-![習近平說，中方願與老方一起努力，推動中老命運共同體建設以及各自社會主義事業不斷取得更大發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798819_1_20250403171724.jpg&q=90)
-  
-
-中共中央總書記、國家主席習近平向老撾人民革命黨中央總書記、國家主席通倫致唁電，對老撾黨和國家前主席坎代逝世表示沉痛哀悼，並向坎代的家屬致以誠摯慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm)
 
 ---

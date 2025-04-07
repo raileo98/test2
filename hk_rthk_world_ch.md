@@ -1,3 +1,27 @@
+# 中方批評美國關稅以對等為名行霸權之實　將美國優先凌駕國際規則
+
+![林劍批評美國加徵關稅，是以對等為名，行霸權之實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799247_1_20250407152315.jpg&q=90)
+  
+
+在北京，外交部批評美國向各國徵收對等關稅，是以對等為名，行霸權之實，犧牲各國利益，服務一己之私，將美國優先凌駕國際規則，是典型的單邊主義、保護主義和經濟霸凌行徑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm)
+
+---
+
 # 商務部召開美資企業圓桌會　Tesla等20多間企業參加
 
 ![商務部表示，美國以各種借口宣布對包括中國在內的所有貿易伙伴濫施關稅，嚴重損害以規則為基礎的多邊貿易體制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799240_1_20250407141600.jpg&q=75)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm)
-
----
-
-# 美國和巴拿馬官員討論長和經營巴拿馬運河港口審計問題
-
-![美國副國務卿蘭多與巴拿馬外長馬丁內斯阿查通話，討論長和經營巴拿馬運河港口的審計問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799032_1_20250405160827.jpg&q=65)
-  
-
-美國副國務卿蘭多與巴拿馬外長馬丁內斯阿查通話，討論長和集團經營巴拿馬運河港口的審計問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799032-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799032-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799032-20250405.htm)
 
 ---

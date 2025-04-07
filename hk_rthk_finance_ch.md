@@ -1,3 +1,27 @@
+# 中方批評美國關稅以對等為名行霸權之實　將美國優先凌駕國際規則
+
+![林劍批評美國加徵關稅，是以對等為名，行霸權之實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799247_1_20250407152315.jpg&q=90)
+  
+
+在北京，外交部批評美國向各國徵收對等關稅，是以對等為名，行霸權之實，犧牲各國利益，服務一己之私，將美國優先凌駕國際規則，是典型的單邊主義、保護主義和經濟霸凌行徑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm)
+
+---
+
 # 韓股急挫近6%
 
 ![首爾綜合指數收市報2328點，跌137點，跌幅5.57%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799245_1_20250407151700.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm)
-
----
-
-# 憂貿易戰升級　美股3大指數再挫近6%　道指低收2231點
-
-![美股連續兩日急挫，3大指數尾市跌幅擴大，跌近6%收市，齊創2020年3月以來最大兩日跌幅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798993_1_20250405052418.jpg&q=90)
-  
-
-美國對貿易夥伴徵收對等關稅，中國採取反制措施，貿易衝突升級令市場憂慮加劇，美股連續兩日急挫，3大指數尾市跌幅擴大，跌近6%收市，跌至逾10個月至逾11個月收市新低，並且齊創2020年3月以來最大兩日跌幅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798993-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798993-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798993-20250405.htm)
 
 ---
