@@ -1,3 +1,27 @@
+# Medical airlift ends with three dead in Japan crash
+
+![The helicopter floats off the coast of Iki Island, Nagasaki Prefecture, western Japan and Kyushu Island region. Photo: Yomiuri Shimbun/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799225_1_20250407123224.jpg&q=80)
+  
+
+Three people died after a medical helicopter crashed into the sea off southwestern Japan, the coast guard said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799225-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799225-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799225-20250407.htm)
+
+---
+
 # Trial looms for Boeing over 737 MAX crash in Eithiopia
 
 ![Two 737 MAX aircraft are assembled at Boeing's plant in Renton, Washington. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799216_1_20250407115025.jpg&q=60)
@@ -1411,29 +1435,5 @@ Whole herds of cattle have drowned in vast inland floods sweeping across the Aus
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798443-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798443-20250401.htm)
-
----
-
-# Fab Four get own beat in 'bingeable' film experience
-
-![At the CinemaCon in Caesars Palace in Las Vegas are, from left, Sam Mendes, Paul Mescal, Joseph Quinn, Barry Keoghan and Harris Dickinson. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798436_1_20250401134811.jpg&q=90)
-  
-
-Sam Mendes will release four movies about The Beatles in the same month, the director has announced, with Paul Mescal playing Paul McCartney and Harris Dickinson portraying John Lennon in "the first bingeable theatrical experience."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 廣東稱要全面推進鄉村振興　辦好鄉村文藝晚會
+
+  
+
+廣東省政府指，今年是「百縣千鎮萬村高質量發展工程」，簡稱「百千萬工程」的重要節點，要全面推進鄉村振興，包括辦好「廣東村晚」，即是鄉村文藝晚會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm)
+
+---
+
+# 周一鳴稱首要工作維護國安　指國安法對創作無影響
+
+  
+
+警務處處長周一鳴表示，上任後首要工作是維護國安，認為國安法並非洪水猛獸，只是有人嘗試污衊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799223-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799223-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799223-20250407.htm)
+
+---
+
 # 外置充電器今起不得航班上使用亦不得放置行李架上　有旅客稱合理
 
   
@@ -1383,53 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm)
-
----
-
-# 日本長崎縣一架直升機在海上墜毀　3人失聯
-
-![日本長崎縣一架直升機在海上墜毀　3人失聯](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799142_1_20250406222359.jpg&q=90)
-  
-
-日本共同社報道，日本一架直升機下午在長崎縣對馬市附近海域失聯，之後被發現已經在海上墜毀，3人失聯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm)
-
----
-
-# 《人民日報》再發文指中國有強大抗壓能力面對美國關稅霸凌衝擊
-
-![文章說，中國是超大規模經濟體，面對美國的關稅霸凌衝擊，具有強大的抗壓能力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799141_1_20250406215425.jpg&q=35)
-  
-
-明日出版的《人民日報》再發表評論員文章，指美國對中國商品加徵34%的關稅，加上此前加徵的關稅，將嚴重抑制雙邊貿易，短期內不可避免地對中國出口造成負面影響，加大經濟下行壓力，但中國是超大規模經濟體，面對美國的關稅霸凌衝擊，具有強大的抗壓能力，對美出口下降不會對整體經濟造成顛覆性影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm)
 
 ---

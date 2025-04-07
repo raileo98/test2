@@ -1,3 +1,26 @@
+# 廣東稱要全面推進鄉村振興　辦好鄉村文藝晚會
+
+  
+
+廣東省政府指，今年是「百縣千鎮萬村高質量發展工程」，簡稱「百千萬工程」的重要節點，要全面推進鄉村振興，包括辦好「廣東村晚」，即是鄉村文藝晚會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm)
+
+---
+
 # 廣南聯絡綫西塱隧道出口明挖段主體結構封頂　將啟動鑽挖式工程
 
 ![連接廣州站與廣州南站的廣南聯絡綫，西塱隧道出口明挖段主體結構封頂。（廣州鐵路）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799217_1_20250407121552.jpg&q=80)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm)
-
----
-
-# 商務部稱願與美方通過平等對話磋商　解決各自的關切
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
-  
-
-美方宣布對所有貿易夥伴徵收對等關稅。在北京，商務部新聞發言人何亞東表示，中美兩國經貿部門一直保持溝通，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm)
 
 ---
