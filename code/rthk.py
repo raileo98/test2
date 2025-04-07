@@ -238,6 +238,8 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
                 cache_hits += 1
             
             if not response.from_cache and response.raw.version:
+                if response.raw.version == 10: # fix later
+                    verCount11 += 1 # fix later
                 if response.raw.version == 11:
                     verCount11 += 1
                 elif response.raw.version == 20:
@@ -247,9 +249,9 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
             
             return response
 
-        except OverwhelmedTraffic as e:
-            print('error: OverwhelmedTraffic')
-            continue
+        # except OverwhelmedTraffic as e:
+            # print('error: OverwhelmedTraffic')
+            # continue
         
         except Exception as e:
             # if str(e).strip() == 'Cannot select a disposable connection to ease the charge':
