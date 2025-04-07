@@ -1,3 +1,27 @@
+# Trial looms for Boeing over 737 MAX crash in Eithiopia
+
+![Two 737 MAX aircraft are assembled at Boeing's plant in Renton, Washington. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799216_1_20250407115025.jpg&q=60)
+  
+
+Boeing is poised to face a jury trial from Monday over the fatal 2019 crash of an Ethiopian Airlines 737 MAX plane, the first civil case related to the disaster to reach court.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm)
+
+---
+
 # SAR 'committed to promoting Web3 development'
 
 ![Paul Chan says the government will enable Web3 to grow in a responsible and sustainable manner. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799210_1_20250407112528.jpg&q=85)
@@ -1411,29 +1435,5 @@ The Secretary for Sports, Culture and Tourism emphasised that she will stay prin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm)
-
----
-
-# People flock to cemeteries on Ching Ming Festival
-
-![People say the crowd at a cemetery in Diamond Hill was smaller than expected. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798931_1_20250404133333.jpg&q=60)
-  
-
-People on Friday flocked to cemeteries to pay their respects to their ancestors as part of tradition for the Ching Ming Festival.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm)
 
 ---

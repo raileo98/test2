@@ -1,5 +1,53 @@
+# 廣南聯絡綫西塱隧道出口明挖段主體結構封頂　將啟動鑽挖式工程
+
+  
+
+內地傳媒報道，連接廣州站與廣州南站的廣南聯絡綫，西塱隧道出口明挖段主體結構封頂，形容項目建設取得階段性成果，鑽挖式隧道工程即將啟動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799217-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799217-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799217-20250407.htm)
+
+---
+
+# 內地3大指數半日跌逾6%至近10%　滬股失守3200點
+
+![上證綜合指數半日收報3130點，跌211點，跌幅6.34%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799214_1_20250407113803.jpg&q=85)
+  
+
+市場擔心貿易衝突升級，內地3大指數半日跌逾6%至近10%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799214-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799214-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799214-20250407.htm)
+
+---
+
 # 消防及救護學院設國家安全教育資源中心　設主題消防車供「打卡」
 
+![消防處在新一集影片中，介紹位於將軍澳百勝角消防及救護學院內的國家安全教育暨資源中心，中心內有虛擬的國家安全主題消防車供參觀者「打卡」。（消防處片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799212_1_20250407114534.jpg&q=90)
   
 
 本月15日是全民國家安全教育日，6支紀律部隊和兩個輔助隊伍由昨日起一連9日，發布影片介紹部門具意義的國家安全物品。
@@ -23,10 +71,10 @@
 
 # 航班上今起不能用外置充電器　乘客稱影響不大上機前會為手機充電
 
-![今天起乘客不得在航班上使用外置充電器為其他便攜式電子裝置、不得為外置充電器充電、亦不得把外置充電器放置於行李架上。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799211_1_20250407113540.jpg&q=90)
+![今天起乘客不得在航班上使用外置充電器為其他便攜式電子裝置充電、不得為外置充電器充電、亦不得把外置充電器放置於行李架上。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799211_1_20250407113540.jpg&q=90)
   
 
-由今天起，飛機乘客不得在航班上使用外置充電器為其他便攜式電子裝置、不得為外置充電器充電、亦不得把外置充電器放置於行李架上。
+由今天起，飛機乘客不得在航班上使用外置充電器為其他便攜式電子裝置充電、不得為外置充電器充電、亦不得把外置充電器放置於行李架上。
 
   
 
@@ -1383,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799135-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799135-20250406.htm)
-
----
-
-# 敏昂萊慰問中國救援隊伍　感謝震後到緬全力救援
-
-![在緬甸曼德勒中國救援隊伍營地，緬甸領導人敏昂萊（前左一）慰問中國救援隊伍。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799134_1_20250406200019.jpg&q=90)
-  
-
-緬甸大地震至今造成近3500人死亡，超過4000人受傷，另有214人失蹤。部分災區自周末起降雨，參與救援工作的聯合國人員擔心，會令救援工作複雜化，並增加爆發霍亂等疾病的風險，又說當地需要更多帳篷安置無家可歸的災民。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm)
-
----
-
-# 香港馬王浪漫勇士遠征中東三賽共奪一冠兩亞
-
-![練馬師沈集成（右）率領「浪漫勇士」及其團隊，完成為期四個月的中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799133_1_20250406185624.jpg&q=90)
-  
-
-香港馬王「浪漫勇士」於阿聯酋出戰迪拜草地大賽，衝線時以馬鼻之差，不敵日本賽駒「神志勇進」得第二。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799133-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799133-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799133-20250406.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Trial looms for Boeing over 737 MAX crash in Eithiopia
+
+![Two 737 MAX aircraft are assembled at Boeing's plant in Renton, Washington. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799216_1_20250407115025.jpg&q=60)
+  
+
+Boeing is poised to face a jury trial from Monday over the fatal 2019 crash of an Ethiopian Airlines 737 MAX plane, the first civil case related to the disaster to reach court.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm)
+
+---
+
 # Sara Duterte back home for electoral fight
 
 ![Sara Duterte addresses supporters outside the International Criminal Court in The Hague last month. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799207_1_20250407111536.jpg&q=90)
@@ -1411,29 +1435,5 @@ Sam Mendes will release four movies about The Beatles in the same month, the dir
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm)
-
----
-
-# Over 100 injured in Kuala Lumpur gas pipeline fireball
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798431_2_20250401131510.jpg&q=90)
-  
-
-A massive fire caused by a gas pipeline leak forced people from their homes and injured more than 100 during Eid celebrations near Malaysia's capital on Tuesday, fire officials said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm)
 
 ---

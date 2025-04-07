@@ -1,3 +1,26 @@
+# 廣南聯絡綫西塱隧道出口明挖段主體結構封頂　將啟動鑽挖式工程
+
+  
+
+內地傳媒報道，連接廣州站與廣州南站的廣南聯絡綫，西塱隧道出口明挖段主體結構封頂，形容項目建設取得階段性成果，鑽挖式隧道工程即將啟動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799217-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799217-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799217-20250407.htm)
+
+---
+
 # 清明節假期全國口岸逾620萬人次出入境　較去年同期增近兩成
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm)
-
----
-
-# 外交部批評日方言行違背一中原則　已嚴正交涉
-
-![郭嘉昆說，中方有關聯合演訓是對「台獨」分裂勢力的嚴重警告和有力遏制，日方無權說三道四。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798812_1_20250403164020.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆強調，中方聯合演訓是對「台獨」分裂勢力的嚴重警告和有力遏制，是捍衛國家主權、維護國家統一的正當必要行動，日方無權說三道四，更不得插手干涉，批評日方言行公然違背一個中國原則，中方強烈不滿和堅決反對，已向日方嚴正交涉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm)
 
 ---
