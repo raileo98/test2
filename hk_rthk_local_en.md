@@ -1,3 +1,27 @@
+# Power bank ban doesn't leave some air passengers wired
+
+![A sign lays down the law on power banks at the airport. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799260_1_20250407163157.jpg&q=80)
+  
+
+From Monday, airline passengers have been banned from using and charging their power banks during flights and storing portable chargers in overhead compartments.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799260-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799260-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799260-20250407.htm)
+
+---
+
 # 'Govt will stay vigilant over market changes'
 
 ![Joseph Chan's reassurance comes after a black Monday for equity markets that saw the Hang Seng Index plunge more than 10 percent in opening trades. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799235_1_20250407134313.jpg&q=90)
@@ -1411,29 +1435,5 @@ China on Monday reaffirmed its resolute opposition to moves that infringe upon a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm)
-
----
-
-# HA unveils smart measures to better monitor patients
-
-![The Hospital Authority is bringing new technology to public hospitals. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798304_1_20250331180722.jpg&q=90)
-  
-
-The Hospital Authority (HA) on Monday announced a series of smart measures in accident and emergency departments and wards to better monitor patients and reduce medical mishaps.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798304-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798304-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798304-20250331.htm)
 
 ---

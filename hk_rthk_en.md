@@ -1,3 +1,27 @@
+# Power bank ban doesn't leave some air passengers wired
+
+![A sign lays down the law on power banks at the airport. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799260_1_20250407163157.jpg&q=80)
+  
+
+From Monday, airline passengers have been banned from using and charging their power banks during flights and storing portable chargers in overhead compartments.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799260-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799260-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799260-20250407.htm)
+
+---
+
 # Black Monday hit for stocks on tariffs chaos
 
 ![A securities brokerage trader in Hong Kong sees red on his screen on a day that saw the Hang Seng Index lose more than 3,100 points to end at 19,710.26. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799241_1_20250407161838.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump said on Thursday he wanted "direct talks" with Tehran 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798967-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798967-20250404.htm)
-
----
-
-# De Bruyne to leave City at the end of the season
-
-![Kevin De Bruyne has won 14 major trophies since joining Man City in 2015. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798963_2_20250404213306.jpg&q=90)
-  
-
-Manchester City midfielder Kevin De Bruyne confirmed on Friday that he will leave the club at the end of the season.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm)
 
 ---
