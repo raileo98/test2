@@ -1,3 +1,27 @@
+# 中方冀南韓有序推進政治議程　保持政局和社會穩定
+
+![林劍稱中方希望南韓有序地推進國內的政治議程。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799257_1_20250407155309.jpg&q=90)
+  
+
+在北京，外交部發言人林劍回應南韓憲法法院罷免尹錫悅總統職務，指這是南韓內部事務，中方希望南韓有序推進國內的政治議程，保持政局和社會穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm)
+
+---
+
 # 中方完成福島核污水獨立檢測未見異常　外交部稱續促日方履行承諾
 
 ![國家原子能機構公布，中方對日本福島核污染水排海獨立取樣檢測結果，指海水和海洋生物樣本放射性物質濃度未見異常。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799253_1_20250407154336.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799046-20250405.htm)
-
----
-
-# 柬埔寨雲壤海軍基地正式啟用　中柬派員維持正常運轉
-
-![柬埔寨首相洪瑪奈（前左）和中共中央軍委聯合參謀部副參謀長曹青鋒（前右）共同主持雲壤海軍基地啟用儀式。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799035_1_20250405154619.jpg&q=90)
-  
-
-由中國援助升級改造的柬埔寨雲壤海軍基地及訓練中心正式啟用，中國和柬埔寨將派駐必要人員共同維持中心正常運轉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm)
 
 ---

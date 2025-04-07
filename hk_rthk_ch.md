@@ -1,3 +1,74 @@
+# 理大成立計算機及數學科學學院　孫東：培養人才是創科發展的基石
+
+  
+
+創新科技及工業局局長孫東表示，特區政府多管齊下擴大創新科技人才庫，為年輕人培養未來所需的技能，當局將持續推動科學教育，加強數碼教育，協助香港發展成國際創科中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799261-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799261-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799261-20250407.htm)
+
+---
+
+# 中方冀南韓有序推進政治議程　保持政局和社會穩定
+
+![林劍稱中方希望南韓有序地推進國內的政治議程。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799257_1_20250407155309.jpg&q=90)
+  
+
+在北京，外交部發言人林劍回應南韓憲法法院罷免尹錫悅總統職務，指這是南韓內部事務，中方希望南韓有序推進國內的政治議程，保持政局和社會穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm)
+
+---
+
+# 中方完成福島核污水獨立檢測未見異常　外交部稱續促日方履行承諾
+
+![國家原子能機構公布，中方對日本福島核污染水排海獨立取樣檢測結果，指海水和海洋生物樣本放射性物質濃度未見異常。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799253_1_20250407154336.jpg&q=90)
+  
+
+在北京，國家原子能機構公布，中方對日本福島核污染水排海獨立取樣檢測結果，指海水和海洋生物樣本的氚、銫-134、銫-137、鍶-90等放射性物質濃度未見異常。中方會將相關檢測數據提交國際原子能機構。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799253-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799253-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799253-20250407.htm)
+
+---
+
 # 歐洲主要股市下挫逾5-7%
 
 ![法蘭克福DAX指數報19147點，跌1493點，跌幅7.24%，歐洲主要股市下挫。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799258_1_20250407155312.jpg&q=90)
@@ -24,6 +95,7 @@
 
 # Coldplay演唱會明起舉行　九巴7特別線散場後接載乘客
 
+![九巴表示，有多條路線途經啟德主場館，並會開辦7條特別線，在活動結束後接載乘客一程直達不同地區。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799259_1_20250407160518.jpg&q=90)
   
 
 英國樂隊Coldplay世界巡演香港站將於明天、星期三、星期五及星期六晚在啟德主場館舉行。九巴表示，有多條路線途經啟德主場館，並會開辦7條特別線，在活動結束後接載乘客一程直達不同地區，或者在各轉車站轉乘其他九巴路線，指定路線組合享有第二程車資免費的優惠。

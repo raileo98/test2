@@ -1,3 +1,27 @@
+# 中方冀南韓有序推進政治議程　保持政局和社會穩定
+
+![林劍稱中方希望南韓有序地推進國內的政治議程。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799257_1_20250407155309.jpg&q=90)
+  
+
+在北京，外交部發言人林劍回應南韓憲法法院罷免尹錫悅總統職務，指這是南韓內部事務，中方希望南韓有序推進國內的政治議程，保持政局和社會穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm)
+
+---
+
 # 中方完成福島核污水獨立檢測未見異常　外交部稱續促日方履行承諾
 
 ![國家原子能機構公布，中方對日本福島核污染水排海獨立取樣檢測結果，指海水和海洋生物樣本放射性物質濃度未見異常。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799253_1_20250407154336.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm)
-
----
-
-# 香港律師會訪京　湯文龍稱任何對公職人員制裁都是對法治侮辱
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798824_1_20250403183643.jpg&q=80)
-  
-
-美國國務院早前宣布，對6名中央和香港特區官員實施制裁。香港律師會會長湯文龍表示，不以政治角度評論事件，就法律角度而言，任何對於公職人員的制裁都是對法治的侮辱。他説，任何人包括律政司司長，根據《基本法》下行使應有的權利，不應該受到干預和制裁。如果制裁是透過政治手段，作爲法律從業員，他們對此予以譴責。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm)
 
 ---

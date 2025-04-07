@@ -1,5 +1,29 @@
+# 理大成立計算機及數學科學學院　孫東：培養人才是創科發展的基石
+
+  
+
+創新科技及工業局局長孫東表示，特區政府多管齊下擴大創新科技人才庫，為年輕人培養未來所需的技能，當局將持續推動科學教育，加強數碼教育，協助香港發展成國際創科中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799261-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799261-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799261-20250407.htm)
+
+---
+
 # Coldplay演唱會明起舉行　九巴7特別線散場後接載乘客
 
+![九巴表示，有多條路線途經啟德主場館，並會開辦7條特別線，在活動結束後接載乘客一程直達不同地區。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799259_1_20250407160518.jpg&q=90)
   
 
 英國樂隊Coldplay世界巡演香港站將於明天、星期三、星期五及星期六晚在啟德主場館舉行。九巴表示，有多條路線途經啟德主場館，並會開辦7條特別線，在活動結束後接載乘客一程直達不同地區，或者在各轉車站轉乘其他九巴路線，指定路線組合享有第二程車資免費的優惠。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799049-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799049-20250405.htm)
-
----
-
-# 陳茂波：應視北都為產業導向發展而非房地產開發　投資回報期較長
-
-![陳茂波表示，不能視北部都會區發展為房地產開發概念，應視為產業導向發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799051_1_20250405181309.jpg&q=90)
-  
-
-財政司司長陳茂波表示，不能視北部都會區發展為房地產開發概念，應視為產業導向發展，而投資回報期會較長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799051-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799051-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799051-20250405.htm)
 
 ---
