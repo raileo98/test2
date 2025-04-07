@@ -1,5 +1,30 @@
+# 周一鳴談理大行動籲勿標籤被捕年輕人　稱幕後推手最「惡毒」
+
+![周一鳴說，當時每日都接觸到被捕年輕人，發現他們多受朋輩影響，缺乏清晰動機，並強調事件的「幕後推手」最「惡毒」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799193_1_20250407104240.jpg&q=80)
+  
+
+日前履新的警務處處長周一鳴接受報章訪問，回顧2019年曾擔任總指揮，處理理大校園行動。他說，當時每日都接觸到被捕年輕人，發現他們多受朋輩影響，缺乏清晰動機，他叮囑團隊小心處理，避免標籤這些年輕人，並強調事件的「幕後推手」最「惡毒」。對於成功處理理大事件，周一鳴認為是整個團隊的功勞，當時首要考慮的是被困年輕人的身心健康而非拘捕與否。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799193-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799193-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799193-20250407.htm)
+
+---
+
 # 林定國稱國家安全教育應持續每天都要做　制裁不影響工作決心
 
+![林定國表示，雖然現在擁有很安定的環境，都不能忘記國家安全的風險或會存在。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799190_1_20250407102518.jpg&q=90)
   
 
 本月15日是第10屆「全民國家安全教育日」，律政司司長林定國表示，國家安全教育不應集中在某些特別的日子，他舉例說每年2月14日是情人節，說「難道那天你才對老婆好 」，認為應該持續每天都要做，又說這是他在法律方面推動國家安全教育的理念。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm)
-
----
-
-# 清明長假首日截至下午4時逾45萬人次出境
-
-![出境方面，以羅湖口岸最多，有近9萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798959_1_20250404191225.jpg&q=85)
-  
-
-清明節3天長假期首日，截至下午4時，有近74萬人次進出本港，當中包括逾45萬人次出境，及28萬人次入境。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798959-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798959-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798959-20250404.htm)
 
 ---

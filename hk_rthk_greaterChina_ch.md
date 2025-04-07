@@ -1,5 +1,29 @@
+# 中方強烈不滿及堅決反對少數國家與組織罔顧事實干涉中國內政
+
+  
+
+中國駐加拿大使館表示，中方強烈不滿、堅決反對並絕不接受少數國家與組織罔顧事實、顛倒黑白及公然干涉中國內政。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm)
+
+---
+
 # 林定國稱國家安全教育應持續每天都要做　制裁不影響工作決心
 
+![林定國表示，雖然現在擁有很安定的環境，都不能忘記國家安全的風險或會存在。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799190_1_20250407102518.jpg&q=90)
   
 
 本月15日是第10屆「全民國家安全教育日」，律政司司長林定國表示，國家安全教育不應集中在某些特別的日子，他舉例說每年2月14日是情人節，說「難道那天你才對老婆好 」，認為應該持續每天都要做，又說這是他在法律方面推動國家安全教育的理念。
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm)
-
----
-
-# 商務部：日本半導體出口管制損害兩國企業利益
-
-![商務部發言人表示，希望日方從維護國際經貿規則及中日經貿合作大局出發，保持理性決策，及時糾正錯誤做法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798805_1_20250403154527.jpg&q=90)
-  
-
-在北京，商務部回應日本政府宣布對十多種半導體相關物項實施出口管制時說，日方的措施將嚴重干擾企業之間正常商業往來，損害兩國企業利益，中方將採取必要措施，堅決維護自身正當權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm)
 
 ---

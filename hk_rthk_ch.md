@@ -1,5 +1,101 @@
+# 日經指數31000點關口反覆　半日跌2188點
+
+![日經指數半日收報31591點，跌2188點，跌幅6.48%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799196_1_20250407103435.jpg&q=90)
+  
+
+日股急跌。日經指數一度失守31000點，低見30792點，跌近3000點，半日收報31591點，跌2188點，跌幅6.48%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799196-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799196-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799196-20250407.htm)
+
+---
+
+# 內地於3月底外匯儲備升至3.24萬億美元
+
+![內地3月底外匯儲備3.241萬億美元，按月升0.43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799194_1_20250407102915.jpg&q=90)
+  
+
+人民銀行公布，截至3月底外匯儲備3.241萬億美元，按月升0.43%；官方儲備資產中，黃金儲備2295億美元，按月升10%，黃金儲備7370萬盎司。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799194-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799194-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799194-20250407.htm)
+
+---
+
+# 中方強烈不滿及堅決反對少數國家與組織罔顧事實干涉中國內政
+
+  
+
+中國駐加拿大使館表示，中方強烈不滿、堅決反對並絕不接受少數國家與組織罔顧事實、顛倒黑白及公然干涉中國內政。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm)
+
+---
+
+# 周一鳴談理大行動籲勿標籤被捕年輕人　稱幕後推手最「惡毒」
+
+![周一鳴說，當時每日都接觸到被捕年輕人，發現他們多受朋輩影響，缺乏清晰動機，並強調事件的「幕後推手」最「惡毒」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799193_1_20250407104240.jpg&q=80)
+  
+
+日前履新的警務處處長周一鳴接受報章訪問，回顧2019年曾擔任總指揮，處理理大校園行動。他說，當時每日都接觸到被捕年輕人，發現他們多受朋輩影響，缺乏清晰動機，他叮囑團隊小心處理，避免標籤這些年輕人，並強調事件的「幕後推手」最「惡毒」。對於成功處理理大事件，周一鳴認為是整個團隊的功勞，當時首要考慮的是被困年輕人的身心健康而非拘捕與否。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799193-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799193-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799193-20250407.htm)
+
+---
+
 # 林定國稱國家安全教育應持續每天都要做　制裁不影響工作決心
 
+![林定國表示，雖然現在擁有很安定的環境，都不能忘記國家安全的風險或會存在。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799190_1_20250407102518.jpg&q=90)
   
 
 本月15日是第10屆「全民國家安全教育日」，律政司司長林定國表示，國家安全教育不應集中在某些特別的日子，他舉例說每年2月14日是情人節，說「難道那天你才對老婆好 」，認為應該持續每天都要做，又說這是他在法律方面推動國家安全教育的理念。
@@ -1339,102 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm)
-
----
-
-# 哥倫比亞政府與「南方公社」武裝簽和平協議　組織上繳武器彈藥
-
-![佩特羅（圖）及「南方公社」代表出席和平協議簽署儀式。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799118_1_20250406163542.jpg&q=90)
-  
-
-哥倫比亞政府與一個武裝組織舉行和平協議簽署儀式。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm)
-
----
-
-# 旅發局促成逾50大型國際會展活動在港舉辦　料共26萬人次參與
-
-![考察團到香港會議展覽中心參觀展覽場地和會議室，作為日後選址香港舉辦會展活動的參考。（政府新聞網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799117_1_20250406161237.jpg&q=80)
-![成穎詩表示，隨着會展旅遊強勁復蘇和國際航空運力進一步恢復，相信會迎來更多會展旅客。（政府新聞網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799117_2_20250406161237.jpg&q=90)
-  
-
-旅發局表示，已成功競投和促成56個大型國際會展活動今年在港舉辦，其中16個活動是首度落戶香港，涵蓋金融科技、創科、醫療科學、航空等領域。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm)
-
----
-
-# 前旺角街市大樓改建地區康健中心　近日取得入伙紙
-
-![康健中心面向亞皆老街方向採用落地大玻璃設計。（市建網誌設計構想圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799116_1_20250406160819.jpg&q=90)
-  
-
-市建局行政總監韋志成在網誌表示，市建局將前旺角街市大樓翻新成地區康健中心的工程，最近取得「入伙紙」及消防處批出的「消防紙」，未來數月加緊內部裝修及執修，配合今年內將油尖旺區地區康健站提升為地區康健中心的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799116-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799116-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799116-20250406.htm)
-
----
-
-# 北韓官媒簡要報道尹錫悅被罷免　分析指欲與韓方保持一定距離
-
-![朝中社有報道尹錫悅的消息，但未加以評論。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799113_1_20250406143359.jpg&q=90)
-  
-
-北韓官方朝中社昨日簡要報道南韓憲法法院前一天裁定罷免尹錫悅總統職務的消息，未加以評論。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799113-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799113-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799113-20250406.htm)
 
 ---

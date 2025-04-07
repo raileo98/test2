@@ -27,7 +27,7 @@ South Korea's cabinet is expected to finalise a June 3 date for a presidential e
 ![Hong Kong's benchmark fell by over 9 percent at the start of trading. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799185_1_20250407093759.jpg&q=65)
   
 
-Stocks plunged more than nine percent in Hong Kong on Monday on fears of a trade war.
+Financial markets in Hong Kong and across the border dived on Monday as markets around the world crumbled in the face of a widening global trade war and fears it will unleash a deep recession.
 
   
 

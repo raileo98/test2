@@ -1,3 +1,51 @@
+# 日經指數31000點關口反覆　半日跌2188點
+
+![日經指數半日收報31591點，跌2188點，跌幅6.48%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799196_1_20250407103435.jpg&q=90)
+  
+
+日股急跌。日經指數一度失守31000點，低見30792點，跌近3000點，半日收報31591點，跌2188點，跌幅6.48%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799196-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799196-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799196-20250407.htm)
+
+---
+
+# 內地於3月底外匯儲備升至3.24萬億美元
+
+![內地3月底外匯儲備3.241萬億美元，按月升0.43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799194_1_20250407102915.jpg&q=90)
+  
+
+人民銀行公布，截至3月底外匯儲備3.241萬億美元，按月升0.43%；官方儲備資產中，黃金儲備2295億美元，按月升10%，黃金儲備7370萬盎司。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799194-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799194-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799194-20250407.htm)
+
+---
+
 # 台股跌近10%　台積電及鴻海跌停板
 
 ![台灣股市重挫逾9%，接近10%跌停。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799189_1_20250407095954.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm)
-
----
-
-# 韓股開市後跌逾1%
-
-![首爾綜合指數較早時報2459點，跌27點，跌幅1.11%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798893_1_20250404080935.jpg&q=90)
-  
-
-南韓股市下跌。首爾綜合指數較早時報2459點，跌27點，跌幅1.11%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798893-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798893-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798893-20250404.htm)
-
----
-
-# 日股開市跌近2%
-
-![日經指數較早時報34117點，跌618點，跌幅1.78%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798892_1_20250404080746.jpg&q=90)
-  
-
-東京股市下挫，日經指數較早時報34117點，跌618點，跌幅1.78%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798892-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798892-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798892-20250404.htm)
 
 ---

@@ -1,5 +1,29 @@
+# 中方強烈不滿及堅決反對少數國家與組織罔顧事實干涉中國內政
+
+  
+
+中國駐加拿大使館表示，中方強烈不滿、堅決反對並絕不接受少數國家與組織罔顧事實、顛倒黑白及公然干涉中國內政。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm)
+
+---
+
 # 林定國稱國家安全教育應持續每天都要做　制裁不影響工作決心
 
+![林定國表示，雖然現在擁有很安定的環境，都不能忘記國家安全的風險或會存在。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799190_1_20250407102518.jpg&q=90)
   
 
 本月15日是第10屆「全民國家安全教育日」，律政司司長林定國表示，國家安全教育不應集中在某些特別的日子，他舉例說每年2月14日是情人節，說「難道那天你才對老婆好 」，認為應該持續每天都要做，又說這是他在法律方面推動國家安全教育的理念。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799012-20250405.htm)
-
----
-
-# 《環看天下》：美國推動和平   俄烏戰場持續交戰
-
-![烏克蘭部分地區近日仍然受到襲擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799010_1_20250405101301.jpg&q=90)
-  
-
-美國致力斡旋俄烏和平。美烏官員在布魯塞爾會晤，雙方討論烏俄停火，以及兩國礦產合作等問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799010-20250405.htm)
 
 ---
