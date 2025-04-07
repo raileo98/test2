@@ -1,3 +1,27 @@
+# 歐洲主要股市下挫逾5-7%
+
+![法蘭克福DAX指數報19147點，跌1493點，跌幅7.24%，歐洲主要股市下挫。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799258_1_20250407155312.jpg&q=90)
+  
+
+歐洲主要股市早段下挫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799258-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799258-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799258-20250407.htm)
+
+---
+
 # 恒指跌幅擴大至逾3000點　創歷來最大點數跌幅
 
 ![恒生指數較早時報19812點，跌3037點，跌幅逾13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799251_1_20250407153556.jpg&q=60)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm)
-
----
-
-# 港股美國預託證券急挫　恒指ADR指數跌507點
-
-![港股美國預託證券急挫，恒指ADR指數報22343點，比星期四恒指收市跌507點，跌幅2.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798997_1_20250405060331.jpg&q=90)
-  
-
-港股美國預託證券(ADR)急挫，恒指ADR指數報22343點，比星期四恒指收市跌507點，跌幅2.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm)
 
 ---

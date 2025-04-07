@@ -1,3 +1,27 @@
+# 中方完成福島核污水獨立檢測未見異常　外交部稱續促日方履行承諾
+
+![國家原子能機構公布，中方對日本福島核污染水排海獨立取樣檢測結果，指海水和海洋生物樣本放射性物質濃度未見異常。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799253_1_20250407154336.jpg&q=90)
+  
+
+在北京，國家原子能機構公布，中方對日本福島核污染水排海獨立取樣檢測結果，指海水和海洋生物樣本的氚、銫-134、銫-137、鍶-90等放射性物質濃度未見異常。中方會將相關檢測數據提交國際原子能機構。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799253-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799253-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799253-20250407.htm)
+
+---
+
 # 中方批評美國關稅以對等為名行霸權之實　將美國優先凌駕國際規則
 
 ![林劍批評美國加徵關稅，是以對等為名，行霸權之實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799247_1_20250407152315.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm)
-
----
-
-# 任天堂推遲Switch2在美預售時間　評估關稅影響
-
-![日本任天堂公司推遲新款遊戲機Switch2在美國的預售日期，評估關稅影響。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799040_1_20250405160641.jpg&q=90)
-  
-
-日本共同社報道，日本任天堂公司推遲新款遊戲機Switch2在美國的預售日期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799040-20250405.htm)
 
 ---
