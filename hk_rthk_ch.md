@@ -1,5 +1,29 @@
+# 工程公司負責人因維修工程糾紛涉「起底」客戶　被私隱公署拘捕
+
+  
+
+私隱專員公署在新界拘捕一名61歲中國籍男子，涉嫌在未經客戶的同意下披露她的個人資料，違反《個人資料（私隱）條例》規定，被捕人士獲准保釋。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799219-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799219-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799219-20250407.htm)
+
+---
+
 # 「新型工業加速計劃」新項目建醫療藥物生產線　預算金額逾4億元
 
+![「創新及科技基金」下「新型工業評審委員會」已支持一宗由亞洲先進同位素技術有限公司提交的「新型工業加速計劃」申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799218_1_20250407120108.jpg&q=90)
   
 
 創新科技署宣布，「創新及科技基金」下「新型工業評審委員會」已支持一宗由亞洲先進同位素技術有限公司提交的「新型工業加速計劃」申請，項目計劃建立醫療用超導迴旋加速器及核素藥物生產線，其智能生產設施涵蓋高端先進技術，屬生命健康科技領域。該申請是「加速計劃」第二個獲評審委員會支持的項目，總預算金額超過4億元，預計「加速計劃」資助金額約為1億4千萬元。
@@ -1406,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm)
-
----
-
-# 清明假期內地全社會跨區域人員流動量創新高
-
-![清明假期，鐵路客運量預計超過5377萬人次，比去年同期增長8.2%。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799136_1_20250406215132.jpg&q=85)
-  
-
-交通運輸部數據顯示，清明假期三天，預計全社會跨區域人員流動量約7億9千萬人次，創清明假期出行量新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm)
 
 ---

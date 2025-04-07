@@ -1,5 +1,29 @@
+# 工程公司負責人因維修工程糾紛涉「起底」客戶　被私隱公署拘捕
+
+  
+
+私隱專員公署在新界拘捕一名61歲中國籍男子，涉嫌在未經客戶的同意下披露她的個人資料，違反《個人資料（私隱）條例》規定，被捕人士獲准保釋。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799219-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799219-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799219-20250407.htm)
+
+---
+
 # 「新型工業加速計劃」新項目建醫療藥物生產線　預算金額逾4億元
 
+![「創新及科技基金」下「新型工業評審委員會」已支持一宗由亞洲先進同位素技術有限公司提交的「新型工業加速計劃」申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799218_1_20250407120108.jpg&q=90)
   
 
 創新科技署宣布，「創新及科技基金」下「新型工業評審委員會」已支持一宗由亞洲先進同位素技術有限公司提交的「新型工業加速計劃」申請，項目計劃建立醫療用超導迴旋加速器及核素藥物生產線，其智能生產設施涵蓋高端先進技術，屬生命健康科技領域。該申請是「加速計劃」第二個獲評審委員會支持的項目，總預算金額超過4億元，預計「加速計劃」資助金額約為1億4千萬元。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799017-20250405.htm)
-
----
-
-# 楊何蓓茵到訪小學　冀學校繼續發揮主導角色加強學生認識國情
-
-![楊何蓓茵日到訪小西灣培僑小學，了解校方推動國家安全教育的工作。（楊何蓓茵社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799016_1_20250405104535.jpg&q=90)
-  
-
-本月15日將會迎來第10個「全民國家安全教育日」，公務員事務局局長楊何蓓茵表示，學生是未來社會棟樑，學校透過不同階段的學習經歷，幫助學生整全地學習國家安全的內容。期望學校繼續發揮主導角色，透過教學和全方位學習活動，加強學生認識國情，明白保障國家安全的重要性，持續加深對《憲法》和《基本法》的認識，並提升國民身份認同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799016-20250405.htm)
 
 ---
