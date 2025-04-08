@@ -1,3 +1,26 @@
+# 新一輪「富戶政策」申報周期展開　約21萬租戶須５月底前交表
+
+  
+
+房委會已向約21萬納入新一輪「富戶政策」申報周期的公屋租戶派發「富戶政策」申報表及「居住情況申報表」。房委會提醒租戶必須於今年5月31日或之前填妥申報表交回房屋署。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799474-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799474-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799474-20250408.htm)
+
+---
+
 # 東方海外上季總收入按年升近17%
 
 ![東方海外上季總收入23.14億美元，按年增長16.8%，所有航線的收入都錄得增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799472_1_20250408192403.jpg&q=90)
