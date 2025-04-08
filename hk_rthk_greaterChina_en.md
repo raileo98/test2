@@ -1,3 +1,27 @@
+# White House says 104pc China tariffs take effect Wed
+
+![White House press secretary Karoline Leavitt said President Trump believed China wanted to make a deal over tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799523_1_20250409074554.jpg&q=90)
+  
+
+The United States said on Tuesday that 104 percent duties on imports from China will take effect shortly after midnight - or midday Hong Kong time - even as the Trump administration moved to quickly start talks with other trading partners targeted by President Donald Trump's sweeping tariff plan.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm)
+
+---
+
 # China 'ready to fight till the end' over US tariffs
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799446_1_20250408170039.jpg&q=90)
@@ -1415,29 +1439,5 @@ The Foreign Ministry in Beijing on Tuesday called on the United States to stop i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm)
-
----
-
-# BYD posts record annual revenue, beats Tesla
-
-![The firm's stock price also reached an all-time peak this month, after it unveiled new battery technology. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797208_1_20250324213146.jpg&q=90)
-  
-
-Shenzhen-based carmaker BYD saw a surge in revenue last year, a stock filing showed on Monday, surpassing the US$100 billion mark and beating rival Tesla as the car-giant firm accelerates its overseas expansion.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm)
 
 ---

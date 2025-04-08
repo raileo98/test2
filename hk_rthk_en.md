@@ -1,3 +1,27 @@
+# White House says 104pc China tariffs take effect Wed
+
+![White House press secretary Karoline Leavitt said President Trump believed China wanted to make a deal over tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799523_1_20250409074554.jpg&q=90)
+  
+
+The United States said on Tuesday that 104 percent duties on imports from China will take effect shortly after midnight - or midday Hong Kong time - even as the Trump administration moved to quickly start talks with other trading partners targeted by President Donald Trump's sweeping tariff plan.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm)
+
+---
+
 # Trump signs order to 'turbocharge' coal mining in US
 
 ![President Trump speaks next to coal industry workers, on the day he signs energy-related executive orders at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799521_1_20250409073316.jpg&q=90)
@@ -1411,29 +1435,5 @@ Carlos Alcaraz said pressure to reclaim the world number one ranking from the su
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799227-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799227-20250407.htm)
-
----
-
-# Vivian Cheung takes over reins at Airport Authority
-
-![Vivian Cheung has been appointed as the Airport Authority's CEO. Photo courtesy of the Airport Authority.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799220_1_20250407120401.jpg&q=90)
-  
-
-The Airport Authority Hong Kong board has appointed Vivian Cheung as its chief executive.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm)
 
 ---
