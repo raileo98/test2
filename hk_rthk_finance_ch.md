@@ -1,3 +1,27 @@
+# 美股初段急升逾3%
+
+![紐約股市初段急升，美股3大主要指數升逾3%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799483_1_20250408213548.jpg&q=90)
+  
+
+紐約股市初段急升，美股3大主要指數升逾3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799483-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799483-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799483-20250408.htm)
+
+---
+
 # 東方海外上季總收入按年升近17%
 
 ![東方海外上季總收入23.14億美元，按年增長16.8%，所有航線的收入都錄得增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799472_1_20250408192403.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799348-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799348-20250408.htm)
-
----
-
-# 中央匯金：續發揮好資本市場穩定器作用　該出手時將果斷出手
-
-![匯金稱將繼續發揮好資本市場「穩定器」作用，有效平抑市場異常波動，該出手時將果斷出手。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799349_1_20250408085647.jpg&q=90)
-  
-
-中央匯金今早開市前表示，將繼續發揮好資本市場「穩定器」作用，有效平抑市場異常波動，該出手時將果斷出手，又指將堅定增持各類市場風格的交易所買賣基金（ETF），加大增持力度，均衡增持結構，又指具有充分信心、足夠能力，堅決維護資本市場平穩運行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799349-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799349-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799349-20250408.htm)
 
 ---
