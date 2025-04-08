@@ -1,5 +1,6 @@
 # 特朗普與韓悳洙通電話　討論安全及關稅等議題
 
+![韓悳洙與美方討論加強韓美同盟關係等議題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799494_1_20250408234536.jpg&q=90)
   
 
 美國總統特朗普與代理南韓總統職務的總理韓悳洙通電話。
