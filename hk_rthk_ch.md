@@ -1,3 +1,27 @@
+# 東方海外上季總收入按年升近17%
+
+![東方海外上季總收入23.14億美元，按年增長16.8%，所有航線的收入都錄得增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799472_1_20250408192403.jpg&q=90)
+  
+
+東方海外首季總收入23.14億美元，按年增長16.8%，所有航線的收入都錄得增長，亞洲區內/澳亞航線收入升逾24%，升幅最大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799472-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799472-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799472-20250408.htm)
+
+---
+
 # 李強：中歐應加強溝通協調　維護自由開放貿易投資
 
 ![國務院總理李強說中歐應加強溝通協調、擴大相互開放，維護自由開放的貿易投資。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799470_1_20250408191709.jpg&q=90)
