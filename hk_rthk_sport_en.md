@@ -1,3 +1,27 @@
+# Florida wins 3rd NCAA title, denies Houston its 1st
+
+![The Florida Gators react after defeating the Houston Cougars in the national championship game of the Final Four of the 2025 NCAA Tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799390_1_20250408115243.jpg&q=80)
+  
+
+Florida and Walter Clayton somehow overcame Houston’s tough defence on Monday night to carve out a 65-63 victory in an NCAA title-game thriller which was not decided until Clayton’s own D stopped the Cougars from taking a game-winning shot at the buzzer.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799390-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799390-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799390-20250408.htm)
+
+---
+
 # Medvedev battles past Khachanov at Monte Carlo
 
 ![Daniil Medvedev advanced to the second round of the Monte Carlo Masters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799341_1_20250408081254.jpg&q=90)
@@ -1427,30 +1451,5 @@ Carlos Rodon pitched effectively into the sixth inning and was backed by two ear
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm)
-
----
-
-# Djokovic, teenager Mensik make Miami Open semi-finals
-
-![Novak Djokovic became the oldest player to make an ATP Masters 1000 semi-final. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797810_1_20250328102853.jpg&q=90)
-![Czech teenager Jakub Mensik also made it to the last four at the Miami Open. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797810_2_20250328102853.jpg&q=90)
-  
-
-Novak Djokovic turned on the style to take his place in the last four of the Miami Open with an impressive 6-3, 7-6 win over American Sebastian Korda, becoming the oldest man to reach a Masters 1000 semi-final.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm)
 
 ---

@@ -1,3 +1,171 @@
+# Man gets seven years over 2019 Yuen Long riot
+
+![A District Court judge said Wong Chi-wing took part in an indiscriminate attack on others in Yuen Long in 2019. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799406_1_20250408125602.jpg&q=90)
+  
+
+A transport worker convicted of rioting and wounding with intent in Yuen Long in 2019 was jailed for seven years on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799406-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799406-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799406-20250408.htm)
+
+---
+
+# YouTuber's flash visit 'shows HK is fun'
+
+![Rosanna Law says anyone can have fun in Hong Kong as long as they follow the rules. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799398_1_20250408122906.jpg&q=80)
+  
+
+YouTube streamer IShowSpeed's flash visit to the city last week shows that Hong Kong is safe, fun and open, according to Secretary for Culture, Sports and Tourism Rosanna Law.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm)
+
+---
+
+# Beijing prepared for US tariff retaliation: Regina Ip
+
+![Lawmaker Regina Ip said the SAR government should ready policies in case of a global recession. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799392_1_20250408122043.jpg&q=90)
+  
+
+The central government is well prepared and has a broad arsenal to respond to any further tariff escalation by US President Donald Trump, according to Executive Council convenor Regina Ip.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799392-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799392-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799392-20250408.htm)
+
+---
+
+# CE vows support for influencers after IShowSpeed visit
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799389_1_20250408114853.jpg&q=90)
+  
+
+Chief Executive John Lee said on Tuesday Hong Kong will seize every opportunity to help social media influencers show the city to the world.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm)
+
+---
+
+# HK economist expects Fed to cut rates sooner
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799386_1_20250408113645.jpg&q=85)
+  
+
+An economist said on Tuesday he expects the US Federal Reserve to cut rates sooner at anytime in a bid to rescue the economy.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm)
+
+---
+
+# MTR boosts services for Coldplay concerts
+
+![The MTR says passengers are advised to pay attention to station announcements and follow directional signage for guidance. Photo: MTR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799388_1_20250408113840.jpg&q=80)
+  
+
+The MTR said it would enhance services on the Tuen Ma and East Rail lines this week to accommodate concertgoers attending Coldplay’s performances at Kai Tak Stadium.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm)
+
+---
+
+# 'Reckless' tariffs hurt global trade, says John Lee
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799378_1_20250408105347.jpg&q=75)
+  
+
+Chief Executive John Lee has hit out at the United States for slapping "reckless" tariffs on countries and places around the world, vowing to take steps to respond to the sweeping levies through deepening international cooperation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm)
+
+---
+
 # Chinese culture festival 'modernises tradition'
 
 !["Dongpo: Life in Poems" will be performed by the China Oriental Performing Arts Group. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799291_1_20250407215236.jpg&q=90)
@@ -1267,173 +1435,5 @@ Hong Kong, China snooker star Ng On-yee said a decision by the government last w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm)
-
----
-
-# Police bust cannabis farm, seize drugs worth HK$5m
-
-![Officers seized hundreds of cannabis plants in a raid in Ta Kwu Ling. Photo courtesy of Hong Kong Police.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798475_1_20250401170614.jpg&q=90)
-  
-
-Police have arrested two people after busting a cannabis production facility in Ta Kwu Ling.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm)
-
----
-
-# ESF proposes to raise tuition fees by 4.8 percent
-
-![The proposed ESF increase means parents would have to fork out HK$650 to HK$750 more a month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798469_1_20250401170058.jpg&q=90)
-  
-
-The English Schools Foundation (ESF) on Tuesday proposed to raise tuition fees by an average of 4.8 percent in the coming academic year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm)
-
----
-
-# Numbers may not fully reflect work of DC members: Govt
-
-![Alice Mak described the current district councils as having unprecedented transparency. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798466_1_20250401165907.jpg&q=90)
-  
-
-Home affairs minister Alice Mak said on Tuesday that the number of cases a district councillor handles in a year may not fully reflect the actual work done.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm)
-
----
-
-# DSE exams get underway
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798449_1_20250401152353.jpg&q=90)
-  
-
-Hong Kong's university entrance exams began on Tuesday, with some candidates arriving early to avoid potential issues with the electronic check-in system.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798449-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798449-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798449-20250401.htm)
-
----
-
-# SAR political groups speak out against US sanctions
-
-![Members of the DAB handed in petitions at the US consulate in Central. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798432_1_20250401131459.jpg&q=80)
-  
-
-Local political groups have denounced Washington's move to put six mainland and Hong Kong officials on its sanctions list.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm)
-
----
-
-# 'Schools welcome proposed NET scheme changes'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798428_1_20250401125448.jpg&q=90)
-  
-
-A school representative said on Tuesday that proposed changes to the Native-speaking English Teacher (NET) scheme gives headteachers more flexibility.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798428-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798428-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798428-20250401.htm)
-
----
-
-# US sanctions have 'no impact' on Paul Lam
-
-![Justice chief Paul Lam is among six mainland and Hong Kong officials placed on Washington's sanctions list. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798426_1_20250401124951.jpg&q=80)
-  
-
-Secretary for Justice Paul Lam has stressed sanctions imposed by the United States "had no impact on him" and didn't affect his work and life, saying the best way to respond is to "remain calm and collected."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm)
 
 ---

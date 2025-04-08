@@ -1,6 +1,54 @@
+# Any Trump bid to weaken greenback 'set to fail'
+
+![Donald Trump will find it extremely hard to get China and Europe to consent to a devaluation for the greenback after antagonising them with his tariffs' move. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799408_1_20250408135600.jpg&q=90)
+  
+
+Any US attempt to pull off a 1985 Plaza Accord-type coordinated depreciation of the dollar likely won't work as it would require the consent of China and Europe, Japan's former top currency diplomat Naoyuki Shinohara said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799408-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799408-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799408-20250408.htm)
+
+---
+
+# Hong Kong stocks bounce back at opening
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799371_1_20250408103918.jpg&q=75)
+  
+
+The Hang Seng Index gained 329.22 points, or 1.66 percent, to open at 20,157.52 points on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799371-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799371-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799371-20250408.htm)
+
+---
+
 # Tokyo's Nikkei up 5.8pc as US tariffs fuel volatility
 
-![The benchmark Nikkei 225 index was up 5.81 percent, or 1,809 points, in early trade on Tuesday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799360_1_20250408093028.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799360_1_20250408093028.jpg&q=80)
   
 
 Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after plunging 7.8 percent the previous day, as US tariffs fuel market volatility.
@@ -1388,53 +1436,5 @@ US President Donald Trump announced steep tariffs on auto imports Wednesday, in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm)
-
----
-
-# BYD aims to double overseas sales to 800K in 2025
-
-![BYD sold 417,204 units overseas in 2024 and expects to see "a substantial rise" in its market share in Britain. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797519_1_20250326165846.jpg&q=50)
-  
-
-Electric vehicle giant BYD aims to double its sales outside China to more than 800,000 cars in 2025 and will look to overcome tariffs by assembling cars locally, its chairman has told analysts on an earnings call.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm)
-
----
-
-# Hang Seng Index up 0.6 percent
-
-![Hong Kong battled to edge higher on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797516_1_20250326164807.jpg&q=70)
-  
-
-Lingering hopes that US president Donald Trump's planned tariff blitz next week will not be as painful as feared lifted most Asian markets on Wednesday, though uncertainty about Trump's policies and the US economy tempered optimism.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797516-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797516-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797516-20250326.htm)
 
 ---

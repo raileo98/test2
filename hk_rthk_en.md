@@ -1,3 +1,315 @@
+# Any Trump bid to weaken greenback 'set to fail'
+
+![Donald Trump will find it extremely hard to get China and Europe to consent to a devaluation for the greenback after antagonising them with his tariffs' move. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799408_1_20250408135600.jpg&q=90)
+  
+
+Any US attempt to pull off a 1985 Plaza Accord-type coordinated depreciation of the dollar likely won't work as it would require the consent of China and Europe, Japan's former top currency diplomat Naoyuki Shinohara said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799408-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799408-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799408-20250408.htm)
+
+---
+
+# Man gets seven years over 2019 Yuen Long riot
+
+![A District Court judge said Wong Chi-wing took part in an indiscriminate attack on others in Yuen Long in 2019. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799406_1_20250408125602.jpg&q=90)
+  
+
+A transport worker convicted of rioting and wounding with intent in Yuen Long in 2019 was jailed for seven years on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799406-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799406-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799406-20250408.htm)
+
+---
+
+# YouTuber's flash visit 'shows HK is fun'
+
+![Rosanna Law says anyone can have fun in Hong Kong as long as they follow the rules. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799398_1_20250408122906.jpg&q=80)
+  
+
+YouTube streamer IShowSpeed's flash visit to the city last week shows that Hong Kong is safe, fun and open, according to Secretary for Culture, Sports and Tourism Rosanna Law.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm)
+
+---
+
+# Beijing prepared for US tariff retaliation: Regina Ip
+
+![Lawmaker Regina Ip said the SAR government should ready policies in case of a global recession. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799392_1_20250408122043.jpg&q=90)
+  
+
+The central government is well prepared and has a broad arsenal to respond to any further tariff escalation by US President Donald Trump, according to Executive Council convenor Regina Ip.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799392-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799392-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799392-20250408.htm)
+
+---
+
+# CE vows support for influencers after IShowSpeed visit
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799389_1_20250408114853.jpg&q=90)
+  
+
+Chief Executive John Lee said on Tuesday Hong Kong will seize every opportunity to help social media influencers show the city to the world.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm)
+
+---
+
+# HK economist expects Fed to cut rates sooner
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799386_1_20250408113645.jpg&q=85)
+  
+
+An economist said on Tuesday he expects the US Federal Reserve to cut rates sooner at anytime in a bid to rescue the economy.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm)
+
+---
+
+# Florida wins 3rd NCAA title, denies Houston its 1st
+
+![The Florida Gators react after defeating the Houston Cougars in the national championship game of the Final Four of the 2025 NCAA Tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799390_1_20250408115243.jpg&q=80)
+  
+
+Florida and Walter Clayton somehow overcame Houston’s tough defence on Monday night to carve out a 65-63 victory in an NCAA title-game thriller which was not decided until Clayton’s own D stopped the Cougars from taking a game-winning shot at the buzzer.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799390-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799390-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799390-20250408.htm)
+
+---
+
+# MTR boosts services for Coldplay concerts
+
+![The MTR says passengers are advised to pay attention to station announcements and follow directional signage for guidance. Photo: MTR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799388_1_20250408113840.jpg&q=80)
+  
+
+The MTR said it would enhance services on the Tuen Ma and East Rail lines this week to accommodate concertgoers attending Coldplay’s performances at Kai Tak Stadium.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm)
+
+---
+
+# Kennedy gets teeth into ending US fluoridation
+
+![Robert F Kennedy says a task force of health experts will study the issue of fluoride in water and make new recommendations. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799385_1_20250408113219.jpg&q=90)
+  
+
+US Health Secretary Robert F Kennedy Jr said he plans to tell the Centers for Disease Control and Prevention to stop recommending fluoridation in communities nationwide.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799385-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799385-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799385-20250408.htm)
+
+---
+
+# World temps near record highs in March: scientists
+
+![The Copernicus Climate Change Service said Europe saw the hottest March ever recorded. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799381_1_20250408111344.jpg&q=85)
+  
+
+Global temperatures hovered at historic highs in March, Europe's climate monitor said on Tuesday, prolonging an extraordinary heat streak that has tested scientific expectations.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm)
+
+---
+
+# 'Reckless' tariffs hurt global trade, says John Lee
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799378_1_20250408105347.jpg&q=75)
+  
+
+Chief Executive John Lee has hit out at the United States for slapping "reckless" tariffs on countries and places around the world, vowing to take steps to respond to the sweeping levies through deepening international cooperation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm)
+
+---
+
+# Seoul confirms June 3 date for presidential elections
+
+![Opposition leader Lee Jae-myung is the frontrunner in opinion polls. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799377_1_20250408105202.jpg&q=90)
+  
+
+South Korea will hold a presidential election on June 3, the country's acting president said on Tuesday, after Seoul's former leader Yoon Suk-yeol was removed from office over a disastrous declaration of martial law.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799377-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799377-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799377-20250408.htm)
+
+---
+
+# Hong Kong stocks bounce back at opening
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799371_1_20250408103918.jpg&q=75)
+  
+
+The Hang Seng Index gained 329.22 points, or 1.66 percent, to open at 20,157.52 points on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799371-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799371-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799371-20250408.htm)
+
+---
+
 # US aid cuts a 'death sentence' for millions: UN
 
 ![The Trump administration has largely gutted USAID, the main US humanitarian assistance organisation. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799361_1_20250408093958.jpg&q=90)
@@ -24,7 +336,7 @@ The United States has ended emergency food aid for 14 countries, endangering the
 
 # Tokyo's Nikkei up 5.8pc as US tariffs fuel volatility
 
-![The benchmark Nikkei 225 index was up 5.81 percent, or 1,809 points, in early trade on Tuesday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799360_1_20250408093028.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799360_1_20250408093028.jpg&q=80)
   
 
 Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after plunging 7.8 percent the previous day, as US tariffs fuel market volatility.
@@ -120,7 +432,7 @@ JPMorgan Chase CEO Jamie Dimon warned on Monday that US President Donald Trump's
 
 # Philippines volcano sends ash into the air
 
-![Videos posted on social media show a wide, billowing plume of smoke coming from the Kanlaon Volcano. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799343_1_20250408083655.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799343_1_20250408083655.jpg&q=90)
   
 
 A volcano in the central Philippines erupted early on Tuesday morning, sending a plume of ash 4,000 metres into the sky and prompting calls for local school cancellations.
@@ -264,7 +576,7 @@ Wall Street stocks finished mostly lower on Monday following a volatile session 
 
 # Trump threatens further 50pc tariffs on China
 
-![Last week, Trump put an additional 34 percent tariff on Chinese goods, on top of two rounds of 10 percent tariffs already declared in February and March. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799320_1_20250408012952.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799320_1_20250408012952.jpg&q=90)
   
 
 US President Donald Trump on Monday threatened huge additional tariffs on imports from China, raising the possibility of further escalation in a trade war that has already wiped trillions of dollars from global markets.
@@ -1123,317 +1435,5 @@ France's Marine Le Pen on Sunday invoked Martin Luther King's struggle for civil
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm)
-
----
-
-# Foreigners run in Pyongyang Marathon, first in 6 years
-
-![Participants take part in the 31st Pyongyang International Marathon in Pyongyang. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799137_1_20250406204551.jpg&q=85)
-  
-
-North Korea said on Sunday that foreign elite runners arrived to take part in the first Pyongyang Marathon in six years.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799137-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799137-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799137-20250406.htm)
-
----
-
-# Recovering Pope makes surprise appearance in Vatican
-
-![Pope Francis gestures as he appears for the first time since his return to the Vatican, in Saint Peter Square, at the Vatican. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799132_1_20250406183756.jpg&q=90)
-  
-
-Pope Francis, who is recovering after a serious case of pneumonia, made a surprise public appearance on Sunday as he mingled with crowds at the Vatican just two weeks after leaving hospital.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799132-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799132-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799132-20250406.htm)
-
----
-
-# UK says Israel's detention of their MPs 'unacceptable'
-
-![Demonstrators are seen while thousands of pro-Palestine protestors gather in front of the U.S. Capitol in Washington DC, on April 5, 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799127_1_20250406174947.jpg&q=90)
-  
-
-Britain's Foreign Secretary David Lammy said it was "unacceptable" and deeply concerning that Israel had detained two UK lawmakers and denied them entry.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799127-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799127-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799127-20250406.htm)
-
----
-
-# Rain complicates recovery in quake-hit Myanmar
-
-![Rescue workers stand on the street next to a collapsed building in Mandalay. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799123_1_20250406170802.jpg&q=85)
-  
-
-Rain was compounding misery and presenting new hurdles for relief efforts on Sunday in Myanmar, where state media reported the death toll from a devastating earthquake had risen to nearly 3,500 people.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799123-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799123-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799123-20250406.htm)
-
----
-
-# Coldplay fans urged to plan journeys to Kai Tak
-
-![The government said there will be special transport arrangements for the Coldplay concerts this week. Image from Coldplay's social media.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799115_1_20250406151732.jpg&q=90)
-  
-
-The Transport Department on Sunday called on people coming to Hong Kong to see the band Coldplay this week to plan their journeys in advance.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm)
-
----
-
-# Red Bull's Verstappen wins Japanese GP from Norris
-
-![Max Verstappen celebrates the win on the podium at Suzuka, Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799114_1_20250406151250.jpg&q=90)
-  
-
-Four-time world champion Max Verstappen led from pole to chequered flag to win the Japanese Grand Prix on Sunday, his first victory of the 2025 season, with McLaren's Lando Norris second.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799114-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799114-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799114-20250406.htm)
-
----
-
-# A&E fee changes boost medical protection: minister
-
-![Lo Chung-mau says the changes can be likened to the government giving everyone in Hong Kong free medical insurance. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799110_1_20250406140106.jpg&q=90)
-  
-
-Changes to fees for treatment at Accident and Emergency departments will provide the public with better medical protection, Health Secretary Lo Chung-mau said on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799110-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799110-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799110-20250406.htm)
-
----
-
-# HK will calmly ride out tariffs storm, says FS
-
-![Paul Chan said the SAR has become less reliant on the United States when it comes to exports. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799108_1_20250406125334.jpg&q=70)
-  
-
-Hong Kong will calmly face any problems caused by US tariffs with the government providing support to local firms, Financial Secretary Paul Chan said on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799108-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799108-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799108-20250406.htm)
-
----
-
-# 'Packaging reduction charter better than legislation'
-
-![The Environmental Protection Department launched a 'Packaging Reduction Charter' on March 31. Photo courtesy of Information Services Department.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799098_1_20250406112620.jpg&q=90)
-  
-
-Environment minister Tse Chin-wan has rejected the idea of legislation to force businesses to cut down on their use of packaging, saying many are willing to sign up to the cause voluntarily.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799098-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799098-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799098-20250406.htm)
-
----
-
-# Romantic Warrior finishes second in top Dubai race
-
-![Romantic Warrior (no.8) came agonisingly close to winning the Dubai Turf. Photo courtesy of the Hong Kong Jockey Club.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799101_1_20250406120651.jpg&q=90)
-  
-
-Hong Kong racing royalty Romantic Warrior came up just short at the Dubai Turf, as trainer Danny Shum's champion was edged by the slimmest of margins by Soul Rush from Japan in the early hours of Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799101-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799101-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799101-20250406.htm)
-
----
-
-# 'AI guidelines push to help prevent data leaks'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799103_1_20250406121958.jpg&q=85)
-  
-
-Hong Kong firms making use of generative artificial intelligence may run the risk of data breaches, Privacy Commissioner Ada Chung warned on Sunday, as she explained how new advice issued by her office will help mitigate the dangers.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799103-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799103-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799103-20250406.htm)
-
----
-
-# Jaguar Land Rover to pause UK car shipments to US
-
-![Britain's car industry, which employs 200,000 people directly, is highly exposed to the new US tariffs. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799089_1_20250406095114.jpg&q=90)
-  
-
-Jaguar Land Rover (JLR) will pause shipments of its UK-made cars to the United States for a month, it said on Saturday, as it considers how to mitigate the cost of President Donald Trump's 25 percent tariff.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799089-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799089-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799089-20250406.htm)
-
----
-
-# Trump tells Americans to 'hang tough'
-
-![Alarm about the fallout from US President Donald Trump's April 2 tariff announcement has gripped financial markets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799086_1_20250406094021.jpg&q=90)
-  
-
-Donald Trump told Americans on Saturday to “hang tough” in the face of economic turmoil caused by sweeping tariffs introduced on April 2.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm)
 
 ---

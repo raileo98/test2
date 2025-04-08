@@ -1,3 +1,75 @@
+# Kennedy gets teeth into ending US fluoridation
+
+![Robert F Kennedy says a task force of health experts will study the issue of fluoride in water and make new recommendations. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799385_1_20250408113219.jpg&q=90)
+  
+
+US Health Secretary Robert F Kennedy Jr said he plans to tell the Centers for Disease Control and Prevention to stop recommending fluoridation in communities nationwide.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799385-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799385-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799385-20250408.htm)
+
+---
+
+# World temps near record highs in March: scientists
+
+![The Copernicus Climate Change Service said Europe saw the hottest March ever recorded. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799381_1_20250408111344.jpg&q=85)
+  
+
+Global temperatures hovered at historic highs in March, Europe's climate monitor said on Tuesday, prolonging an extraordinary heat streak that has tested scientific expectations.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm)
+
+---
+
+# Seoul confirms June 3 date for presidential elections
+
+![Opposition leader Lee Jae-myung is the frontrunner in opinion polls. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799377_1_20250408105202.jpg&q=90)
+  
+
+South Korea will hold a presidential election on June 3, the country's acting president said on Tuesday, after Seoul's former leader Yoon Suk-yeol was removed from office over a disastrous declaration of martial law.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799377-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799377-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799377-20250408.htm)
+
+---
+
 # US aid cuts a 'death sentence' for millions: UN
 
 ![The Trump administration has largely gutted USAID, the main US humanitarian assistance organisation. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799361_1_20250408093958.jpg&q=90)
@@ -24,7 +96,7 @@ The United States has ended emergency food aid for 14 countries, endangering the
 
 # Tokyo's Nikkei up 5.8pc as US tariffs fuel volatility
 
-![The benchmark Nikkei 225 index was up 5.81 percent, or 1,809 points, in early trade on Tuesday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799360_1_20250408093028.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799360_1_20250408093028.jpg&q=80)
   
 
 Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after plunging 7.8 percent the previous day, as US tariffs fuel market volatility.
@@ -48,7 +120,7 @@ Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after p
 
 # Philippines volcano sends ash into the air
 
-![Videos posted on social media show a wide, billowing plume of smoke coming from the Kanlaon Volcano. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799343_1_20250408083655.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799343_1_20250408083655.jpg&q=90)
   
 
 A volcano in the central Philippines erupted early on Tuesday morning, sending a plume of ash 4,000 metres into the sky and prompting calls for local school cancellations.
@@ -120,7 +192,7 @@ The US Supreme Court handed Donald Trump a victory on Monday by letting him use 
 
 # Trump threatens further 50pc tariffs on China
 
-![Last week, Trump put an additional 34 percent tariff on Chinese goods, on top of two rounds of 10 percent tariffs already declared in February and March. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799320_1_20250408012952.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799320_1_20250408012952.jpg&q=90)
   
 
 US President Donald Trump on Monday threatened huge additional tariffs on imports from China, raising the possibility of further escalation in a trade war that has already wiped trillions of dollars from global markets.
@@ -1363,77 +1435,5 @@ Sydney beachfront properties were flooded and coastal infrastructure damaged aft
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm)
-
----
-
-# Trump-backed candidate loses Wisconsin court election
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798589_1_20250402120941.jpg&q=90)
-  
-
-The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenger endorsed by US President Donald Trump and billionaire Elon Musk, touting her victory as a win against powerful interests and cementing a liberal majority for at least three more years.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm)
-
----
-
-# US senator makes record books with 25-hour talk-a-thon
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798571_1_20250402102752.jpg&q=90)
-  
-
-A Democratic US lawmaker shattered a record for the longest speech in Senate history, staying on his feet for more than 25 hours to deliver a fiery protest against President Donald Trump's "unconstitutional" actions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm)
-
----
-
-# Mass layoffs at major US health agencies
-
-![US Health Secretary Robert F Kennedy Jr said "Americans are getting sicker every year". File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798553_1_20250402090430.jpg&q=90)
-  
-
-Mass layoffs began at the major US health agencies on Tuesday as the Trump administration embarks on a sweeping and scientifically-contested restructuring that will cut 10,000 jobs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm)
 
 ---

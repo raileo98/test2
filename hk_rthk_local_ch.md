@@ -1,6 +1,247 @@
-# 李家超：特區救援隊表現無私　期待完成任務後安全返港
+# 恒指下午初段升近2%
+
+![恒生指數較早時報20188點，升359點，升幅1.81%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799407_1_20250408130342.jpg&q=75)
+  
+
+港股下午初段繼續上升。
 
   
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799407-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799407-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799407-20250408.htm)
+
+---
+
+# 入境處稱特區護照可為港人提供海外利益安全保障
+
+  
+
+今年4月15日是「全民國家安全教育日」十周年，六支紀律部隊和兩個輔助隊伍先後發布影片，介紹部門具意義的國家安全物品。今日由入境處職員介紹特區護照，指出外旅行攜帶印有國徽的特區護照，可為港人提供海外利益安全保障。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799403-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799403-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799403-20250408.htm)
+
+---
+
+# 劉達邦指美國再加徵關稅衝擊巨大　預期很多港廠都難以支撐
+
+  
+
+行政長官李家超說，美國對多個貿易夥伴徵收所謂對等關稅，做法霸凌野蠻，香港除了面對全球風險，在轉口貿易和物流業會面對壓力，對外貿易的企業尤其是中小企以及跨境電商，短期內無可避免受到影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm)
+
+---
+
+# 公社科題目涉及低碳出行　中國對外援助及香港多元文化
+
+  
+
+文憑試公民與社會發展科今日開考。成績繼續分為「達標」和「不達標」，有約4萬8千人報考。題目涉及低碳出行與香港人的運動習慣、中國的對外援助與國際影響力、香港社會的多元文化特徵。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799401-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799401-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799401-20250408.htm)
+
+---
+
+# 李家超：爭取機會宣傳香港　羅淑佩：Speed訪港顯示香港安全
+
+![美國網紅 IShowSpeed日前來港及進行直播，吸引不少市民圍觀拍攝。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799397_1_20250408130235.jpg&q=90)
+  
+
+美國網紅 IShowSpeed日前來港及進行直播，吸引不少市民圍觀拍攝。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799397-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799397-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799397-20250408.htm)
+
+---
+
+# 李家超：美濫施關稅影響全球不同國家和地區　香港人可克服挑戰
+
+![李家超表示，美國濫施關稅影響全球不同國家和地區，破壞世界經貿秩序，為世界帶來極大風險和不穩定性。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799394_1_20250408130211.jpg&q=90)
+  
+
+行政長官李家超表示，美國濫施關稅影響全球不同國家和地區，破壞世界經貿秩序，為世界帶來極大風險和不穩定性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799394-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799394-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799394-20250408.htm)
+
+---
+
+# 元朗721事件原脫罪被告　重審被裁定罪成判囚7年
+
+![法官上星期裁定王志榮暴動及蓄意傷人兩項罪名成立，今早在區域法院判處監禁7年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799379_1_20250408105731.jpg&q=90)
+  
+
+2019年元朗721事件中，報稱貨車司機的60歲被告王志榮暴動及蓄意傷人罪脫，律政司不服其後提出上訴並得直，上訴庭去年發還案件予原審法官葉佐文。法官上星期裁定王志榮暴動及蓄意傷人兩項罪名成立，今早在區域法院判處監禁7年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799379-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799379-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799379-20250408.htm)
+
+---
+
+# 回應長和擬售巴拿馬港口　李家超稱交易須合法合規
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799376_1_20250408112823.jpg&q=75)
+  
+
+行政長官李家超出行政會議前，再度回應長和早前計劃出售巴拿馬港口資產事件，並重申三點看法，指出社會就事件有很多議論，反映對事件的關切，而這些關切值得重視。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm)
+
+---
+
+# 李家超強烈譴責美國歪理霸凌制裁　每次制裁只會更堅定當局信心
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799375_1_20250408110409.jpg&q=90)
+  
+
+美國早前宣布制裁包括律政司司長林定國等6名特區人員，行政長官李家超對於美國以歪理霸凌制裁相關官員，表示強烈譴責，嗤之以鼻，他認為，美方的行為是想恫嚇特區維護國家安全的人員，肆意干預香港事務和中國內政，屬違反國際法及國際慣例，再次顯示美國霸權主義下的野蠻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm)
+
+---
+
+# 李家超：爭取機會為網紅提供可行支援　令世界各地認識香港
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799369_1_20250408104541.jpg&q=85)
+  
+
+美國網紅 IShowSpeed日前來港，行政長官李家超表示，很關注Speed來香港進行直播，對方有很多「粉絲」，可以利用任何機會去宣傳香港，他相信大家都很重視。旅發局曾經聯絡Speed的安排人，表示會提供任何支援，Speed方面事後沒有找旅發局，亦沒有要求政府做任何事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm)
+
+---
+
+# 李家超：特區救援隊表現無私　期待完成任務後安全返港
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799368_1_20250408102616.jpg&q=90)
+  
+
+特區政府救援隊正在緬甸地震災區協助搜救，行政長官李家超說，對於救援隊的專業救援工作引以為傲，隊伍聯同中國救援隊成功救出受困災民感到鼓舞。
+
   
 
 
@@ -20,6 +261,7 @@
 
 # 李家超：加快融入國家發展大局　與更多國家簽訂自貿協定
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799367_1_20250408102452.jpg&q=90)
   
 
 行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
@@ -43,6 +285,7 @@
 
 # 陳國基稱將引導市民特別是年輕一代深入認識香港抗戰歷史
 
+![陳國基昨日下午聯同「愛國主義教育工作小組」成員到沙頭角烏蛟騰，實地考察其中一條沙頭角抗戰文物徑。（陳國基社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799366_1_20250408102413.jpg&q=40)
   
 
 今年是抗戰勝利80周年，特區政府將舉辦一系列紀念活動。政務司司長陳國基昨日下午聯同「愛國主義教育工作小組」成員到沙頭角烏蛟騰，實地考察其中一條沙頭角抗戰文物徑。
@@ -66,9 +309,10 @@
 
 # 李家超：美國霸凌行為濫施關稅　破壞世界經貿秩序
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799365_1_20250408102325.jpg&q=90)
   
 
-行政長官李家超表示，上星期美國宣布對多個貿易夥伴徵收所謂「對等關稅」，其中向香港產品加徵三成四關稅，連同早前宣布的兩成關稅，累計徵收五成四關稅。他批評美國不再奉行自由貿易，破壞國際共同建立的世界貿易規則，做法霸凌野蠻。
+行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，其中向香港產品加徵三成四關稅，連同早前宣布的兩成關稅、累計徵收五成四關稅。李家超說，香港除了面對全球風險，在轉口貿易和物流業會面對壓力，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
 
   
 
@@ -89,6 +333,7 @@
 
 # 崔定邦稱Coldplay有助帶動旅客訪港　交通安排應無問題
 
+![崔定邦說，今次Coldplay演唱會，絕對有助帶動不同地區的旅客訪港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799363_1_20250408102153.jpg&q=80)
   
 
 啟德體育園主場館首次舉辦大型商業演唱會，英國樂隊Coldplay今晚首場演出。旅遊業促進會總幹事崔定邦說，從七欖賽事成功舉辦，到今次Coldplay的表演，都反映本港舉辦大型盛事活動，絕對有助帶動不同地區的旅客訪港。
@@ -112,6 +357,7 @@
 
 # 莊太量料美國或加快減息步伐　又稱特朗普害怕中國反制
 
+![莊太量估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799357_1_20250408102235.jpg&q=85)
   
 
 美國引發的貿易戰震盪全球股市，清明節長周末過後，港股單日跌超過3000點，創歷來最大點數跌幅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量在本台節目《千禧年代》說，估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。他估計美國減息的步伐可能會加快，反而通脹問題不會是美國目前最關注的情況，因此應留意未來聯儲局的動向。
@@ -183,6 +429,7 @@
 
 # 文憑試公民與社會發展科開考　有考生憂今年題目較難已多留意時事
 
+![文憑試公民與社會發展科開考，有考生表示，去年的題目簡單，擔心今年的題目會相對較難。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799350_1_20250408102040.jpg&q=80)
   
 
 文憑試公民與社會發展科今日開考，成績只分「達標」和「不達標」。有約4萬8千人報考。
@@ -1044,12 +1291,12 @@
 
 ---
 
-# 男子攜私煙抵港判囚7個月5日　海關稱判刑具阻嚇作用
+# 承認提供傀儡戶口洗黑錢　控方申請加刑兩男分囚35及24個月
 
-![海關對判刑表示歡迎，認為具相當阻嚇作用，充分反映罪行的嚴重性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799229_1_20250407131242.jpg&q=80)
+![警方表示，會繼續與律政司研究，就適當的案件向法庭申請加刑，以增加阻嚇性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799229_3_20250408122124.jpg&q=90)
   
 
-一名入境男子因進口未完稅香煙及未有向海關人員申報，違反《應課稅品條例》，以及進口另類吸煙產品，違反《進出口條例》，日前在西九龍裁判法院被判監禁7個月零5日。海關對判刑表示歡迎，認為具相當阻嚇作用，充分反映罪行的嚴重性。
+2015年至2022年期間，18名巿民墮入「網上情緣」、「猜猜我是誰」及「低息貸款」騙案，警方分別拘捕持有「傀儡戶口」的兩名男子，兩人協助騙徒清洗共約970萬元的犯罪得益，兩人在區域裁判法院及西九龍裁判法院承認一項洗黑錢罪，基於同類案件愈趨嚴重，控方向法庭申請加刑，最終兩人分別判囚35個月及24個月。
 
   
 
@@ -1140,12 +1387,12 @@
 
 ---
 
-# 工程公司負責人因維修工程糾紛涉「起底」客戶　被私隱公署拘捕
+# 塗鴉牆壁捲閘及車輛　有前科男子被判社會服務令及賠償
 
-![男子涉嫌在未經客戶的同意下披露她的個人資料，違反《個人資料（私隱）條例》規定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799219_1_20250407121141.jpg&q=80)
+![裁判官指被告在當眼處塗鴉是想表現自己，勸喻被告要用合法的方式表現藝術行為。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799219_2_20250408113016.jpg&q=90)
   
 
-私隱專員公署在新界拘捕一名61歲中國籍男子，涉嫌在未經客戶的同意下披露她的個人資料，違反《個人資料（私隱）條例》規定，被捕人士獲准保釋。
+一名曾於郵箱、交通燈箱及垃圾桶等物件塗鴉的男子，上月分別向三間公司的牆壁、捲閘及輕型貨車噴油漆塗鴉，早前承認3項刑事損壞罪，西九龍裁判法院裁判官余俊翔今日判刑，指被告在當眼處塗鴉是想表現自己，勸喻被告要用合法的方式表現藝術行為，判被告80小時社會服務令及17000元賠償令。
 
   
 
@@ -1185,246 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799218-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799218-20250407.htm)
-
----
-
-# 消防及救護學院設國家安全教育資源中心　設主題消防車供「打卡」
-
-![消防處在新一集影片中，介紹位於將軍澳百勝角消防及救護學院內的國家安全教育暨資源中心，中心內有虛擬的國家安全主題消防車供參觀者「打卡」。（消防處片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799212_1_20250407114534.jpg&q=90)
-  
-
-本月15日是全民國家安全教育日，6支紀律部隊和兩個輔助隊伍由昨日起一連9日，發布影片介紹部門具意義的國家安全物品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799212-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799212-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799212-20250407.htm)
-
----
-
-# 航班上今起不能用外置充電器　乘客稱影響不大上機前會為手機充電
-
-![今天起乘客不得在航班上使用外置充電器為其他便攜式電子裝置充電、不得為外置充電器充電、亦不得把外置充電器放置於行李架上。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799211_1_20250407113540.jpg&q=90)
-  
-
-由今天起，飛機乘客不得在航班上使用外置充電器為其他便攜式電子裝置充電、不得為外置充電器充電、亦不得把外置充電器放置於行李架上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799211-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799211-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799211-20250407.htm)
-
----
-
-# 加強大眾對國安20個重點領域意識　周一鳴稱國安法非洪水猛獸
-
-![周一鳴說，有人嘗試污衊本港國安法並認為不應立法，猶如「把家中門窗拆掉」，會繼續危害本港安全。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799206_1_20250407113511.jpg&q=90)
-  
-
-警務處處長周一鳴接受報章訪問表示，國安法與其他法例無分別，跟兇殺同屬嚴重罪行，只是國安法屬「重中之重」。由於大多市民的認知停留於調查工作，日後要加強大眾對國安20個重點領域的意識，例如經濟安全及網絡安全。對於剛卸任警務處處長的蕭澤頤被美國制裁，他強調對此「嗤之以鼻」，日後會繼續加強情報蒐集及主導工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799206-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799206-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799206-20250407.htm)
-
----
-
-# 張李佳蕙獲委任為機管局新任行政總裁　任期今日起生效
-
-![機管局新任行政總裁張李佳蕙的3年任期今日起生效。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799205_1_20250407113440.jpg&q=90)
-  
-
-機管局新任行政總裁張李佳蕙的3年任期今日起生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799205-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799205-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799205-20250407.htm)
-
----
-
-# 陳浩濂：金融市場瞬息萬變　政府與監管機構進行跨市場全天候監管
-
-![陳浩濂說，金融市場受全球不同不穩定因素影響，但香港金融基礎十分穩健，流動性充足，一直能公平有序運作。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799201_1_20250407133213.jpg&q=90)
-  
-
-美國總統特朗普的關稅措施引發環球股市下挫，財經事務及庫務局副局長陳浩濂表示，金融市場瞬息萬變，在維護金融安全方面，政府與金融監管機構一直緊密合作，對貨幣、股票、期貨、衍生工具等市場進行跨市場、聯動式和全天候監管。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799201-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799201-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799201-20250407.htm)
-
----
-
-# 陳茂波稱致力推動Web3.0發展　確保市場完整性不扼殺創新
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799199_1_20250407110403.jpg&q=85)
-  
-
-財政司司長陳茂波表示，香港致力推動第三代互聯網「Web3.0」發展，因Web3.0背後的區塊鏈技術，具備安全、透明和低成本的特點，特區政府一直透過平衡和有利於創新的監管方式，尋求為市場參與者維持公平的競爭環境。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799199-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799199-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799199-20250407.htm)
-
----
-
-# 周一鳴談理大行動籲勿標籤被捕年輕人　稱幕後推手最「惡毒」
-
-![周一鳴說，當時每日都接觸到被捕年輕人，發現他們多受朋輩影響，缺乏清晰動機，並強調事件的「幕後推手」最「惡毒」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799193_1_20250407104240.jpg&q=80)
-  
-
-日前履新的警務處處長周一鳴接受報章訪問，回顧2019年曾擔任總指揮，處理理大校園行動。他說，當時每日都接觸到被捕年輕人，發現他們多受朋輩影響，缺乏清晰動機，他叮囑團隊小心處理，避免標籤這些年輕人，並強調事件的「幕後推手」最「惡毒」。對於成功處理理大事件，周一鳴認為是整個團隊的功勞，當時首要考慮的是被困年輕人的身心健康而非拘捕與否。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799193-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799193-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799193-20250407.htm)
-
----
-
-# 林定國稱國家安全教育應持續每天都要做　制裁不影響工作決心
-
-![林定國表示，雖然現在擁有很安定的環境，都不能忘記國家安全的風險或會存在。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799190_1_20250407102518.jpg&q=90)
-  
-
-本月15日是第10屆「全民國家安全教育日」，律政司司長林定國表示，國家安全教育不應集中在某些特別的日子，他舉例說每年2月14日是情人節，說「難道那天你才對老婆好 」，認為應該持續每天都要做，又說這是他在法律方面推動國家安全教育的理念。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm)
-
----
-
-# 港股急跌　恒指競價時段報20730點　跌2119點
-
-![恒指在競價時段報20730點，跌2119點，跌幅9.28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799182_1_20250407092626.jpg&q=75)
-  
-
-美國對貿易夥伴徵收對等關稅，亞太區主要股市急跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799182-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799182-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799182-20250407.htm)
-
----
-
-# 內地民間「村晚」盛行    發起人稱可振興鄉村文旅經濟
-
-![廣東恩平今年初舉辦了一場由當地居民及大學生籌辦的鄉村文藝晚會「村晚」。（受訪者社交平台截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799179_1_20250407085829.jpg&q=90)
-![鄭偉庭（左）說，村晚讓更多人認識他的文創作品；李勁新（中）認為可好好利用鄉村自然資源發展休閒旅遊；劉景峰（右）說，民間村晚有助加強村民凝聚力。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799179_3_20250407091014.jpg&q=90)
-  
-
-廣東當局表示，今年是廣東「百縣千鎮萬村高質量發展工程」、簡稱「百千萬工程」的重要節點，要全面推進鄉村振興，包括推廣文旅、辦好「廣東村晚」、即鄉村文藝晚會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm)
 
 ---

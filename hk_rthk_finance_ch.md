@@ -1,5 +1,461 @@
+# 韓股靠穩收市
+
+![首爾綜合指數收市報2334點，升6點，升幅0.26%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799414_1_20250408144219.jpg&q=90)
+  
+
+韓股靠穩收市。首爾綜合指數收市報2334點，升6點，升幅0.26%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799414-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799414-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799414-20250408.htm)
+
+---
+
+# 日股大幅反彈6%收市
+
+![日經指數收報33012點，升1876點，升幅6.03%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799413_1_20250408144057.jpg&q=90)
+  
+
+日股大幅反彈6%收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799413-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799413-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799413-20250408.htm)
+
+---
+
+# 外交部強烈譴責美國威脅升級對華關稅　批評是經濟暴力
+
+![外交部發言人林劍強烈譴責美國威脅升級對華關稅，批評是典型單邊主義、保護主義、經濟暴力。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799411_1_20250408143713.jpg&q=90)
+  
+
+美國總統特朗普威脅升級對華關稅。在北京，外交部發言人林劍表示，美方濫施關稅嚴重侵犯各國的正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球的經濟秩序穩定，是典型的單邊主義、保護主義、經濟暴力，遭到國際社會普遍反對。中方對此強烈譴責，堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm)
+
+---
+
+# 國資委：全力支持推動央企不斷加大增持回購力度
+
+![國務院國資委表示，將全力支持推動央企及其控股上市公司，不斷加大增持回購力度，持續鞏固市場對上市公司的信心。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799412_1_20250408143730.jpg&q=90)
+  
+
+國務院國資委表示，將全力支持推動央企及其控股上市公司主動作為，不斷加大增持回購力度，切實維護全體股東權益，持續鞏固市場對上市公司的信心，努力提升公司價值，充分彰顯央企的責任擔當。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799412-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799412-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799412-20250408.htm)
+
+---
+
+# 台股收市跌4%
+
+![台灣加權指數收市報18459點，跌772點，跌幅4.02%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799410_1_20250408142541.jpg&q=90)
+  
+
+台灣股市下跌。加權指數收市報18459點，跌772點，跌幅4.02%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799410-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799410-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799410-20250408.htm)
+
+---
+
+# 恒指下午初段升近2%
+
+![恒生指數較早時報20188點，升359點，升幅1.81%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799407_1_20250408130342.jpg&q=75)
+  
+
+港股下午初段繼續上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799407-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799407-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799407-20250408.htm)
+
+---
+
+# 中移動：將擇機進行回購
+
+![中移動稱將擇機進行回購。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799405_1_20250408125354.jpg&q=75)
+  
+
+中移動表示，將在綜合考慮資本市場整體情況、符合監管規則條件下，在有利全體股東權益保護時，擇機進行回購。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799405-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799405-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799405-20250408.htm)
+
+---
+
+# 分析稱央企及國有企業入市有助提振市場信心
+
+![中煤能源等公布股份增持或回購計劃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799404_1_20250408125104.jpg&q=90)
+  
+
+中央匯金在內地及本港股市開市前發文，將繼續發揮好資本市場「穩定器」作用，該出手時將果斷出手，又指充分認可當前A股配置價值，將堅定增持各類市場風格的交易所買賣基金。人民銀行隨即表示，堅定支持中央匯金公司，並會在必要時提供充足再貸款支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799404-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799404-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799404-20250408.htm)
+
+---
+
+# 劉達邦指美國再加徵關稅衝擊巨大　預期很多港廠都難以支撐
+
+  
+
+行政長官李家超說，美國對多個貿易夥伴徵收所謂對等關稅，做法霸凌野蠻，香港除了面對全球風險，在轉口貿易和物流業會面對壓力，對外貿易的企業尤其是中小企以及跨境電商，短期內無可避免受到影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm)
+
+---
+
+# 重農行業績快報：首季盈利按年增逾6%　股份下午復牌
+
+![重農行業績快報顯示，首季盈利37.45億元人民幣，按年增長逾6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799399_1_20250408123433.jpg&q=90)
+  
+
+重慶農村商業銀行發布業績快報顯示，首季盈利37.45億元人民幣，按年增長逾6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799399-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799399-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799399-20250408.htm)
+
+---
+
+# 中國石油集團擬增持中石油A股和H股　涉資最多56億元人民幣
+
+![中石油稱控股股東計劃12個月內增持中石油A股和H股，涉資28億至56億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799395_1_20250408122034.jpg&q=90)
+  
+
+中石油表示，控股股東中國石油集團計劃12個月內通過自身及附屬公司增持中石油A股和H股，涉資28億至56億元人民幣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799395-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799395-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799395-20250408.htm)
+
+---
+
+# 比亞迪股份料首季盈利按年增長86%至1.2倍
+
+![比亞迪料首季盈利介乎85億至100億元人民幣，按年升86%至近1.2倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799391_1_20250408120107.jpg&q=90)
+  
+
+比亞迪股份預計，首季盈利介乎85億至100億元人民幣，按年升86%至近1.2倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799391-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799391-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799391-20250408.htm)
+
+---
+
+# 恒指半日高收312點　企穩20000點以上　科指升近4%
+
+![恒指中午收市報20140點，升312點，升幅1.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799393_1_20250408121017.jpg&q=80)
+  
+
+港股經過昨日顯著急挫後反彈。恒指重上20000點以上，最多升逾600點，觸及20454點，其後升勢回順，中午收市報20140點，升312點，升幅1.6%，成交額2266億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799393-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799393-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799393-20250408.htm)
+
+---
+
+# 滬深股市半日反彈逾0.4%至近2%
+
+![上證指數半日收報3124點，升28點，升幅0.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799387_1_20250408113832.jpg&q=90)
+  
+
+內地股市反彈，零售、農業股上升，但貿易相關股份下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799387-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799387-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799387-20250408.htm)
+
+---
+
+# 台股跌幅擴至5%　重磅股鴻海再度跌停
+
+![台灣股市連續兩日顯著下挫，較早時跌幅擴大至5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799380_1_20250408105918.jpg&q=90)
+  
+
+台灣股市連續兩日顯著下挫，較早時跌幅擴大至5%。加權指數較早時報18285點，跌946點，跌幅4.92%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799380-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799380-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799380-20250408.htm)
+
+---
+
+# 回應長和擬售巴拿馬港口　李家超稱交易須合法合規
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799376_1_20250408112823.jpg&q=75)
+  
+
+行政長官李家超出行政會議前，再度回應長和早前計劃出售巴拿馬港口資產事件，並重申三點看法，指出社會就事件有很多議論，反映對事件的關切，而這些關切值得重視。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm)
+
+---
+
+# 美媒引述消息指馬斯克曾勸特朗普撤銷新關稅政策但不成功
+
+![據報馬斯克曾勸特朗普撤銷新關稅。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799374_1_20250408120239.jpg&q=90)
+  
+
+美國總統特朗普的顧問、富商馬斯克據報曾勸喻特朗普撤銷新關稅政策，但不成功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm)
+
+---
+
+# 日股半日反彈近1900點
+
+![日經指數半日收報33030點，升1894點，升幅6.08%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799373_1_20250408103506.jpg&q=90)
+  
+
+東京股市反彈。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799373-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799373-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799373-20250408.htm)
+
+---
+
+# 三星電子料首季營業利潤微跌　 好過預期
+
+![三星電子預計營業利潤按年下跌0.2%，至6.6萬億韓元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799372_1_20250408102920.jpg&q=85)
+  
+
+南韓三星電子預計，首季營業利潤按年下跌0.2%，至6.6萬億韓元，遠高於分析師預期，因為智能手機銷售穩健，存儲晶片銷售好於預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799372-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799372-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799372-20250408.htm)
+
+---
+
 # 李家超：加快融入國家發展大局　與更多國家簽訂自貿協定
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799367_1_20250408102452.jpg&q=90)
   
 
 行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
@@ -23,9 +479,10 @@
 
 # 李家超：美國霸凌行為濫施關稅　破壞世界經貿秩序
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799365_1_20250408102325.jpg&q=90)
   
 
-行政長官李家超表示，上星期美國宣布對多個貿易夥伴徵收所謂「對等關稅」，其中向香港產品加徵三成四關稅，連同早前宣布的兩成關稅，累計徵收五成四關稅。他批評美國不再奉行自由貿易，破壞國際共同建立的世界貿易規則，做法霸凌野蠻。
+行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，其中向香港產品加徵三成四關稅，連同早前宣布的兩成關稅、累計徵收五成四關稅。李家超說，香港除了面對全球風險，在轉口貿易和物流業會面對壓力，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
 
   
 
@@ -44,9 +501,9 @@
 
 ---
 
-# 中石化、中煤能源及招商局集團等擬增持公司股份
+# 中石化、中煤能源及招商局集團等公布股份增持或回購計劃
 
-![中國石化計劃未來12個月內，通過自身及子公司增持A股及H股，規模為20億至30億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799364_1_20250408094822.jpg&q=90)
+![中石化控股股東擬未來12個月內增持中石化A股及H股，規模為20億至30億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799364_1_20250408094822.jpg&q=90)
   
 
 多間內地企業公布增持計劃。
@@ -70,6 +527,7 @@
 
 # 崔定邦稱Coldplay有助帶動旅客訪港　交通安排應無問題
 
+![崔定邦說，今次Coldplay演唱會，絕對有助帶動不同地區的旅客訪港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799363_1_20250408102153.jpg&q=80)
   
 
 啟德體育園主場館首次舉辦大型商業演唱會，英國樂隊Coldplay今晚首場演出。旅遊業促進會總幹事崔定邦說，從七欖賽事成功舉辦，到今次Coldplay的表演，都反映本港舉辦大型盛事活動，絕對有助帶動不同地區的旅客訪港。
@@ -165,6 +623,7 @@
 
 # 莊太量料美國或加快減息步伐　又稱特朗普害怕中國反制
 
+![莊太量估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799357_1_20250408102235.jpg&q=85)
   
 
 美國引發的貿易戰震盪全球股市，清明節長周末過後，港股單日跌超過3000點，創歷來最大點數跌幅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量在本台節目《千禧年代》說，估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。他估計美國減息的步伐可能會加快，反而通脹問題不會是美國目前最關注的情況，因此應留意未來聯儲局的動向。
@@ -975,461 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799266-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799266-20250407.htm)
-
----
-
-# 彭博：美國關稅或導致蘋果公司在美國銷售主要產品漲價
-
-![報道指最新的關稅衝擊，將是蘋果面臨的最大考驗。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799237_1_20250407135040.jpg&q=90)
-  
-
-彭博報道，美國推出的「對等關稅」可能導致蘋果公司在美國銷售的主要產品漲價。報道提到，最新的關稅衝擊將是蘋果面臨的最大考驗，即使蘋果進一步調整供應鏈、推動供應商降價，一旦關稅按計劃實施，蘋果仍將承受成本與利潤率壓力，不得不考慮調整產品在美國的售價。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799237-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799237-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799237-20250407.htm)
-
----
-
-# 石破茂稱盡最大努力維持企業周轉　歐盟稱對美方關稅回應應該相稱
-
-![石破茂表示為應對美國政府的關稅措施，將盡最大努力維持包括中小企業在內的資金周轉和就業。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799265_1_20250407173747.jpg&q=90)
-  
-
-日本首相石破茂表示，為應對美國政府的關稅措施，將盡最大努力維持包括中小企業在內的資金周轉和就業，並在國內對策方面做到萬無一失。他出席國會預算委員會會議時又說希望盡快訪美，向美國總統特朗普闡述日方立場，強調必須提出日方的一攬子方案，重申日本無採取不公平做法，日本對美投資為美國創造就業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799265-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799265-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799265-20250407.htm)
-
----
-
-# 戴德梁行：不明朗因素增加及股市波動或影響準買家入市情緒
-
-![戴德梁行稱本港3月交投回暖但最近不明朗因素增加，股市波動或會影響準買家入市情緒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799264_1_20250407163710.jpg&q=90)
-  
-
-物業顧問戴德梁行發表報告指，今年首季本港住宅成交量約1.22萬宗，按年增長24%，主要受惠最新一份財政預算案放寬100元印花稅適用範圍。上季樓價跌約0.9%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799264-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799264-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799264-20250407.htm)
-
----
-
-# 恒指低收3021點　主板成交近6209億元創紀錄新高
-
-![恒生指數收市報19828點，跌3021點，跌幅13.2%。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799263_2_20250407164441.jpg&q=90)
-  
-
-市場憂慮貿易衝突升級加劇及引發經濟衰退，港股失守2萬點關口。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799263-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799263-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799263-20250407.htm)
-
----
-
-# 歐洲主要股市下挫逾5-7%
-
-![法蘭克福DAX指數報19147點，跌1493點，跌幅7.24%，歐洲主要股市下挫。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799258_1_20250407155312.jpg&q=90)
-  
-
-歐洲主要股市早段下挫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799258-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799258-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799258-20250407.htm)
-
----
-
-# 恒指跌幅擴大至逾3000點　創歷來最大點數跌幅
-
-![恒生指數較早時報19812點，跌3037點，跌幅逾13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799251_1_20250407153556.jpg&q=60)
-  
-
-貿易戰陰霾拖低環球股市，港股失守2萬點關口，跌幅擴大至逾3000點，創歷來最大點數跌幅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm)
-
----
-
-# 滬股跌逾7%　5年最大單日跌幅　中央匯金再次增持ETF
-
-![內地股市顯著下挫，上證綜合指數跌幅7.34%，創5年最大單日跌幅。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799248_1_20250407152224.jpg&q=90)
-  
-
-內地股市顯著下挫，創業板指數跌逾12%。消費電子、電池及人工智能概念股下跌；農業股逆市上市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799248-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799248-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799248-20250407.htm)
-
----
-
-# 中方批評美國關稅以對等為名行霸權之實　將美國優先凌駕國際規則
-
-![林劍批評美國加徵關稅，是以對等為名，行霸權之實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799247_1_20250407152315.jpg&q=90)
-  
-
-在北京，外交部批評美國向各國徵收對等關稅，是以對等為名，行霸權之實，犧牲各國利益，服務一己之私，將美國優先凌駕國際規則，是典型的單邊主義、保護主義和經濟霸凌行徑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm)
-
----
-
-# 韓股急挫近6%
-
-![首爾綜合指數收市報2328點，跌137點，跌幅5.57%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799245_1_20250407151700.jpg&q=90)
-  
-
-韓股急挫近6%，貼近全日最低位收市。首爾綜合指數收市報2328點，跌137點，跌幅5.57%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799245-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799245-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799245-20250407.htm)
-
----
-
-# 日股急挫近8%
-
-![日經指數一度跌近9%，收市報31136點，跌2644點，跌幅7.83%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799244_1_20250407150505.jpg&q=90)
-  
-
-日股一度急跌近3000點，日經指數早段失守31000點，低見30792點，跌幅近9%，收市報31136點，跌2644點，跌幅7.83%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799244-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799244-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799244-20250407.htm)
-
----
-
-# 台股急挫9.7%　創有紀錄以來最大跌幅
-
-![台灣加權指數收市報19232點，跌2065點，跌幅9.7%，創有紀錄以來最大跌幅。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799242_2_20250407145427.jpg&q=90)
-  
-
-台灣股市重挫近10%收市，創有紀錄以來最大跌幅。重磅股份台積電及鴻海觸及10%跌停板。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799242-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799242-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799242-20250407.htm)
-
----
-
-# 證監會向持牌虛擬資產交易平台發出提供質押服務監管指引
-
-![證監會向持牌虛擬資產交易平台發出有關提供質押服務的監管指引，以及向投資虛擬資產的證監會認可基金，提供有關參與質押活動的指引。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799236_1_20250407132948.jpg&q=90)
-  
-
-證監會分別向持牌虛擬資產交易平台發出有關提供質押服務的監管指引，以及向投資虛擬資產的證監會認可基金，提供有關參與質押活動的指引。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799236-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799236-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799236-20250407.htm)
-
----
-
-# 商務部召開美資企業圓桌會　Tesla等20多間企業參加
-
-![商務部表示，美國以各種借口宣布對包括中國在內的所有貿易伙伴濫施關稅，嚴重損害以規則為基礎的多邊貿易體制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799240_1_20250407141600.jpg&q=75)
-  
-
-商務部昨日召開美資企業圓桌會，電動汽車生產商Tesla等20多間美資企業參加。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799240-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799240-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799240-20250407.htm)
-
----
-
-# 恒指失守2萬點關口　跌近2900點
-
-![恒生指數較早時報19973點，跌2875點，跌幅近13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799239_1_20250407140918.jpg&q=90)
-  
-
-港股失守2萬點，恒生指數較早時報19973點，跌2875點，跌幅近13%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799239-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799239-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799239-20250407.htm)
-
----
-
-# 港股跌勢加劇　恒指跌逾2600點
-
-![恒指較早時報20238點，跌2611點，跌幅11.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799232_1_20250407131404.jpg&q=90)
-  
-
-市場恐慌情緒持續，恒指跌勢進一步加劇，跌幅超過2600點，較早時報20238點，跌2611點，跌幅11.4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799232-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799232-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799232-20250407.htm)
-
----
-
-# 恒指下午初段跌近2460點
-
-![恒指較早時報20392點，跌2457點，跌幅10.8%。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799231_1_20250407130442.jpg&q=90)
-  
-
-港股下午延續跌勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799231-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799231-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799231-20250407.htm)
-
----
-
-# 澳洲財長：澳洲能應對美國關稅直接影響　但經濟增長受到衝擊
-
-![澳洲財長查默斯表示，澳洲能夠應對美國實施關稅的直接影響，但澳洲經濟將受到打擊。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799228_1_20250407124743.jpg&q=85)
-  
-
-澳洲財長查默斯表示，澳洲能夠應對美國實施關稅的直接影響，但隨著美國和中國經濟增長放緩，澳洲經濟將受到打擊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799228-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799228-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799228-20250407.htm)
-
----
-
-# 廣東稱要全面推進鄉村振興　辦好鄉村文藝晚會
-
-![廣東當局指，今年是「百千萬工程」的重要節點，要全面推進鄉村振興，發展文旅、辦好「廣東村晚」。（受訪者社交平台截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799224_1_20250407131336.jpg&q=85)
-  
-
-廣東省政府指，今年是「百縣千鎮萬村高質量發展工程」，簡稱「百千萬工程」的重要節點，要全面推進鄉村振興，包括辦好「廣東村晚」，即是鄉村文藝晚會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm)
-
----
-
-# 恒指半日跌2445點　成交額升至逾3200億元
-
-![恒指中午收市報20404點，跌2445點，跌幅10.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799221_1_20250407120957.jpg&q=80)
-  
-
-美國對貿易夥伴徵收對等關稅，市場憂慮貿易衝突升級加劇及引發經濟衰退，港股跟隨亞洲區內股市向下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799221-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799221-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799221-20250407.htm)
 
 ---

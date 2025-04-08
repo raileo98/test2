@@ -1,3 +1,27 @@
+# Any Trump bid to weaken greenback 'set to fail'
+
+![Donald Trump will find it extremely hard to get China and Europe to consent to a devaluation for the greenback after antagonising them with his tariffs' move. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799408_1_20250408135600.jpg&q=90)
+  
+
+Any US attempt to pull off a 1985 Plaza Accord-type coordinated depreciation of the dollar likely won't work as it would require the consent of China and Europe, Japan's former top currency diplomat Naoyuki Shinohara said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799408-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799408-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799408-20250408.htm)
+
+---
+
 # PBOC backs sovereign fund in boosting market stability
 
 ![Shanghai Composite Index plunged 7 percent on Monday in its worst day in five years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799347_1_20250408085608.jpg&q=90)
@@ -1415,29 +1439,5 @@ Laos has signed a US$1.45 billion clean energy deal with a Chinese power plant e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm)
-
----
-
-# Euro chamber head encouraged by meeting with Xia
-
-![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing last week. File photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797113_1_20250324111447.jpg&q=90)
-  
-
-The chair of the European Chamber of Commerce in Hong Kong on Monday welcomed last week's remarks from the director of the Hong Kong and Macau Affairs Office, who praised EuroCham's work in the SAR.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797113-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797113-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797113-20250324.htm)
 
 ---

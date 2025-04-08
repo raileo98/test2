@@ -1,6 +1,321 @@
-# 李家超：特區救援隊表現無私　期待完成任務後安全返港
+# 西班牙首相桑切斯周四起訪華兩日
+
+![外交部宣布，西班牙首相桑切斯將於本周四起訪華兩日。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799417_1_20250408145742.jpg&q=90)
+  
+
+在北京，外交部發言人宣布，西班牙首相桑切斯應國務院總理李強邀請，將於本周四起訪華兩日。
 
   
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799417-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799417-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799417-20250408.htm)
+
+---
+
+# 新加坡一座建築物發生火警19人送院
+
+![新加坡一座建築物發生火警19人送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799416_1_20250408145251.jpg&q=90)
+  
+
+新加坡南部一座三層高建築物發生火警，19人送院救治，包括15名兒童。當局正調查起火原因。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799416-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799416-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799416-20250408.htm)
+
+---
+
+# 外交部：美方所作所為沒體現認真對話意願
+
+![外交部發言人林劍表示，美方所作所為沒有體現出想要認真對話的意願。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799415_1_20250408144306.jpg&q=90)
+  
+
+在北京，外交部被問到中美會否就貿易問題會談或談判，發言人林劍表示，美方的所作所為沒有體現出想要認真對話的意願。美方如果真的想談，就應該拿出平等、尊重、互惠的態度。如果美方置兩國和國際社會的利益於不顧，執意打關稅戰、貿易戰，中方必將奉陪到底。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm)
+
+---
+
+# 外交部強烈譴責美國威脅升級對華關稅　批評是經濟暴力
+
+![外交部發言人林劍強烈譴責美國威脅升級對華關稅，批評是典型單邊主義、保護主義、經濟暴力。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799411_1_20250408143713.jpg&q=90)
+  
+
+美國總統特朗普威脅升級對華關稅。在北京，外交部發言人林劍表示，美方濫施關稅嚴重侵犯各國的正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球的經濟秩序穩定，是典型的單邊主義、保護主義、經濟暴力，遭到國際社會普遍反對。中方對此強烈譴責，堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm)
+
+---
+
+# 菲律賓的坎拉翁火山今日清晨劇烈噴發
+
+![菲律賓的坎拉翁火山今日清晨劇烈噴發。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799409_1_20250408142619.jpg&q=90)
+  
+
+菲律賓中部的坎拉翁火山今日清晨近六時發生劇烈噴發。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799409-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799409-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799409-20250408.htm)
+
+---
+
+# 特朗普不滿俄羅斯持續轟炸烏克蘭
+
+![特朗普表示，他對俄羅斯持續轟炸烏克蘭感到不滿。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799400_1_20250408123713.jpg&q=90)
+  
+
+美國總統特朗普表示，他對俄羅斯持續轟炸烏克蘭感到不滿。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799400-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799400-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799400-20250408.htm)
+
+---
+
+# 劉達邦指美國再加徵關稅衝擊巨大　預期很多港廠都難以支撐
+
+  
+
+行政長官李家超說，美國對多個貿易夥伴徵收所謂對等關稅，做法霸凌野蠻，香港除了面對全球風險，在轉口貿易和物流業會面對壓力，對外貿易的企業尤其是中小企以及跨境電商，短期內無可避免受到影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm)
+
+---
+
+# 南韓定於6月3日舉行新一屆總統選舉
+
+![南韓將於6月3日舉行新一屆總統選舉。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799384_1_20250408140246.jpg&q=90)
+  
+
+南韓代總統、國務總理韓惪洙宣布，將於6月3日舉行新一屆總統選舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799384-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799384-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799384-20250408.htm)
+
+---
+
+# 澤連斯基稱烏軍已進入俄羅斯別爾哥羅德州開展行動
+
+![前線烏軍近期與俄軍戰鬥激烈。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799383_2_20250408114319.jpg&q=80)
+  
+
+烏克蘭總統澤連斯基表示，烏克蘭軍隊已經進入俄羅斯別爾哥羅德州開展軍事行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799383-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799383-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799383-20250408.htm)
+
+---
+
+# 美媒引述消息指馬斯克曾勸特朗普撤銷新關稅政策但不成功
+
+![據報馬斯克曾勸特朗普撤銷新關稅。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799374_1_20250408120239.jpg&q=90)
+  
+
+美國總統特朗普的顧問、富商馬斯克據報曾勸喻特朗普撤銷新關稅政策，但不成功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm)
+
+---
+
+# 李家超強烈譴責美國歪理霸凌制裁　每次制裁只會更堅定當局信心
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799375_1_20250408110409.jpg&q=90)
+  
+
+美國早前宣布制裁包括律政司司長林定國等6名特區人員，行政長官李家超對於美國以歪理霸凌制裁相關官員，表示強烈譴責，嗤之以鼻，他認為，美方的行為是想恫嚇特區維護國家安全的人員，肆意干預香港事務和中國內政，屬違反國際法及國際慣例，再次顯示美國霸權主義下的野蠻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm)
+
+---
+
+# 《環看天下》：南韓擬6月3日總統選舉　議長倡修憲分散總統權力
+
+![在南韓憲法法院外，有民眾得知法院通過罷免尹錫悅判決後持南韓國旗慶祝。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799370_2_20250408140623.jpg&q=80)
+  
+
+南韓憲法法院上星期通過彈劾尹錫悅的裁決，他即時被罷免總統職務。南韓傳媒報道，政府初步定於6月3日舉行下任總統選舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799370-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799370-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799370-20250408.htm)
+
+---
+
+# 李家超：爭取機會為網紅提供可行支援　令世界各地認識香港
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799369_1_20250408104541.jpg&q=85)
+  
+
+美國網紅 IShowSpeed日前來港，行政長官李家超表示，很關注Speed來香港進行直播，對方有很多「粉絲」，可以利用任何機會去宣傳香港，他相信大家都很重視。旅發局曾經聯絡Speed的安排人，表示會提供任何支援，Speed方面事後沒有找旅發局，亦沒有要求政府做任何事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm)
+
+---
+
+# 李家超：特區救援隊表現無私　期待完成任務後安全返港
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799368_1_20250408102616.jpg&q=90)
+  
+
+特區政府救援隊正在緬甸地震災區協助搜救，行政長官李家超說，對於救援隊的專業救援工作引以為傲，隊伍聯同中國救援隊成功救出受困災民感到鼓舞。
+
   
 
 
@@ -20,6 +335,7 @@
 
 # 李家超：加快融入國家發展大局　與更多國家簽訂自貿協定
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799367_1_20250408102452.jpg&q=90)
   
 
 行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
@@ -43,9 +359,10 @@
 
 # 李家超：美國霸凌行為濫施關稅　破壞世界經貿秩序
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799365_1_20250408102325.jpg&q=90)
   
 
-行政長官李家超表示，上星期美國宣布對多個貿易夥伴徵收所謂「對等關稅」，其中向香港產品加徵三成四關稅，連同早前宣布的兩成關稅，累計徵收五成四關稅。他批評美國不再奉行自由貿易，破壞國際共同建立的世界貿易規則，做法霸凌野蠻。
+行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，其中向香港產品加徵三成四關稅，連同早前宣布的兩成關稅、累計徵收五成四關稅。李家超說，香港除了面對全球風險，在轉口貿易和物流業會面對壓力，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
 
   
 
@@ -66,6 +383,7 @@
 
 # 莊太量料美國或加快減息步伐　又稱特朗普害怕中國反制
 
+![莊太量估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799357_1_20250408102235.jpg&q=85)
   
 
 美國引發的貿易戰震盪全球股市，清明節長周末過後，港股單日跌超過3000點，創歷來最大點數跌幅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量在本台節目《千禧年代》說，估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。他估計美國減息的步伐可能會加快，反而通脹問題不會是美國目前最關注的情況，因此應留意未來聯儲局的動向。
@@ -1116,317 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799150-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799150-20250407.htm)
-
----
-
-# 緬甸大地震已造成3564人死亡
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799148_1_20250407004351.jpg&q=90)
-  
-
-緬甸國家管理委員會說，截至當地時間周日晚，大地震已造成3564人遇難、5012人受傷，另有210人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799148-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799148-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799148-20250407.htm)
-
----
-
-# 胡塞武裝稱美軍空襲也門西部島嶼
-
-![美軍空襲也門薩達的目標，一座建築物損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799147_1_20250407004000.jpg&q=75)
-  
-
-也門胡塞武裝控制的電視台報道，美軍周日對位於紅海的也門卡馬蘭島發動多次空襲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799147-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799147-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799147-20250407.htm)
-
----
-
-# 教宗方濟各出院後首次公開露面　在聖伯多祿廣場發表簡短講話
-
-![方濟各在聖伯多祿廣場出席為病人舉行的彌撒。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799145_1_20250406225457.jpg&q=85)
-  
-
-教宗方濟各出院兩星期後首次公開露面，在梵蒂岡聖伯多祿廣場發表簡短講話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799145-20250406.htm)
-
----
-
-# 日本長崎縣一架直升機在海上墜毀　3人失聯
-
-![日本長崎縣一架直升機在海上墜毀　3人失聯](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799142_1_20250406222359.jpg&q=90)
-  
-
-日本共同社報道，日本一架直升機下午在長崎縣對馬市附近海域失聯，之後被發現已經在海上墜毀，3人失聯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799142-20250406.htm)
-
----
-
-# 施紀賢回應美國對等關稅　指大家所知世界不復存在
-
-![施紀賢說，英國政府已經準備好介入，保護英國經濟免受美國關稅的影響。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799138_1_20250406213131.jpg&q=90)
-  
-
-英國首相施紀賢表示，伴隨著美國所謂對等關稅生效，大家所知道的世界已經不復存在。他說將繼續推動與美國達成經濟協議，以避免部分關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799138-20250406.htm)
-
----
-
-# 敏昂萊慰問中國救援隊伍　感謝震後到緬全力救援
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799134_1_20250406200019.jpg&q=90)
-  
-
-緬甸大地震至今造成近3500人死亡，超過4000人受傷，另有214人失蹤。部分災區自周末起降雨，參與救援工作的聯合國人員擔心，會令救援工作複雜化，並增加爆發霍亂等疾病的風險，又說當地需要更多帳篷安置無家可歸的災民。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm)
-
----
-
-# 緬甸地震災區天氣炎熱　特區救援隊備多種藥物確保適合出勤
-
-![醫護團隊分別講述當地救援工作及如何應對高溫天氣。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799128_1_20250406181110.jpg&q=90)
-  
-
-特區救援隊繼續在緬甸地震災區協助搜救工作，醫護團隊分別講述當地救援工作及如何應對高溫天氣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm)
-
----
-
-# 南韓代總統或周二確定大選日期　李在明或辭任共同民主黨黨魁參選
-
-![預料尹錫悅會在一星期內搬離總統官邸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799126_2_20250406174757.jpg&q=90)
-  
-
-在南韓，被罷免總統職務的尹錫悅發信感謝支持者，表示雖然已不再擔任總統，但會一直守護大家。外界預料尹錫悅會在一星期內搬離位於首爾龍山區的總統官邸，搬回他在首爾市瑞草區的私人住宅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799126-20250406.htm)
-
----
-
-# 人民日報文章指美國濫施關稅衝擊全球經濟秩序穩定　中國堅決反對
-
-![文章指美國有關做法是以關稅手段顛覆現有國際經貿秩序。（人民網網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799125_1_20250406182535.jpg&q=90)
-  
-
-《人民日報》刊登文章指出，近期美國以各種借口宣布對包括中國在內的所有交易伙伴濫施關稅，嚴重侵犯各國正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序穩定，中國政府對此強烈譴責，堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm)
-
----
-
-# 美國及越南商界促華盛頓推遲對越南商品徵收46%對等關稅
-
-![越南是很多西方國家企業在東南亞的主要生產基地。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799124_1_20250406182602.jpg&q=85)
-  
-
-美國及越南商界向華盛頓方面請求推遲對越南商品徵收46%「對等關稅」，指出徵稅將損害商界及兩地商業關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799124-20250406.htm)
-
----
-
-# 南韓一架直升機在協助撲救山火期間墜毀　一名機師死亡
-
-![南韓近期山火頻頻，大量房屋及建築物損毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799121_1_20250406162748.jpg&q=90)
-  
-
-南韓一架滅火直升機在東南部城市大邱協助撲救山火期間墜毀，消防部門表示機上一名機師死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799121-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799121-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799121-20250406.htm)
-
----
-
-# 德國發現疑似二戰遺留未爆炸彈散逾1萬5千人　列車服務受限
-
-![德國北部發現疑似二戰遺留的未爆炸彈，當局疏散超過1萬5千人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799119_1_20250406172508.jpg&q=80)
-  
-
-德國北部發現疑似二戰遺留的未爆炸彈，當局疏散超過1萬5千人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799119-20250406.htm)
-
----
-
-# 哥倫比亞政府與「南方公社」武裝簽和平協議　組織上繳武器彈藥
-
-![佩特羅（圖）及「南方公社」代表出席和平協議簽署儀式。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799118_1_20250406163542.jpg&q=90)
-  
-
-哥倫比亞政府與一個武裝組織舉行和平協議簽署儀式。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm)
 
 ---

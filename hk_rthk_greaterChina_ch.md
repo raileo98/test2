@@ -1,5 +1,77 @@
+# 外交部：美方所作所為沒體現認真對話意願
+
+![外交部發言人林劍表示，美方所作所為沒有體現出想要認真對話的意願。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799415_1_20250408144306.jpg&q=90)
+  
+
+在北京，外交部被問到中美會否就貿易問題會談或談判，發言人林劍表示，美方的所作所為沒有體現出想要認真對話的意願。美方如果真的想談，就應該拿出平等、尊重、互惠的態度。如果美方置兩國和國際社會的利益於不顧，執意打關稅戰、貿易戰，中方必將奉陪到底。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm)
+
+---
+
+# 外交部強烈譴責美國威脅升級對華關稅　批評是經濟暴力
+
+![外交部發言人林劍強烈譴責美國威脅升級對華關稅，批評是典型單邊主義、保護主義、經濟暴力。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799411_1_20250408143713.jpg&q=90)
+  
+
+美國總統特朗普威脅升級對華關稅。在北京，外交部發言人林劍表示，美方濫施關稅嚴重侵犯各國的正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球的經濟秩序穩定，是典型的單邊主義、保護主義、經濟暴力，遭到國際社會普遍反對。中方對此強烈譴責，堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm)
+
+---
+
+# 入境處稱特區護照可為港人提供海外利益安全保障
+
+  
+
+今年4月15日是「全民國家安全教育日」十周年，六支紀律部隊和兩個輔助隊伍先後發布影片，介紹部門具意義的國家安全物品。今日由入境處職員介紹特區護照，指出外旅行攜帶印有國徽的特區護照，可為港人提供海外利益安全保障。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799403-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799403-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799403-20250408.htm)
+
+---
+
 # 李家超：加快融入國家發展大局　與更多國家簽訂自貿協定
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799367_1_20250408102452.jpg&q=90)
   
 
 行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
@@ -23,6 +95,7 @@
 
 # 陳國基稱將引導市民特別是年輕一代深入認識香港抗戰歷史
 
+![陳國基昨日下午聯同「愛國主義教育工作小組」成員到沙頭角烏蛟騰，實地考察其中一條沙頭角抗戰文物徑。（陳國基社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799366_1_20250408102413.jpg&q=40)
   
 
 今年是抗戰勝利80周年，特區政府將舉辦一系列紀念活動。政務司司長陳國基昨日下午聯同「愛國主義教育工作小組」成員到沙頭角烏蛟騰，實地考察其中一條沙頭角抗戰文物徑。
@@ -46,6 +119,7 @@
 
 # 莊太量料美國或加快減息步伐　又稱特朗普害怕中國反制
 
+![莊太量估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799357_1_20250408102235.jpg&q=85)
   
 
 美國引發的貿易戰震盪全球股市，清明節長周末過後，港股單日跌超過3000點，創歷來最大點數跌幅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量在本台節目《千禧年代》說，估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。他估計美國減息的步伐可能會加快，反而通脹問題不會是美國目前最關注的情況，因此應留意未來聯儲局的動向。
@@ -1365,78 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798898-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798898-20250404.htm)
-
----
-
-# 《環看天下》：特朗普宣布對等關稅　分析料通脹加劇無可避免
-
-![特朗普宣布向全球多國及地區實施「對等關稅」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798894_1_20250404082028.jpg&q=90)
-  
-
-美國總統特朗普宣布，向全球多國實施「對等關稅」，包括向所有進口貨品，徵收10%「基準關稅」，個別國家的稅率更高，包括向中國貨品繼原有加徵20%關稅後，額外再加徵34%「對等關稅」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm)
-
----
-
-# 清明節長假期開始　深圳口岸料日均95萬人次出入境
-
-![當局預計，羅湖、福田和深圳灣口岸是承擔假期出入境客流的主力口岸。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798876_1_20250404025651.jpg&q=90)
-  
-
-清明節長假期今日開始，深圳口岸辦預計，假期期間日均出入境人數95萬人次，其中今日是出入境高峰，預計單日客流量達103萬人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm)
-
----
-
-# 澳門入境旅客突破1千萬人次　恢復至疫情前同期九成半水平
-
-![澳門今年入境旅各量，比去年提前了11天突破1千萬人次。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798867_1_20250403223907.jpg&q=80)
-![隨著當局推動橫琴與澳門的往來，橫琴口岸已成為澳門第三個旅客常用通道。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798867_2_20250403223907.jpg&q=75)
-  
-
-澳門今年比去年提前11天錄得入境旅客突破1千萬人次，恢復到2019年疫情前同期的九成半。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm)
 
 ---
