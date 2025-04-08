@@ -1,5 +1,101 @@
+# 新一批重點引進企業涉人工智能　生命健康與新能源科技行業
+
+  
+
+引進重點企業辦公室下午舉辦重點企業夥伴簽約儀式，將公布新一批重點企業名單，當中涉及人工智能與數據科學，生命健康科技，先進製造與新能源科技等行業，不少企業來自內地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm)
+
+---
+
+# 全國社保基金：近期將繼續增持國內股票
+
+![全國社保基金公布，近日已主動增持國內股票，近期將繼續增持。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799424_1_20250408152031.jpg&q=75)
+  
+
+全國社保基金公布，近日已主動增持國內股票，近期將繼續增持，會在積極開展股票投資的同時實現基金安全和保值增值。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799424-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799424-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799424-20250408.htm)
+
+---
+
+# 葉劉淑儀：中國已預備好應對美國關稅措施　長遠將成為贏家
+
+![葉劉淑儀表示，長遠而言，中國在貿易、技術和道德層面都會是贏家。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799429_1_20250408153932.jpg&q=80)
+  
+
+美國對包括中國在內的全球大部分國家和地區徵收對等關稅，行政會議召集人、新民黨主席葉劉淑儀表示，中國已準備好如何應對，美國總統特朗普將自由貿易和多邊體系的領導者角色讓給中國，長遠而言，中國在貿易、技術和道德層面都會是贏家。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm)
+
+---
+
+# 內地股市反彈近1%或以上
+
+![上證指數重上3100點，收報3145點，升48點，升幅1.58%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799419_2_20250408150616.jpg&q=90)
+  
+
+內地股市3大指數反彈近1%或以上，零售、農業股上升，但貿易、汽車產業鏈等相關股份下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799419-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799419-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799419-20250408.htm)
+
+---
+
 # 林健鋒稱出口及製造業將步入寒冬　中小企如暫未還款冀銀行勿催迫
 
+![林健鋒形容今次是非常難過的難關，希望政府伸出援手， 幫助港商開拓新興市場及加強國際貿易競爭力。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799422_1_20250408153723.jpg&q=80)
   
 
 行政會議成員、立法會商界議員林健鋒表示，美國總統特朗普瘋狂加徵關稅的行為，令部分做美國生意的香港出口商和製造商首當其衝。如果關稅問題惡化，他認為，香港出口業及製造業會步入經濟寒冬，他支持行政長官李家超提出在七大方面工作加大力量，以應對美國加徵關稅，亦支持特區政府維持香港自由港的地位。
@@ -93,12 +189,12 @@
 
 ---
 
-# 外交部強烈譴責美國威脅升級對華關稅　批評是經濟暴力
+# 外交部強烈譴責美國威脅升級對華關稅　批評是經濟霸凌
 
-![外交部發言人林劍強烈譴責美國威脅升級對華關稅，批評是典型單邊主義、保護主義、經濟暴力。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799411_1_20250408143713.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799411_2_20250408162316.jpg&q=90)
   
 
-美國總統特朗普威脅升級對華關稅。在北京，外交部發言人林劍表示，美方濫施關稅嚴重侵犯各國的正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球的經濟秩序穩定，是典型的單邊主義、保護主義、經濟暴力，遭到國際社會普遍反對。中方對此強烈譴責，堅決反對。
+美國總統特朗普威脅升級對華關稅。在北京，外交部發言人林劍表示，美方濫施關稅嚴重侵犯各國的正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球的經濟秩序穩定，是典型的單邊主義、保護主義、經濟霸凌，遭到國際社會普遍反對。中方對此強烈譴責，堅決反對。
 
   
 
@@ -239,6 +335,7 @@
 
 # 劉達邦指美國再加徵關稅衝擊巨大　預期很多港廠都難以支撐
 
+![劉達邦指出，無可能將全部加徵的稅款轉嫁消費者，無可奈何就是另找其他地方採購。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799402_1_20250408153501.jpg&q=80)
   
 
 行政長官李家超說，美國對多個貿易夥伴徵收所謂對等關稅，做法霸凌野蠻，香港除了面對全球風險，在轉口貿易和物流業會面對壓力，對外貿易的企業尤其是中小企以及跨境電商，短期內無可避免受到影響。
@@ -1337,101 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm)
-
----
-
-# 多家大行上調美國經濟衰退機率　高盛一周內兩次上調
-
-![摩根大通則認為，美國和全球陷入衰退的機會率，由40%升至60%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799283_1_20250407181313.jpg&q=90)
-  
-
-多家大行因應貿易戰不斷升級，上調美國經濟衰退機會率的預測。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799283-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799283-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799283-20250407.htm)
-
----
-
-# 本港3月外匯儲備資產減少近0.8%
-
-![金管局公布，截至3月底本港外匯儲備資產4131億美元，按月減少33億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799280_1_20250407174343.jpg&q=85)
-  
-
-金管局公布，截至3月底，本港外匯儲備資產4131億美元，按月減少33億美元，跌幅近0.8%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799280-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799280-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799280-20250407.htm)
-
----
-
-# 在岸人民幣低收106點子　創逾2個半月新低
-
-![在岸人民幣創逾2個半月新低，收市報7.3149兌1美元，較上周四收市價跌106點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799277_1_20250407172246.jpg&q=80)
-  
-
-在岸人民幣創逾2個半月新低，收市報7.3149兌1美元，較上周四收市價跌106點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799277-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799277-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799277-20250407.htm)
-
----
-
-# 陳茂波傍晚將見傳媒　預料將回應港股下跌逾三千點
-
-![陳茂波將於傍晚在政府總部西翼大堂會見傳媒，預料將回應港股下跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799276_1_20250407172313.jpg&q=90)
-  
-
-財政司司長陳茂波將於傍晚約6時15分在政府總部西翼大堂會見傳媒，預料將回應港股下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799276-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799276-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799276-20250407.htm)
 
 ---

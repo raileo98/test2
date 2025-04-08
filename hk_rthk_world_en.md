@@ -1,3 +1,27 @@
+# Singapore PM says tariffs 'not act of a friend'
+
+![Lawrence Wong says the US tariffs move is disappointing given the deep and long-standing friendship between the two countries. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799425_1_20250408152306.jpg&q=90)
+  
+
+US President Donald Trump's tariffs on Singapore are "not actions one does to a friend", the city-state's leader said on Tuesday, adding the government will likely downgrade this year's economic growth forecast.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799425-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799425-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799425-20250408.htm)
+
+---
+
 # Vance slammed over impolite 'Chinese peasants' remarks
 
 ![J D Vance made the offensive remarks in defence of Donald Trump's tariffs move on television. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799420_1_20250408150703.jpg&q=90)
@@ -1411,29 +1435,5 @@ Rescuers on Wednesday pulled a man alive from the rubble five days after Myanmar
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm)
-
----
-
-# Actor Val Kilmer loses bout with pnemonia
-
-![Val Kilmer played the part of Jim Morrison in the 1991 film 'The Doors.' Photo: Carolco Pictures/Collection ChristopheL via AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798601_1_20250402125919.jpg&q=90)
-  
-
-American actor Val Kilmer, who was first propelled to fame with "Top Gun" and went on to starring roles as Batman and Jim Morrison, has died at age 65, the New York Times reported.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm)
 
 ---

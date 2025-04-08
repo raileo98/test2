@@ -1,3 +1,75 @@
+# Manchester United to play in Hong Kong on May 30
+
+![Fans will hope to get a chance to see Bruno Fernandes (centre) and other United players in action in person. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799432_1_20250408160003.jpg&q=90)
+  
+
+English Premier League giants Manchester United on Tuesday announced that they'll play a friendly in Hong Kong next month as part of their post-season Asian tour.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799432-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799432-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799432-20250408.htm)
+
+---
+
+# Seeds of joy on China's farms in field of tariffs woe
+
+![Customs officers inspect imported soybeans in Binzhou, Shandong, with the Trump tariffs set to put paid to US exports to China. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799433_1_20250408160927.jpg&q=85)
+  
+
+Chinese agricultural stocks rose sharply on Tuesday as investors bet tariffs would limit US agricultural imports and boost domestic producers, defying a broader market crash sparked by the escalating Sino-US trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799433-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799433-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799433-20250408.htm)
+
+---
+
+# Singapore PM says tariffs 'not act of a friend'
+
+![Lawrence Wong says the US tariffs move is disappointing given the deep and long-standing friendship between the two countries. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799425_1_20250408152306.jpg&q=90)
+  
+
+US President Donald Trump's tariffs on Singapore are "not actions one does to a friend", the city-state's leader said on Tuesday, adding the government will likely downgrade this year's economic growth forecast.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799425-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799425-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799425-20250408.htm)
+
+---
+
 # Vance slammed over impolite 'Chinese peasants' remarks
 
 ![J D Vance made the offensive remarks in defence of Donald Trump's tariffs move on television. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799420_1_20250408150703.jpg&q=90)
@@ -96,7 +168,7 @@ YouTube streamer IShowSpeed's flash visit to the city last week shows that Hong 
 
 # Beijing prepared for US tariff retaliation: Regina Ip
 
-![Lawmaker Regina Ip said the SAR government should ready policies in case of a global recession. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799392_1_20250408122043.jpg&q=90)
+![Regina Ip said the SAR government should come up with policies in case of a global recession. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799392_1_20250408122043.jpg&q=90)
   
 
 The central government is well prepared and has a broad arsenal to respond to any further tariff escalation by US President Donald Trump, according to Executive Council convenor Regina Ip.
@@ -147,7 +219,7 @@ Chief Executive John Lee said on Tuesday Hong Kong will seize every opportunity 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799386_1_20250408113645.jpg&q=85)
   
 
-An economist said on Tuesday he expects the US Federal Reserve to cut rates sooner at anytime in a bid to rescue the economy.
+An economist said on Tuesday he expects the US Federal Reserve to cut interest rates sooner than expected in a bid to rescue the American economy.
 
   
 
@@ -384,7 +456,7 @@ Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after p
 
 # PBOC backs sovereign fund in boosting market stability
 
-![Shanghai Composite Index plunged 7 percent on Monday in its worst day in five years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799347_1_20250408085608.jpg&q=90)
+![The Shanghai Composite Index plunged 7 percent on Monday in its worst day in five years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799347_1_20250408085608.jpg&q=90)
   
 
 China's central bank said on Tuesday it supported sovereign wealth fund Central Huijin Investment increasing its holdings in stock market index funds.
@@ -408,7 +480,7 @@ China's central bank said on Tuesday it supported sovereign wealth fund Central 
 
 # Beijing 'won't cave in' to 50pc Trump tariff threat
 
-![An electronic board shows stock indices in the Lujiazui financial district in Shanghai. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799351_1_20250408090938.jpg&q=90)
+![The Commerce Ministry describes threats of higher US tariffs as "a mistake on top of a mistake". File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799351_2_20250408163005.jpg&q=80)
   
 
 China said it would never accept the "blackmail nature" of the United States after Washington escalated tariff threats against the nation, the Ministry of Commerce said on Tuesday.
@@ -1363,77 +1435,5 @@ A measles outbreak has killed a second child in the southwestern United States, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799174-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799174-20250407.htm)
-
----
-
-# Five arrested in drink driving clampdown
-
-![Five are arrested and verbal warnings are issued in the operation. Photo courtesy of Hong Kong police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799170_1_20250407082147.jpg&q=85)
-  
-
-Traffic police in East Kowloon on Monday said they had arrested five drivers during a clampdown on drink driving over the weekend.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm)
-
----
-
-# World scrambles to temper Trump tariffs
-
-![US President Donald Trump delivers remarks on tariffs in the Rose Garden at the White House, April 2, 2025. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799149_1_20250407011036.jpg&q=90)
-  
-
-More than 50 countries have sought talks with President Donald Trump in a scramble to ease punishing tariffs on exports to the United States, the White House said on Sunday, as trade partners braced for fallout.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm)
-
----
-
-# Israeli forces kill US-Palestinian teen, says mayor
-
-![The boy was shot dead in the West Bank town of Turmus Ayya. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799159_1_20250407060637.jpg&q=80)
-  
-
-A Palestinian official told AFP that Israeli forces shot dead a teenager holding US citizenship in the occupied West Bank Sunday, while the Israeli military said it had killed a "terrorist" who threw rocks at cars.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm)
 
 ---

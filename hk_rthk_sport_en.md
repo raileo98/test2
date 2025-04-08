@@ -1,3 +1,27 @@
+# Manchester United to play in Hong Kong on May 30
+
+![Fans will hope to get a chance to see Bruno Fernandes (centre) and other United players in action in person. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799432_1_20250408160003.jpg&q=90)
+  
+
+English Premier League giants Manchester United on Tuesday announced that they'll play a friendly in Hong Kong next month as part of their post-season Asian tour.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799432-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799432-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799432-20250408.htm)
+
+---
+
 # Florida wins 3rd NCAA title, denies Houston its 1st
 
 ![The Florida Gators react after defeating the Houston Cougars in the national championship game of the Final Four of the 2025 NCAA Tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799390_1_20250408115243.jpg&q=80)
@@ -1426,30 +1450,5 @@ Josh Giddey buried a miracle shot from beyond halfcourt at the final buzzer as t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm)
-
----
-
-# Yankees, Dodgers victorious in MLB season openers
-
-![Carlos Rodon's pitching was key to the Yankees' win to open the new season. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797817_1_20250328105734.jpg&q=90)
-![Shohei Ohtani and the Los Angeles Dodgers were also winners to start the new campaign. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797817_2_20250328105734.jpg&q=90)
-  
-
-Carlos Rodon pitched effectively into the sixth inning and was backed by two early homers as the host New York Yankees hung on for a 4-2 victory over the Milwaukee Brewers in the season opener for both teams.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm)
 
 ---

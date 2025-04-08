@@ -1,3 +1,27 @@
+# 曼聯時隔12年再訪港　下月30日與港隊於大球場踢表演賽
+
+![曼聯將於5月30日晚上8時，與港隊在大球場對戰。（中國香港足球總會社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799426_1_20250408153824.jpg&q=90)
+  
+
+英超球隊曼聯將於5月底訪港，與中國香港足球代表隊在香港大球場踢表演賽。主辦單位與中國香港足球總會將於星期四下午舉行記者會，公布賽事詳情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm)
+
+---
+
 # 英超紐卡素3:0大勝李斯特城　西甲雷加利斯1:1奧沙辛拿
 
 ![積及梅菲（左）開賽初段已經為紐卡素攻入兩球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799336_1_20250408072942.jpg&q=90)
@@ -1435,29 +1459,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797608-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797608-20250327.htm)
-
----
-
-# 伊雅娜邁阿密網賽延續夢幻之旅　淘汰絲維雅迪克晉級四強
-
-![年僅19歲的伊雅娜在今次賽事延續夢幻之旅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797606_1_20250327070721.jpg&q=90)
-  
-
-邁阿密網球公開賽，持外卡參賽的菲律賓女單球手伊雅娜，淘汰2號種子、波蘭的絲維雅迪克晉級四強。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797606-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797606-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797606-20250327.htm)
 
 ---

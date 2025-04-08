@@ -1,3 +1,27 @@
+# Seeds of joy on China's farms in field of tariffs woe
+
+![Customs officers inspect imported soybeans in Binzhou, Shandong, with the Trump tariffs set to put paid to US exports to China. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799433_1_20250408160927.jpg&q=85)
+  
+
+Chinese agricultural stocks rose sharply on Tuesday as investors bet tariffs would limit US agricultural imports and boost domestic producers, defying a broader market crash sparked by the escalating Sino-US trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799433-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799433-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799433-20250408.htm)
+
+---
+
 # Vance slammed over impolite 'Chinese peasants' remarks
 
 ![J D Vance made the offensive remarks in defence of Donald Trump's tariffs move on television. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799420_1_20250408150703.jpg&q=90)
@@ -48,7 +72,7 @@ Any American attempt to pull off a 1985 Plaza Accord-type coordinated depreciati
 
 # PBOC backs sovereign fund in boosting market stability
 
-![Shanghai Composite Index plunged 7 percent on Monday in its worst day in five years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799347_1_20250408085608.jpg&q=90)
+![The Shanghai Composite Index plunged 7 percent on Monday in its worst day in five years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799347_1_20250408085608.jpg&q=90)
   
 
 China's central bank said on Tuesday it supported sovereign wealth fund Central Huijin Investment increasing its holdings in stock market index funds.
@@ -72,7 +96,7 @@ China's central bank said on Tuesday it supported sovereign wealth fund Central 
 
 # Beijing 'won't cave in' to 50pc Trump tariff threat
 
-![An electronic board shows stock indices in the Lujiazui financial district in Shanghai. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799351_1_20250408090938.jpg&q=90)
+![The Commerce Ministry describes threats of higher US tariffs as "a mistake on top of a mistake". File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799351_2_20250408163005.jpg&q=80)
   
 
 China said it would never accept the "blackmail nature" of the United States after Washington escalated tariff threats against the nation, the Ministry of Commerce said on Tuesday.
@@ -408,7 +432,7 @@ China on Wednesday warned the Philippines against threatening "regional peace" a
 
 # CATL and Sinopec eye 10,000 battery swap stations
 
-![The deal is aimed at easing range anxiety among electric vehicle drivers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798636_1_20250402163804.jpg&q=85)
+![The deal is aimed at easing range anxiety among electric vehicle drivers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798636_1_20250402163804.jpg&q=90)
   
 
 Chinese electric vehicle battery giant CATL said on Wednesday that it will partner with state-owned oil giant Sinopec to build 10,000 battery swap stations.
@@ -1415,29 +1439,5 @@ Beijing on Monday said it will implement a more proactive fiscal policy this yea
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797174-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797174-20250324.htm)
-
----
-
-# Beijing says no Duterte asylum application received
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797161_1_20250324160317.jpg&q=90)
-  
-
-China has not received any application for asylum from Philippines' former President Rodrigo Duterte and his family, a foreign ministry spokesperson said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm)
 
 ---

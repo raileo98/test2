@@ -1,3 +1,27 @@
+# Manchester United to play in Hong Kong on May 30
+
+![Fans will hope to get a chance to see Bruno Fernandes (centre) and other United players in action in person. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799432_1_20250408160003.jpg&q=90)
+  
+
+English Premier League giants Manchester United on Tuesday announced that they'll play a friendly in Hong Kong next month as part of their post-season Asian tour.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799432-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799432-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799432-20250408.htm)
+
+---
+
 # Man gets seven years over 2019 Yuen Long riot
 
 ![A District Court judge said Wong Chi-wing took part in an indiscriminate attack on others in Yuen Long in 2019. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799406_1_20250408125602.jpg&q=90)
@@ -48,7 +72,7 @@ YouTube streamer IShowSpeed's flash visit to the city last week shows that Hong 
 
 # Beijing prepared for US tariff retaliation: Regina Ip
 
-![Lawmaker Regina Ip said the SAR government should ready policies in case of a global recession. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799392_1_20250408122043.jpg&q=90)
+![Regina Ip said the SAR government should come up with policies in case of a global recession. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799392_1_20250408122043.jpg&q=90)
   
 
 The central government is well prepared and has a broad arsenal to respond to any further tariff escalation by US President Donald Trump, according to Executive Council convenor Regina Ip.
@@ -99,7 +123,7 @@ Chief Executive John Lee said on Tuesday Hong Kong will seize every opportunity 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799386_1_20250408113645.jpg&q=85)
   
 
-An economist said on Tuesday he expects the US Federal Reserve to cut rates sooner at anytime in a bid to rescue the economy.
+An economist said on Tuesday he expects the US Federal Reserve to cut interest rates sooner than expected in a bid to rescue the American economy.
 
   
 
@@ -1411,29 +1435,5 @@ Beijing's Office for Safeguarding National Security in Hong Kong has issued a st
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm)
-
----
-
-# Ng On-yee happy that billiards keep Tier A status
-
-![Ng On-yee shows off her British Open trophy upon her return to Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798472_1_20250401170234.jpg&q=90)
-  
-
-Hong Kong, China snooker star Ng On-yee said a decision by the government last week allowing billiards to retain its Tier A status will help the players as well as the sport's overall development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm)
 
 ---
