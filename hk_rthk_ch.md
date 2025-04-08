@@ -1,3 +1,27 @@
+# 有樂迷稱啟德主場館音響佳　有觀眾指不能帶有蓋水瓶不方便
+
+![有觀眾認為，演唱會整體有驚喜，氣氛一流。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799499_1_20250409004913.jpg&q=90)
+  
+
+英國樂隊Coldplay在啟德主場館舉行演唱會，昨晚大約10時半結束。完場後約一小時，所有觀眾已大致離開園區，秩序大致良好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm)
+
+---
+
 # 日本公明黨黨魁據報本月下旬訪華　或轉交石破茂致習近平親筆信
 
   
@@ -46,6 +70,7 @@
 
 # Coldplay演唱會完場後約一小時　全部觀眾大致離開園區
 
+![英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，在晚上約10時半結束。(陳曉筠攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799495_1_20250409004752.jpg&q=90)
   
 
 英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，在晚上約10時半結束，散場後約一小時，所有觀眾已大致離開園區，秩序良好。港鐵表示演唱會結束後，港鐵加密屯馬綫班次至早上繁忙時間相若水平，約2至3分鐘一班車，大部分乘客到達啟德及宋皇臺站月台後，都能登上第一班車前往目的地。
@@ -1417,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm)
-
----
-
-# 內地股市反彈近1%或以上
-
-![上證指數重上3100點，收報3145點，升48點，升幅1.58%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799419_2_20250408150616.jpg&q=90)
-  
-
-內地股市3大指數反彈近1%或以上，零售、農業股上升，但貿易、汽車產業鏈等相關股份下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799419-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799419-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799419-20250408.htm)
 
 ---
