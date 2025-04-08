@@ -1,3 +1,23 @@
+# Coldplay演唱會完場後約一小時　全部觀眾大致離開園區
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm)
+
+---
+
 # 有馬來西亞進口冰凍甜點樣本大腸菌群含量超標　無流出市面
 
 ![食物安全中心已知會涉事進口商有關違規事項。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799492_1_20250408232741.jpg&q=90)
@@ -288,7 +308,7 @@
 
 ---
 
-# 據了解便衣警截獲一男子懷疑在啟德兜售Coldplay黃牛票
+# 據了解警方票控及拘捕5人懷疑在啟德兜售Coldplay黃牛票
 
 ![據了解便衣警截獲一男子懷疑在啟德兜售Coldplay黃牛票（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799469_1_20250408193856.jpg&q=85)
   
@@ -1420,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799353-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799353-20250408.htm)
-
----
-
-# 文憑試公民與社會發展科開考　有考生憂今年題目較難已多留意時事
-
-![文憑試公民與社會發展科開考，有考生表示，去年的題目簡單，擔心今年的題目會相對較難。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799350_1_20250408102040.jpg&q=80)
-  
-
-文憑試公民與社會發展科今日開考，成績只分「達標」和「不達標」。有約4萬8千人報考。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799350-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799350-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799350-20250408.htm)
 
 ---

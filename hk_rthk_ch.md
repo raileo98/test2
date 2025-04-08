@@ -1,3 +1,23 @@
+# Coldplay演唱會完場後約一小時　全部觀眾大致離開園區
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm)
+
+---
+
 # 特朗普與韓悳洙通電話　討論安全及關稅等議題
 
 ![韓悳洙與美方討論加強韓美同盟關係等議題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799494_1_20250408234536.jpg&q=90)
@@ -528,7 +548,7 @@
 
 ---
 
-# 據了解便衣警截獲一男子懷疑在啟德兜售Coldplay黃牛票
+# 據了解警方票控及拘捕5人懷疑在啟德兜售Coldplay黃牛票
 
 ![據了解便衣警截獲一男子懷疑在啟德兜售Coldplay黃牛票（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799469_1_20250408193856.jpg&q=85)
   
