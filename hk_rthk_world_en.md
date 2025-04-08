@@ -1,3 +1,27 @@
+# Deadly nightclub disastear rocks Dominican Republic
+
+![Rescue staff find a survivor at the Jet Set nightclub in Santo Domingo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799484_1_20250408221231.jpg&q=90)
+  
+
+Rescuers were on Tuesday racing to find survivers among the rubble of a Dominican Republic night club where at least 18 people died and dozens were hurt in an early-morning roof collapse.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799484-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799484-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799484-20250408.htm)
+
+---
+
 # Singapore PM says tariffs 'not act of a friend'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799425_1_20250408152306.jpg&q=90)
@@ -1411,29 +1435,5 @@ South Korean police will mobilise "all available resources" to prevent violence 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798612-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798612-20250402.htm)
-
----
-
-# Myanmar man pulled from ruins five days after quake
-
-![Buildings in Sagaing, near the epicentre of the 7.7-magnitude earthquake, are left in various states of peril. Photo: Yomiuri Shimbun/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798607_1_20250402134730.jpg&q=85)
-  
-
-Rescuers on Wednesday pulled a man alive from the rubble five days after Myanmar's devastating earthquake, as calls grew for the junta to allow more aid in and halt attacks on rebels.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm)
 
 ---
