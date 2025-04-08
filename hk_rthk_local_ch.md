@@ -1,3 +1,23 @@
+# 行會通過電車加價5月12日生效　12歲或以上票價加至3.3元
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm)
+
+---
+
 # 港股高收299點　科指反彈近4%
 
 ![恒指重上20000點以上，最多升逾600點，收市報20127點，升299點，升幅1.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799437_1_20250408162839.jpg&q=65)
@@ -1410,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799252-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799252-20250407.htm)
-
----
-
-# 議員關注增新聞主任職位　特首辦稱擴展新媒體及加強公關工作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799250_1_20250407155530.jpg&q=90)
-  
-
-立法會財委會舉行特別會議，審議25/26年度政府開支預算。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799250-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799250-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799250-20250407.htm)
 
 ---

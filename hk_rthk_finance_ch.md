@@ -1,3 +1,23 @@
+# 行會通過電車加價5月12日生效　12歲或以上票價加至3.3元
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm)
+
+---
+
 # 港股高收299點　科指反彈近4%
 
 ![恒指重上20000點以上，最多升逾600點，收市報20127點，升299點，升幅1.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799437_1_20250408162839.jpg&q=65)
@@ -1410,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799295-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799295-20250407.htm)
-
----
-
-# 港股夜期重上2萬點關口　美股3大股指期貨跌幅收窄至不足2%
-
-![美股3大指數期貨延續上周跌勢，但跌勢收窄至不足2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799290_1_20250407190853.jpg&q=85)
-  
-
-市場憂慮貿易衝突升級加劇及引發經濟衰退，美股3大指數期貨延續上周跌勢，但跌勢收窄至不足2%。本港期指夜市反彈，重上20000點，較早時報20032點，升252點，升幅約1.3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799290-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799290-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799290-20250407.htm)
 
 ---
