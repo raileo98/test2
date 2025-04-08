@@ -1,3 +1,27 @@
+# 港股高收299點　科指反彈近4%
+
+![恒指重上20000點以上，最多升逾600點，收市報20127點，升299點，升幅1.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799437_1_20250408162839.jpg&q=65)
+  
+
+港股經過昨日顯著急挫後反彈。恒指重上20000點關口以上，最多升逾600點，觸及20454點，其後最多曾倒跌逾80點，收市報20127點，升299點，升幅1.51%，主板成交額近4332億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm)
+
+---
+
 # 新一批重點引進企業涉人工智能　生命健康與新能源科技行業
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799250-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799250-20250407.htm)
-
----
-
-# 黃竹坑一名男生涉情緒激動襲擊兩名學校職員被捕
-
-![一名15歲男生被職員要求更換衣服，期間男生情緒激動，分別用頭撞向兩名職員，一名社工於是報警。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799249_1_20250407155550.jpg&q=60)
-  
-
-黃竹坑一間學校一名15歲男學生，涉嫌襲擊學校職員被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799249-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799249-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799249-20250407.htm)
 
 ---
