@@ -1,3 +1,27 @@
+# 古特雷斯重申貿易戰無贏家　特別擔心最脆弱發展中國家
+
+![古特雷斯說希望不會出現經濟衰退。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799509_1_20250409033825.jpg&q=90)
+  
+
+聯合國秘書長古特雷斯重申聯合國的立場，指貿易戰不會有贏家。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm)
+
+---
+
 # 白宮證對華部分貨品徵104%關稅　稱特朗普相信中方盼達成協議
 
 ![萊維特強調任何協議的焦點，都在於是否對美國工人有利。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799507_1_20250409033148.jpg&q=90)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm)
-
----
-
-# 口岸爆炸案何卓為稱曾讓示威者到大角咀單位留宿及出租部分位置
-
-![何卓為承認自己曾牽涉示威衝突事件，聲稱並非在最前面、亦無投擲過汽油彈。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799441_1_20250408164740.jpg&q=80)
-  
-
-8名男女涉2020年初口岸爆炸案，高等法院踏入第83天審訊。首被告何卓為供稱，他在2019年警方封鎖理大期間，曾經三度進入地下雨水渠，進行「勘察」及「開路」，觀察可否經雨水渠離開理大及轉告他人，在最後一次進入理大時，在淤泥中看到示威者扔棄的裝備，推測有示威者成功離開理大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799441-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799441-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799441-20250408.htm)
 
 ---

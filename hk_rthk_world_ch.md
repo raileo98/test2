@@ -1,3 +1,27 @@
+# 古特雷斯重申貿易戰無贏家　特別擔心最脆弱發展中國家
+
+![古特雷斯說希望不會出現經濟衰退。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799509_1_20250409033825.jpg&q=90)
+  
+
+聯合國秘書長古特雷斯重申聯合國的立場，指貿易戰不會有贏家。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm)
+
+---
+
 # 白宮證對華部分貨品徵104%關稅　稱特朗普相信中方盼達成協議
 
 ![萊維特強調任何協議的焦點，都在於是否對美國工人有利。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799507_1_20250409033148.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799267-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799267-20250407.htm)
-
----
-
-# 彭博：美國關稅或導致蘋果公司在美國銷售主要產品漲價
-
-![報道指最新的關稅衝擊，將是蘋果面臨的最大考驗。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799237_1_20250407135040.jpg&q=90)
-  
-
-彭博報道，美國推出的「對等關稅」可能導致蘋果公司在美國銷售的主要產品漲價。報道提到，最新的關稅衝擊將是蘋果面臨的最大考驗，即使蘋果進一步調整供應鏈、推動供應商降價，一旦關稅按計劃實施，蘋果仍將承受成本與利潤率壓力，不得不考慮調整產品在美國的售價。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799237-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799237-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799237-20250407.htm)
 
 ---
