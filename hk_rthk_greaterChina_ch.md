@@ -1,3 +1,26 @@
+# 日本公明黨黨魁據報本月下旬訪華　或轉交石破茂致習近平親筆信
+
+  
+
+日本共同社引述相關人士消息報道，公明黨黨魁齊藤鐵夫基本定於從本月22日起訪華，促進日中經濟交流，預計將與中共及政府重要人士會談。日本首相石破茂正協助透過齊藤鐵夫，轉交給予國家主席習近平的親筆信。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799498-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799498-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799498-20250409.htm)
+
+---
+
 # 陳國基明早赴北京　迎接中國救援隊包括香港隊員由緬甸回國
 
 ![陳國基將赴京出席迎接中國救援隊隊員、包括香港隊員由緬甸回國的儀式。圖為中國救援隊。（香港消防社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799490_1_20250408233804.jpg&q=85)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm)
-
----
-
-# 中國對原產於美國所有進口商品加徵34%關稅
-
-![國務院關稅稅則委員會宣布本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798952_1_20250404182448.jpg&q=90)
-  
-
-國務院關稅稅則委員會宣布，本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm)
 
 ---

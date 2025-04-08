@@ -1,3 +1,26 @@
+# 日本公明黨黨魁據報本月下旬訪華　或轉交石破茂致習近平親筆信
+
+  
+
+日本共同社引述相關人士消息報道，公明黨黨魁齊藤鐵夫基本定於從本月22日起訪華，促進日中經濟交流，預計將與中共及政府重要人士會談。日本首相石破茂正協助透過齊藤鐵夫，轉交給予國家主席習近平的親筆信。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799498-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799498-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799498-20250409.htm)
+
+---
+
 # 據了解警方發現6人涉高價兜售演唱會門票　警方稱續打擊黃牛活動
 
   
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799419-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799419-20250408.htm)
-
----
-
-# 回應美國籲阿根廷終止與中國本幣互換合作　外交部批美挑撥離間
-
-![林劍表示，中方一貫在平等互利基礎上與阿根廷合作，兩國本幣互換合作為阿根廷維護經濟金融穩定，發揮重要作用。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799427_1_20250408152519.jpg&q=90)
-  
-
-美國國務院拉美問題特使卡羅內近日呼籲阿根廷終止與中國的本幣互換合作，並形容這是中國對阿根廷的「勒索機制」。在北京，外交部發言人林劍表示，中國同有關國家雙邊合作從不針對第三方，也不應受到第三方干擾。到底是誰在勒索脅迫、無事生非，公道自在人心。中方奉勸美方擺正心態，與其花時間挑撥離間，不如為拉美和加勒比國家發展多做點實實在在的事情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm)
 
 ---

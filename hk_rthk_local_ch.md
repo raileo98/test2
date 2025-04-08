@@ -1,3 +1,26 @@
+# 有樂迷稱啟德主場館音響佳　有觀眾指不能帶有蓋水瓶不方便
+
+  
+
+英國樂隊Coldplay在啟德主場館舉行演唱會，昨晚大約10時半結束。完場後約一小時，所有觀眾已大致離開園區，秩序大致良好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm)
+
+---
+
 # 據了解警方發現6人涉高價兜售演唱會門票　警方稱續打擊黃牛活動
 
   
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm)
-
----
-
-# Coldplay演唱會舉行　港鐵將加強屯馬及東鐵綫列車服務
-
-![港鐵表示，如人數眾多或需分批入站，啟德及宋皇臺站會增加職員協助乘客。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799355_1_20250408094246.jpg&q=90)
-  
-
-英國樂隊Coldplay演唱會將於今晚、明晚、星期五及星期六晚在啟德主場館舉行，港鐵表示，會加強屯馬綫及東鐵綫列車服務，亦會配合相關部門的整體人群管理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799355-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799355-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799355-20250408.htm)
 
 ---
