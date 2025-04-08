@@ -1,3 +1,27 @@
+# 多米尼加夜總會屋頂倒塌　造成15死逾百人傷
+
+![多米尼加有夜總會的屋頂倒塌，救援人員在現場搜救。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799482_1_20250408212328.jpg&q=80)
+  
+
+加勒比海國家多米尼加有夜總會的屋頂倒塌，造成至少15人死亡、過百人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799482-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799482-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799482-20250408.htm)
+
+---
+
 # Coldplay啟德主場館演唱會開場　陳茂波及黃偉綸入場欣賞
 
   
