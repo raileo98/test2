@@ -1,3 +1,26 @@
+# 發改委召開座談會　聽取5間民企應對美方加徵關稅建議
+
+  
+
+在北京，國家發改委召開座談會，邀請滴滴出行、天合光能、中基寧波等5間民營企業參與，聽取應對美方加徵關稅的舉措及建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm)
+
+---
+
 # 外交部：美方所作所為沒體現認真對話意願
 
 ![外交部發言人林劍表示，美方所作所為沒有體現出想要認真對話的意願。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799415_1_20250408144306.jpg&q=90)
@@ -1413,31 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm)
-
----
-
-# 讀寄宿學校學漢語　藏族學生認為助未來發展
-
-![這所中學的學生大部分來自農村，9成以上學生選擇寄宿。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798898_1_20250404091024.jpg&q=80)
-![學生每星期要上藏語、漢語及英語課各五節。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798898_2_20250404091024.jpg&q=90)
-![學校宿舍有約1200個宿位，每間房可住6至10人。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798898_3_20250404091024.jpg&q=90)
-  
-
-近年不少藏族學童入讀公立寄宿學校，他們同時學習漢語。在西藏林芝市巴宜區中學，不少學生都是來自農村，以藏語作為母語。他們現時每星期要上藏語、漢語及英語堂各五節。有學生表示，初學漢語時不適應，考試不合格，但學校會提供支援，又認為學習漢語對未來發展重要。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798898-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798898-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798898-20250404.htm)
 
 ---

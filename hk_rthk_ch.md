@@ -1,9 +1,102 @@
+# 楊何蓓茵稱對公共服務有需要職位將繼續保留及招聘
+
+  
+
+公務員事務局局長楊何蓓茵說，有意見認為現時公務員團隊有約一成職位空缺，直接削減就可節省更多開支，她不認為將所有空缺職位削減就可以達到目的，對於公共服務有需要的職位會繼續保留和招聘，例如航空交通控制主任、消防隊長等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799423-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799423-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799423-20250408.htm)
+
+---
+
+# 林健鋒稱出口及製造業將步入寒冬　中小企如暫未還款冀銀行勿催迫
+
+  
+
+行政會議成員、立法會商界議員林健鋒表示，美國總統特朗普瘋狂加徵關稅的行為，令部分做美國生意的香港出口商和製造商首當其衝。如果關稅問題惡化，他認為，香港出口業及製造業會步入經濟寒冬，他支持行政長官李家超提出在七大方面工作加大力量，以應對美國加徵關稅，亦支持特區政府維持香港自由港的地位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm)
+
+---
+
+# 阮國恒：中小企融資專責小組參與行同意彈性延長貿易融資還款期
+
+![阮國恒稱「中小企融資專責小組」18家參與銀行同意為進出口製造業彈性延長貿易融資貸款還款期。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799421_1_20250408151217.jpg&q=80)
+  
+
+金管局副總裁阮國恒表示，金管局今早與銀行及各大商會舉行兩場會議，銀行業界承諾繼續落實支持中小企的「9+5」措施，包括會以「還息不還本」計劃的原則和理念，繼續以包容態度支持中小企流動性需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm)
+
+---
+
+# 發改委召開座談會　聽取5間民企應對美方加徵關稅建議
+
+  
+
+在北京，國家發改委召開座談會，邀請滴滴出行、天合光能、中基寧波等5間民營企業參與，聽取應對美方加徵關稅的舉措及建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm)
+
+---
+
 # 西班牙首相桑切斯周四起訪華兩日
 
 ![外交部宣布，西班牙首相桑切斯將於本周四起訪華兩日。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799417_1_20250408145742.jpg&q=90)
   
 
-在北京，外交部發言人宣布，西班牙首相桑切斯應國務院總理李強邀請，將於本周四起訪華兩日。
+在北京，外交部宣布，西班牙首相桑切斯應國務院總理李強邀請，將於本周四起訪華兩日。發言人林劍稱，國家主席習近平將與桑切斯會面，總理李強將與他會談。
 
   
 

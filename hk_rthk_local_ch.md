@@ -1,3 +1,96 @@
+# 曼聯時隔12年再訪港　下月30日與港隊於大球場踢表演賽
+
+  
+
+英超球隊曼聯將於5月底訪港，與中國香港足球代表隊在香港大球場踢表演賽。主辦單位與中國香港足球總會將於星期四下午舉行記者會，公布賽事詳情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm)
+
+---
+
+# 楊何蓓茵稱對公共服務有需要職位將繼續保留及招聘
+
+  
+
+公務員事務局局長楊何蓓茵說，有意見認為現時公務員團隊有約一成職位空缺，直接削減就可節省更多開支，她不認為將所有空缺職位削減就可以達到目的，對於公共服務有需要的職位會繼續保留和招聘，例如航空交通控制主任、消防隊長等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799423-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799423-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799423-20250408.htm)
+
+---
+
+# 林健鋒稱出口及製造業將步入寒冬　中小企如暫未還款冀銀行勿催迫
+
+  
+
+行政會議成員、立法會商界議員林健鋒表示，美國總統特朗普瘋狂加徵關稅的行為，令部分做美國生意的香港出口商和製造商首當其衝。如果關稅問題惡化，他認為，香港出口業及製造業會步入經濟寒冬，他支持行政長官李家超提出在七大方面工作加大力量，以應對美國加徵關稅，亦支持特區政府維持香港自由港的地位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm)
+
+---
+
+# 阮國恒：中小企融資專責小組參與行同意彈性延長貿易融資還款期
+
+![阮國恒稱「中小企融資專責小組」18家參與銀行同意為進出口製造業彈性延長貿易融資貸款還款期。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799421_1_20250408151217.jpg&q=80)
+  
+
+金管局副總裁阮國恒表示，金管局今早與銀行及各大商會舉行兩場會議，銀行業界承諾繼續落實支持中小企的「9+5」措施，包括會以「還息不還本」計劃的原則和理念，繼續以包容態度支持中小企流動性需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm)
+
+---
+
 # 恒指下午初段升近2%
 
 ![恒生指數較早時報20188點，升359點，升幅1.81%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799407_1_20250408130342.jpg&q=75)
@@ -1336,101 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799226-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799226-20250407.htm)
-
----
-
-# 周一鳴稱首要工作維護國安　指國安法對創作無影響
-
-![周一鳴認為，國安法並非洪水猛獸，只是有人嘗試污衊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799223_1_20250407130027.jpg&q=90)
-  
-
-警務處處長周一鳴表示，上任後首要工作是維護國安，認為國安法並非洪水猛獸，只是有人嘗試污衊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799223-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799223-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799223-20250407.htm)
-
----
-
-# 外置充電器今起不得航班上使用亦不得放置行李架上　有旅客稱合理
-
-![由今天起，飛機乘客不得在航班上使用外置充電器，亦不得把充電器放置於行李架上。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799222_1_20250407125158.jpg&q=90)
-  
-
-民航處規定，由今天起，飛機乘客不得在航班上使用外置充電器，亦不得把充電器放置於行李架上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799222-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799222-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799222-20250407.htm)
-
----
-
-# 塗鴉牆壁捲閘及車輛　有前科男子被判社會服務令及賠償
-
-![裁判官指被告在當眼處塗鴉是想表現自己，勸喻被告要用合法的方式表現藝術行為。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799219_2_20250408113016.jpg&q=90)
-  
-
-一名曾於郵箱、交通燈箱及垃圾桶等物件塗鴉的男子，上月分別向三間公司的牆壁、捲閘及輕型貨車噴油漆塗鴉，早前承認3項刑事損壞罪，西九龍裁判法院裁判官余俊翔今日判刑，指被告在當眼處塗鴉是想表現自己，勸喻被告要用合法的方式表現藝術行為，判被告80小時社會服務令及17000元賠償令。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799219-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799219-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799219-20250407.htm)
-
----
-
-# 「新型工業加速計劃」新項目建醫療藥物生產線　預算金額逾4億元
-
-![「創新及科技基金」下「新型工業評審委員會」已支持一宗由亞洲先進同位素技術有限公司提交的「新型工業加速計劃」申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799218_1_20250407120108.jpg&q=90)
-  
-
-創新科技署宣布，「創新及科技基金」下「新型工業評審委員會」已支持一宗由亞洲先進同位素技術有限公司提交的「新型工業加速計劃」申請，項目計劃建立醫療用超導迴旋加速器及核素藥物生產線，其智能生產設施涵蓋高端先進技術，屬生命健康科技領域。該申請是「加速計劃」第二個獲評審委員會支持的項目，總預算金額超過4億元，預計「加速計劃」資助金額約為1億4千萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799218-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799218-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799218-20250407.htm)
 
 ---

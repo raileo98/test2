@@ -1,3 +1,27 @@
+# Vance slammed over impolite 'Chinese peasants' remarks
+
+![J D Vance made the offensive remarks in defence of Donald Trump's tariffs move on television. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799420_1_20250408150703.jpg&q=90)
+  
+
+China on Tuesday condemned US Vice President JD Vance as "ignorant and impolite", after he referred to Washington borrowing money from "Chinese peasants".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799420-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799420-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799420-20250408.htm)
+
+---
+
 # Kennedy gets teeth into ending US fluoridation
 
 ![Robert F Kennedy says a task force of health experts will study the issue of fluoride in water and make new recommendations. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799385_1_20250408113219.jpg&q=90)
@@ -1411,29 +1435,5 @@ American actor Val Kilmer, who was first propelled to fame with "Top Gun" and we
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm)
-
----
-
-# Sydney beachfront homes take battering from waves
-
-![Bondi beach in Sydney was hit by a 5.5-metre wave. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798598_1_20250402124618.jpg&q=90)
-  
-
-Sydney beachfront properties were flooded and coastal infrastructure damaged after a large swell combined with a king tide to batter the Australian shore, officials said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm)
 
 ---

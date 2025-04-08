@@ -1,9 +1,33 @@
+# Vance slammed over impolite 'Chinese peasants' remarks
+
+![J D Vance made the offensive remarks in defence of Donald Trump's tariffs move on television. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799420_1_20250408150703.jpg&q=90)
+  
+
+China on Tuesday condemned US Vice President JD Vance as "ignorant and impolite", after he referred to Washington borrowing money from "Chinese peasants".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799420-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799420-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799420-20250408.htm)
+
+---
+
 # Any Trump bid to weaken greenback 'set to fail'
 
 ![Donald Trump will find it extremely hard to get China and Europe to consent to a devaluation for the greenback after antagonising them with his tariffs' move. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799408_1_20250408135600.jpg&q=90)
   
 
-Any US attempt to pull off a 1985 Plaza Accord-type coordinated depreciation of the dollar likely won't work as it would require the consent of China and Europe, Japan's former top currency diplomat Naoyuki Shinohara said on Tuesday.
+Any American attempt to pull off a 1985 Plaza Accord-type coordinated depreciation of the US dollar likely won't work as it would require the consent of China and Europe, Japan's former top currency diplomat Naoyuki Shinohara said on Tuesday.
 
   
 
@@ -1411,29 +1435,5 @@ A Palestinian official told AFP that Israeli forces shot dead a teenager holding
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm)
-
----
-
-# Le Pen invokes MLK ahead of far-right Paris rally
-
-![Protesters gathered during a rally in Paris in support of President of Rassemblement National parliamentary group Marine Le Pen, after she was convicted. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799140_1_20250406211858.jpg&q=90)
-  
-
-France's Marine Le Pen on Sunday invoked Martin Luther King's struggle for civil rights as her far-right party planned to rally its supporters after she was convicted of embezzlement and banned from public office.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm)
 
 ---

@@ -1,9 +1,32 @@
+# 林健鋒稱出口及製造業將步入寒冬　中小企如暫未還款冀銀行勿催迫
+
+  
+
+行政會議成員、立法會商界議員林健鋒表示，美國總統特朗普瘋狂加徵關稅的行為，令部分做美國生意的香港出口商和製造商首當其衝。如果關稅問題惡化，他認為，香港出口業及製造業會步入經濟寒冬，他支持行政長官李家超提出在七大方面工作加大力量，以應對美國加徵關稅，亦支持特區政府維持香港自由港的地位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm)
+
+---
+
 # 西班牙首相桑切斯周四起訪華兩日
 
 ![外交部宣布，西班牙首相桑切斯將於本周四起訪華兩日。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799417_1_20250408145742.jpg&q=90)
   
 
-在北京，外交部發言人宣布，西班牙首相桑切斯應國務院總理李強邀請，將於本周四起訪華兩日。
+在北京，外交部宣布，西班牙首相桑切斯應國務院總理李強邀請，將於本周四起訪華兩日。發言人林劍稱，國家主席習近平將與桑切斯會面，總理李強將與他會談。
 
   
 
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799151-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799151-20250407.htm)
-
----
-
-# 美商務部長：關稅政策數天以至數周內維持不變
-
-![盧特尼克（右）日前陪同特朗普公布向全球貿易伙伴徵收對等關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799150_1_20250407011035.jpg&q=90)
-  
-
-美國商務部長盧特尼克表示，總統特朗普的關稅政策將在數天以至數周內維持不變，而且一些企鵝棲息的無人島嶼也被列入名單，這樣各國就無法將這些地方作為漏洞利用。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799150-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799150-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799150-20250407.htm)
 
 ---

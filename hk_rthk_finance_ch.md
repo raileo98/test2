@@ -1,3 +1,50 @@
+# 林健鋒稱出口及製造業將步入寒冬　中小企如暫未還款冀銀行勿催迫
+
+  
+
+行政會議成員、立法會商界議員林健鋒表示，美國總統特朗普瘋狂加徵關稅的行為，令部分做美國生意的香港出口商和製造商首當其衝。如果關稅問題惡化，他認為，香港出口業及製造業會步入經濟寒冬，他支持行政長官李家超提出在七大方面工作加大力量，以應對美國加徵關稅，亦支持特區政府維持香港自由港的地位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm)
+
+---
+
+# 阮國恒：中小企融資專責小組參與行同意彈性延長貿易融資還款期
+
+![阮國恒稱「中小企融資專責小組」18家參與銀行同意為進出口製造業彈性延長貿易融資貸款還款期。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799421_1_20250408151217.jpg&q=80)
+  
+
+金管局副總裁阮國恒表示，金管局今早與銀行及各大商會舉行兩場會議，銀行業界承諾繼續落實支持中小企的「9+5」措施，包括會以「還息不還本」計劃的原則和理念，繼續以包容態度支持中小企流動性需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm)
+
+---
+
 # 韓股靠穩收市
 
 ![首爾綜合指數收市報2334點，升6點，升幅0.26%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799414_1_20250408144219.jpg&q=90)
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799276-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799276-20250407.htm)
-
----
-
-# 恒生投資：關稅對市場影響並未完全反映
-
-![謝德華（右）認為，內地高科技產業發展已提升至國策層面，預期關稅對內地科技股影響有限。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799272_1_20250407171759.jpg&q=90)
-  
-
-貿易戰陰霾觸發環球股市下挫。恒生投資股票投資主管謝德華表示，金融市場後市表現難以預測，認為關稅影響並未完全反映，強調中美等經濟體談判進展會是關鍵。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799272-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799272-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799272-20250407.htm)
-
----
-
-# 陳茂波稱本港面對衝擊須憑自身遠見和國家支持發揮獨特優勢
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799266_1_20250407170640.jpg&q=65)
-  
-
-財政司司長陳茂波表示，創科是香港未來繁榮重要支柱，特區政府多年來投入大量資源建立具活力的生態系統，令本港的初創企業不斷快速增加，去年已有近4700間，比2020年增長約四成，預計數字仍會以驚人速度增長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799266-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799266-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799266-20250407.htm)
 
 ---

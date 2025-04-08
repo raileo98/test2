@@ -1,9 +1,33 @@
+# Vance slammed over impolite 'Chinese peasants' remarks
+
+![J D Vance made the offensive remarks in defence of Donald Trump's tariffs move on television. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799420_1_20250408150703.jpg&q=90)
+  
+
+China on Tuesday condemned US Vice President JD Vance as "ignorant and impolite", after he referred to Washington borrowing money from "Chinese peasants".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799420-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799420-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799420-20250408.htm)
+
+---
+
 # Any Trump bid to weaken greenback 'set to fail'
 
 ![Donald Trump will find it extremely hard to get China and Europe to consent to a devaluation for the greenback after antagonising them with his tariffs' move. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799408_1_20250408135600.jpg&q=90)
   
 
-Any US attempt to pull off a 1985 Plaza Accord-type coordinated depreciation of the dollar likely won't work as it would require the consent of China and Europe, Japan's former top currency diplomat Naoyuki Shinohara said on Tuesday.
+Any American attempt to pull off a 1985 Plaza Accord-type coordinated depreciation of the US dollar likely won't work as it would require the consent of China and Europe, Japan's former top currency diplomat Naoyuki Shinohara said on Tuesday.
 
   
 
@@ -384,7 +408,7 @@ China on Wednesday warned the Philippines against threatening "regional peace" a
 
 # CATL and Sinopec eye 10,000 battery swap stations
 
-![The deal is aimed at easing range anxiety among electric vehicle drivers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798636_1_20250402163804.jpg&q=90)
+![The deal is aimed at easing range anxiety among electric vehicle drivers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798636_1_20250402163804.jpg&q=85)
   
 
 Chinese electric vehicle battery giant CATL said on Wednesday that it will partner with state-owned oil giant Sinopec to build 10,000 battery swap stations.
@@ -1415,29 +1439,5 @@ China has not received any application for asylum from Philippines' former Presi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm)
-
----
-
-# Laos, Chinese firm sign US$1.45b clean energy deal
-
-![China Western Power Industrial has signed an agreement to design, supply, and build a 1,800-megawatt clean energy power project in southern Laos. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797153_2_20250324151758.jpg&q=90)
-  
-
-Laos has signed a US$1.45 billion clean energy deal with a Chinese power plant equipment manufacturer as the country furthers its push into clean power generation and transmission.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm)
 
 ---

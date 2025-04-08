@@ -3,7 +3,7 @@
 ![Donald Trump will find it extremely hard to get China and Europe to consent to a devaluation for the greenback after antagonising them with his tariffs' move. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799408_1_20250408135600.jpg&q=90)
   
 
-Any US attempt to pull off a 1985 Plaza Accord-type coordinated depreciation of the dollar likely won't work as it would require the consent of China and Europe, Japan's former top currency diplomat Naoyuki Shinohara said on Tuesday.
+Any American attempt to pull off a 1985 Plaza Accord-type coordinated depreciation of the US dollar likely won't work as it would require the consent of China and Europe, Japan's former top currency diplomat Naoyuki Shinohara said on Tuesday.
 
   
 
@@ -1273,7 +1273,7 @@ An expert has said that ongoing art shows and upcoming auctions will give the ma
 
 # Home prices drop to lowest level in nearly nine years
 
-![Home prices continued to decline last month. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797650_1_20250327120658.jpg&q=65)
+![Home prices continued to decline last month. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797650_1_20250327120658.jpg&q=90)
   
 
 Hong Kong home prices slumped for the third month in a row in February, dropping to their lowest level in almost nine years.
