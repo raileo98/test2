@@ -1,3 +1,26 @@
+# 網上有人聲稱提供跨境私家車來往內地與啟德站　運輸署轉介警方
+
+  
+
+運輸署表示，留意到社交媒體有人聲稱可提供跨境私家車服務來往內地及港鐵啟德站。署方重申，跨境私家車必須領有有效的出租汽車許可證，才可用作出租或取酬載客用途。領有許可證的跨境出租汽車會在擋風玻璃左邊和車尾張貼印有「Cross Boundary Hire Car」和「過境出租車」的識別標誌，以及獲配予的車輛編號。運輸署會將懷疑非法個案轉交警方跟進調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799480-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799480-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799480-20250408.htm)
+
+---
+
 # 陳國基：特區政府在維護國安和推展愛國主義教育取得豐碩成果
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799477_1_20250408203840.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799299-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799299-20250407.htm)
-
----
-
-# 陳茂波：堅持自由港核心優勢　政府多方面支援中小企
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799296_1_20250407200503.jpg&q=80)
-  
-
-財政司司長陳茂波表示，香港的自由港地位是在一國兩制下其中一個最重要的基本和核心競爭優勢，不管資金、人才、貨物和資訊都可自由進出香港，強調本港會繼續按照基本法保持自由港地位，香港支持自由貿易的決心和承諾決不動搖。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799296-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799296-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799296-20250407.htm)
 
 ---
