@@ -1,3 +1,26 @@
+# 陳國基：特區政府在維護國安和推展愛國主義教育取得豐碩成果
+
+  
+
+勞工及福利局、社署和香港社福界心連心大行動聯合舉辦香港社福界維護國家安全研討會，進一步提升香港社福界主動維護國家安全的意識。超過8000位香港社福界人士以線上線下的方式參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799477-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799477-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799477-20250408.htm)
+
+---
+
 # 議員關注多少大廈參與「聯廈聯管」　麥美娟指關愛隊協助聯絡業主
 
   
