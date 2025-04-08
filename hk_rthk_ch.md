@@ -1,3 +1,75 @@
+# 世邦魏理仕下調今年甲級寫字樓新租務成交至下跌5%
+
+![世邦魏理仕下調部分商業房地產市道表現預測。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799440_1_20250408164554.jpg&q=85)
+  
+
+物業顧問世邦魏理仕表示，因應近日美國對多個貿易夥伴徵收對等關稅，以及環球股市急跌，調低今年部分商業房地產市道表現預測。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799440-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799440-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799440-20250408.htm)
+
+---
+
+# 串謀讓囚犯管有手機及香煙　懲教人員及囚犯分囚18及24個月
+
+![法官判刑時斥責被告蔑視監獄制度，沒有悔意。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799465_1_20250408182804.jpg&q=80)
+  
+
+兩名懲教助理縱容一名囚犯在塘福懲教所管有及使用手提電話，並為囚犯將未經授權香煙帶進監獄，兩人連同另外兩名涉案釋囚，被控串謀觸犯公職人員行為不當等罪。其中兩人認罪判囚，餘下三名被告經審訊後被裁定罪成，47歲一級懲教助理被判監禁18個月，32歲囚犯主腦監禁24個月，協助傳訊的釋囚則判囚9個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799465-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799465-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799465-20250408.htm)
+
+---
+
+# 人形機器人周日北京參加「半馬」
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799435_1_20250408182633.jpg&q=90)
+  
+
+多個人形機器人周日將在北京亦莊參加「半馬」賽事，將與3萬多名人類選手共同出賽，是全球首次「人機共跑馬拉松」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799435-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799435-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799435-20250408.htm)
+
+---
+
 # 工總稱銀行彈性延長貿易融資貸款還款期　對中小企是很大幫忙
 
   
@@ -23,6 +95,7 @@
 
 # 當局稱正研究離境私家車徵收邊境建設費　適時再諮詢立法會
 
+![黎志華表示，當局剛展開相關研究，當有具體構思，包括如何收取、有無豁免機制等，屆時會再諮詢立法會意見。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799461_1_20250408183137.jpg&q=90)
   
 
 財政預算案提出，研究向離境私家車徵收邊境建設費，如果每輛車收200元，政府每年可以有大約10億元收入。
@@ -46,6 +119,7 @@
 
 # 考評局稱公民與社會發展科試場運作暢順約九成考生使用「報到易」
 
+![考評局表示，有約48000名考生於約450個一般試場及逾740個特別試場應考。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799458_1_20250408183117.jpg&q=80)
   
 
 文憑試公民與社會發展科今日開考。考評局表示，有約48000名考生於約450個一般試場及逾740個特別試場應考，各試場學校的整體運作暢順。
@@ -69,6 +143,7 @@
 
 # 涉販運懷疑大麻花及大麻產品　20歲男子明日提堂
 
+![海關檢獲的懷疑毒品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799457_1_20250408183041.jpg&q=85)
   
 
 海關在大埔檢獲一批懷疑大麻花及大麻產品等，估計市值約100萬元，拘捕一名20歲男子。
@@ -238,6 +313,7 @@
 
 # 行會批准北環線主線鐵路方案　來往錦上路站與古洞站約12分鐘
 
+![行會批准北環綫主綫鐵路方案，來往錦上路站與古洞站約12分鐘。（路政署文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799452_1_20250408183014.jpg&q=75)
   
 
 行政長官會同行政會議批准北環線主線的鐵路方案。當局表示，北環線主線涉及興建一條長約10.7公里的鐵路，目標在2034年完成主線工程，北環線主線將成為北部都會區的主要交通骨幹，釋放沿線一帶土地的發展潛力，接現有的屯馬綫及東鐵綫，形成一條貫通新界和九龍市區的環狀鐵路。北環線主線投入服務後，來往錦上路站和古洞站的行程，預計將由現時繁忙時段需時約60至80分鐘大幅減至約12分鐘。
@@ -332,6 +408,7 @@
 
 # 優化新資本投資者入境計劃　當局料已批申請帶來逾270億元資金
 
+![劉凱旋有信心隨著加大推廣計劃，例如有東盟國家甚至歐洲和北美等地區，均有人申請。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799448_1_20250408182942.jpg&q=90)
   
 
 立法會舉行特別財務委員會會議，審核2025至26年度開支預算。在財經事務方面，有議員關注優化新資本投資者入境計劃的情況，當局說截至今年2月底，新計劃合共接獲918宗申請，已批出868宗申請的淨資產審查和386宗申請的投資規定審查，預計可為本港帶來超過270億元資金。由於新計劃的相關優化措施只推行一段短時間，政府會持續檢視申請人的投資情況，並會適時評估成效。
@@ -355,8 +432,7 @@
 
 # Coldplay啟德主場館演唱會　有觀眾為免混亂提早到場排隊
 
-![下午已有大批持票人士在場館外排隊等候入場，包括不少專程來港看演唱會的旅客。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799447_1_20250408182512.jpg&q=75)
-![設於在啟德體育園附近商場的Coldplay期間限定店，店舖負責人表示很多產品已售罄，形容粉絲反應非常熱烈。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799447_2_20250408182512.jpg&q=75)
+![Coldplay啟德主場館演唱會　有觀眾為免混亂提早到場排隊](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799447_2_20250408182512.jpg&q=75)
   
 
 英國樂隊Coldplay今晚起在啟德體育園主場館舉行演唱會。下午一時許，已經有大批持票人士在場館外排隊等候入場，包括不少專程來港看演唱會的旅客。

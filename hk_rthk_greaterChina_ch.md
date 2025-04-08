@@ -1,3 +1,27 @@
+# 人形機器人周日北京參加「半馬」
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799435_1_20250408182633.jpg&q=90)
+  
+
+多個人形機器人周日將在北京亦莊參加「半馬」賽事，將與3萬多名人類選手共同出賽，是全球首次「人機共跑馬拉松」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799435-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799435-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799435-20250408.htm)
+
+---
+
 # 外交部：倘美方執意打關稅戰貿易戰　中方必將奉陪到底
 
 ![外交部說，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799450_1_20250408171401.jpg&q=80)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm)
-
----
-
-# 中國駐緬甸使館確認緬甸地震中累計5名中國公民遇難
-
-![緬甸大地震的救援工作持續。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798920_1_20250404123006.jpg&q=90)
-  
-
-新華社報道，中國駐緬甸使館確認，截至今早11時，在緬甸地震中，累計有中國公民5人遇難，13名中國公民受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798920-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798920-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798920-20250404.htm)
 
 ---
