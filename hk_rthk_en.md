@@ -1,3 +1,27 @@
+# China 'ready to fight till the end' over US tariffs
+
+![Lin Jian says pressuring, threatening and blackmailing are not the right ways to deal with China. Photo: Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799446_1_20250408170039.jpg&q=90)
+  
+
+China is ready to fight till the end if the United States is bent on waging a tariff war or trade war, the Foreign Ministry said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799446-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799446-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799446-20250408.htm)
+
+---
+
 # Manchester United to play in Hong Kong on May 30
 
 ![Fans will hope to get a chance to see Bruno Fernandes (centre) and other United players in action in person. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799432_1_20250408160003.jpg&q=90)
@@ -1411,29 +1435,5 @@ Japan's Nikkei share index plunged further on Monday, as US futures pointed to a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm)
-
----
-
-# Second US child dies of measles, almost 650 ill
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799174_1_20250407083943.jpg&q=90)
-  
-
-A measles outbreak has killed a second child in the southwestern United States, authorities said on Sunday, with almost 650 people now infected as the highly-contagious disease spreads.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799174-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799174-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799174-20250407.htm)
 
 ---

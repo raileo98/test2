@@ -1,3 +1,26 @@
+# 優化新資本投資者入境計劃　當局料已批申請帶來逾270億元資金
+
+  
+
+立法會舉行特別財務委員會會議，審核2025至26年度開支預算。在財經事務方面，有議員關注優化新資本投資者入境計劃的情況，當局說截至今年2月底，新計劃合共接獲918宗申請，已批出868宗申請的淨資產審查和386宗申請的投資規定審查，預計可為本港帶來超過270億元資金。由於新計劃的相關優化措施只推行一段短時間，政府會持續檢視申請人的投資情況，並會適時評估成效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm)
+
+---
+
 # 渣打：期望內地及美國以外地區推出措施穩定全球需求惠及香港出口
 
   
@@ -23,6 +46,7 @@
 
 # 陳茂波稱新一批引進企業不少將設研發中心　帶來500億元投資
 
+![陳茂波表示，新一批引進企業未來會為香港帶來500億元的投資，創造2萬個職位。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799444_1_20250408170605.jpg&q=80)
   
 
 引進重點企業辦公室下午舉辦重點企業夥伴簽約儀式，公布第四批共18間重點企業名單，當中涉及人工智能與數據科學，生命健康科技，先進製造與新能源科技等行業，14間企業來自內地，2間來自美國，1間來自新加坡，另有1間不公開企業名稱。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799306-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799306-20250407.htm)
-
----
-
-# 美股3大指數初段跌逾4%或以上
-
-![美股初段延續上周跌勢，3大指數初段跌逾4%或以上。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799303_1_20250407214419.jpg&q=80)
-  
-
-美股初段延續上周跌勢。投資者繼續憂慮特朗普推出的對等關稅措施將打擊經濟前景。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799303-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799303-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799303-20250407.htm)
 
 ---

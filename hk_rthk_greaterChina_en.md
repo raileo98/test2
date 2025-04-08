@@ -1,3 +1,27 @@
+# China 'ready to fight till the end' over US tariffs
+
+![Lin Jian says pressuring, threatening and blackmailing are not the right ways to deal with China. Photo: Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799446_1_20250408170039.jpg&q=90)
+  
+
+China is ready to fight till the end if the United States is bent on waging a tariff war or trade war, the Foreign Ministry said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799446-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799446-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799446-20250408.htm)
+
+---
+
 # Seeds of joy on China's farms in field of tariffs woe
 
 ![Customs officers inspect imported soybeans in Binzhou, Shandong, with the Trump tariffs set to put paid to US exports to China. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799433_1_20250408160927.jpg&q=85)
@@ -1415,29 +1439,5 @@ Shenzhen-based carmaker BYD saw a surge in revenue last year, a stock filing sho
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm)
-
----
-
-# China vows more proactive fiscal policy at dev't forum
-
-![Entrepreneurs, government officials, experts and business representatives attend the China Development Forum 2025. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797174_1_20250324171122.jpg&q=75)
-  
-
-Beijing on Monday said it will implement a more proactive fiscal policy this year, with finance minister Lan Fo'an saying the nation's economic and fiscal strengths have grown significantly.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797174-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797174-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797174-20250324.htm)
 
 ---

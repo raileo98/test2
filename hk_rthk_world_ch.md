@@ -1,3 +1,50 @@
+# 李強與馮德萊恩通話討論美國關稅措施　馮德萊恩稱避免局勢升級
+
+![針對美國關稅措施造成混亂，馮德萊恩強調歐中有責任支持建基於自由、公平的貿易體系改革，呼籲透過談判解決當前情況，避免局勢進一步升級。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799443_1_20250408170902.jpg&q=90)
+  
+
+國務院總理李強與歐盟委員會主席馮德萊恩通電話，討論貿易和中歐關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799443-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799443-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799443-20250408.htm)
+
+---
+
+# 優化新資本投資者入境計劃　當局料已批申請帶來逾270億元資金
+
+  
+
+立法會舉行特別財務委員會會議，審核2025至26年度開支預算。在財經事務方面，有議員關注優化新資本投資者入境計劃的情況，當局說截至今年2月底，新計劃合共接獲918宗申請，已批出868宗申請的淨資產審查和386宗申請的投資規定審查，預計可為本港帶來超過270億元資金。由於新計劃的相關優化措施只推行一段短時間，政府會持續檢視申請人的投資情況，並會適時評估成效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm)
+
+---
+
 # 日本《外交藍皮書》重申擁竹島主權　南韓強烈抗議
 
 ![日本發表年度《外交藍皮書》重申擁有竹島主權， 南韓外交部強烈抗議。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799434_1_20250408161045.jpg&q=90)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799173-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799173-20250407.htm)
-
----
-
-# 也門胡塞武裝：美軍空襲薩那致4死16傷
-
-![美軍周六空襲也門北部城市薩達，有建築物受損。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799157_1_20250407051701.jpg&q=65)
-  
-
-也門胡塞武裝衛生部門說，美軍周日晚空襲也門首都薩那一處目標，造成4人死亡、16人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799157-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799157-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799157-20250407.htm)
-
----
-
-# 以軍：10枚火箭彈從加沙中部射向以色列境內
-
-![有火箭彈從加沙地帶射向以色列境內，圖為其中一處受影響的地區。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799156_1_20250407045557.jpg&q=90)
-  
-
-以色列國防軍說，周日晚約有10枚火箭彈從加沙地帶中部射向以色列境內，以軍成功攔截其中5枚。以色列傳媒報道，這次是數月以來以色列遭受來自加沙地帶的「最大規模襲擊」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799156-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799156-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799156-20250407.htm)
 
 ---

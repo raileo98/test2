@@ -1,3 +1,49 @@
+# 優化新資本投資者入境計劃　當局料已批申請帶來逾270億元資金
+
+  
+
+立法會舉行特別財務委員會會議，審核2025至26年度開支預算。在財經事務方面，有議員關注優化新資本投資者入境計劃的情況，當局說截至今年2月底，新計劃合共接獲918宗申請，已批出868宗申請的淨資產審查和386宗申請的投資規定審查，預計可為本港帶來超過270億元資金。由於新計劃的相關優化措施只推行一段短時間，政府會持續檢視申請人的投資情況，並會適時評估成效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm)
+
+---
+
+# Coldplay啟德主場館演唱會　有觀眾為免混亂提早到場排隊
+
+  
+
+英國樂隊Coldplay今晚起在啟德體育園主場館舉行演唱會。下午一時許，已經有大批持票人士在場館外排隊等候入場，包括不少專程來港看演唱會的旅客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799447-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799447-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799447-20250408.htm)
+
+---
+
 # 渣打：期望內地及美國以外地區推出措施穩定全球需求惠及香港出口
 
   
@@ -23,6 +69,7 @@
 
 # 陳茂波稱新一批引進企業不少將設研發中心　帶來500億元投資
 
+![陳茂波表示，新一批引進企業未來會為香港帶來500億元的投資，創造2萬個職位。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799444_1_20250408170605.jpg&q=80)
   
 
 引進重點企業辦公室下午舉辦重點企業夥伴簽約儀式，公布第四批共18間重點企業名單，當中涉及人工智能與數據科學，生命健康科技，先進製造與新能源科技等行業，14間企業來自內地，2間來自美國，1間來自新加坡，另有1間不公開企業名稱。
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799261-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799261-20250407.htm)
-
----
-
-# Coldplay演唱會明起舉行　九巴7特別線散場後接載乘客
-
-![九巴表示，有多條路線途經啟德主場館，並會開辦7條特別線，在活動結束後接載乘客一程直達不同地區。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799259_1_20250407160518.jpg&q=90)
-  
-
-英國樂隊Coldplay世界巡演香港站將於明天、星期三、星期五及星期六晚在啟德主場館舉行。九巴表示，有多條路線途經啟德主場館，並會開辦7條特別線，在活動結束後接載乘客一程直達不同地區，或者在各轉車站轉乘其他九巴路線，指定路線組合享有第二程車資免費的優惠。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799259-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799259-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799259-20250407.htm)
-
----
-
-# 反修例案件約96%已審結　司法機構料法律程序輪候時間將改善
-
-![梁悅賢表示，截至去年，在已提交不同級別法院審理的2350多宗反修例案件中，已審結約2260宗，約佔96%。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799256_1_20250407160701.jpg&q=90)
-  
-
-司法機構政務長梁悅賢在立法會財委會特別會議上表示，司法機構在24/25年度，繼續優先處理與2019年反逃犯條例修訂事件相關的案件及與國家安全相關的案件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799256-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799256-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799256-20250407.htm)
 
 ---
