@@ -1,3 +1,27 @@
+# 美元兌日圓跌1%
+
+![美元兌日圓下跌1%，至146.30日圓。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799518_1_20250409071226.jpg&q=85)
+  
+
+美元指數偏軟，較早時報102.82，跌0.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799518-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799518-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799518-20250409.htm)
+
+---
+
 # 美股轉跌收市　道指跌320點　白宮對華部分貨品徵104%關稅
 
 ![美股先升後跌，3大指數跌近1%至逾2%收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799513_1_20250409054522.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm)
-
----
-
-# 中石化、中煤能源及招商局集團等公布股份增持或回購計劃
-
-![中石化控股股東擬未來12個月內增持中石化A股及H股，規模為20億至30億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799364_1_20250408094822.jpg&q=90)
-  
-
-多間內地企業公布增持計劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799364-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799364-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799364-20250408.htm)
 
 ---

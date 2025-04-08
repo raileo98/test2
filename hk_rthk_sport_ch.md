@@ -1,5 +1,6 @@
 # 歐聯8強首回合　阿仙奴主場3:0皇馬　拜仁作客1:2國際米蘭
 
+![迪格蘭賴斯射入兩個自由球，協助阿仙奴取勝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799517_1_20250409072257.jpg&q=90)
   
 
 歐聯8強首回合，阿仙奴主場3:0大勝皇家馬德里。

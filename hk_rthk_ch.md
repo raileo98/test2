@@ -1,5 +1,29 @@
+# 多米尼加夜總會屋頂坍塌事故增至最少66死　仍有人被困待救
+
+  
+
+多米尼加首都聖多明各一間夜總會屋頂坍塌的事故，當局說增至最少66人死亡，包括一名政界人士及一名棒球明星，另有過百人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799519-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799519-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799519-20250409.htm)
+
+---
+
 # 歐聯8強首回合　阿仙奴主場3:0皇馬　拜仁作客1:2國際米蘭
 
+![迪格蘭賴斯射入兩個自由球，協助阿仙奴取勝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799517_1_20250409072257.jpg&q=90)
   
 
 歐聯8強首回合，阿仙奴主場3:0大勝皇家馬德里。
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm)
-
----
-
-# 外交部：倘美方執意打關稅戰貿易戰　中方必將奉陪到底
-
-![外交部說，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799450_1_20250408171401.jpg&q=80)
-  
-
-美國總統特朗普威脅升級對華關稅，警告若中方不撤回對美國加徵反制關稅的決定，美國會再向中國徵收五成關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm)
 
 ---
