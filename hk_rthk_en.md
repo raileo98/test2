@@ -1,3 +1,27 @@
+# Deadly nightclub disastear rocks Dominican Republic
+
+![Rescue staff find a survivor at the Jet Set nightclub in Santo Domingo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799484_1_20250408221231.jpg&q=90)
+  
+
+Rescuers were on Tuesday racing to find survivers among the rubble of a Dominican Republic night club where at least 18 people died and dozens were hurt in an early-morning roof collapse.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799484-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799484-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799484-20250408.htm)
+
+---
+
 # Fans delight as Coldplay kicks off HK tour
 
 ![Fans begin arriving at the Kai Tak Stadium even before the doors open to the majority of the public at 5pm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799473_1_20250408193720.jpg&q=90)
@@ -1411,29 +1435,5 @@ Impeached Philippine Vice President Sara Duterte has returned home after nearly 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm)
-
----
-
-# Doncic soars as Lakers silence Thunder
-
-![Luka Doncic shoots between Oklahoma City Thunder guards Alex Caruso and Cason Wallace during the second half at Paycom Center. Alonzo Adams-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799203_1_20250407110657.jpg&q=90)
-  
-
-Luka Doncic scored 30 points as the Los Angeles Lakers produced a devastating display of long-range shooting to score a surprising 126-99 blowout over the No1 ranked Oklahoma City Thunder.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799203-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799203-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799203-20250407.htm)
 
 ---

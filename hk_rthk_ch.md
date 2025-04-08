@@ -1,3 +1,26 @@
+# 配合啟德演唱會　港鐵屯馬綫班次加密至約2.5分鐘一班車
+
+  
+
+英國樂隊Coldplay晚上在啟德體育園主場館舉行首場演唱會。運輸署呼籲離場人士盡量乘搭港鐵，署方一直督導公共運輸服務安排，整體交通至今大致暢順。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm)
+
+---
+
 # 美股初段急升逾3%
 
 ![紐約股市初段急升，美股3大主要指數升逾3%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799483_1_20250408213548.jpg&q=90)

@@ -1,3 +1,26 @@
+# 配合啟德演唱會　港鐵屯馬綫班次加密至約2.5分鐘一班車
+
+  
+
+英國樂隊Coldplay晚上在啟德體育園主場館舉行首場演唱會。運輸署呼籲離場人士盡量乘搭港鐵，署方一直督導公共運輸服務安排，整體交通至今大致暢順。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm)
+
+---
+
 # Coldplay啟德主場館演唱會開場　陳茂波及黃偉綸入場欣賞
 
 ![5萬個座位全場爆滿，現場氣氛高漲。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799481_1_20250408212814.jpg&q=65)
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799304-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799304-20250407.htm)
-
----
-
-# 丘應樺晤多個本地商會代表　稱政府致力協助企業應對挑戰
-
-![丘應樺今日與10個本地商會，包括中小企業商會代表會面，聽取業界對美國向香港產品加徵所謂對等關稅一事的意見，以及商討應對措施。（商經局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799302_1_20250407222636.jpg&q=90)
-  
-
-商務及經濟發展局表示，局長丘應樺今日與10個本地商會，包括中小企業商會代表會面，聽取業界對美國向香港產品加徵所謂對等關稅一事的意見，以及商討應對措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799302-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799302-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799302-20250407.htm)
 
 ---
