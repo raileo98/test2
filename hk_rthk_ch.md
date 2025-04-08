@@ -1,3 +1,26 @@
+# 馬來西亞進口冰凍甜點大腸菌群含量超標
+
+  
+
+一款馬來西亞進口冰凍甜點樣本，大腸菌群含量超出法例上限，受影響批次的產品仍存於進口商貨倉，沒有流出市面，並無流出市面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799487-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799487-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799487-20250408.htm)
+
+---
+
 # 行會批准北環線主線鐵路方案　議員料項目總造價或升至上千億元
 
 ![行政長官會同行政會議批准北環線主線的鐵路方案。來往錦上路站和古洞站的行程，預計將由現時繁忙時段約60至80分鐘，大幅減至約12分鐘。（路政署圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799486_1_20250408224548.jpg&q=75)
@@ -24,6 +47,7 @@
 
 # 配合啟德演唱會　港鐵屯馬綫班次加密至約2.5分鐘一班車
 
+![港鐵屯馬綫班次會進一步加密至約2.5分鐘一班車，東鐵綫北行亦會相應加密班次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799485_1_20250408224823.jpg&q=90)
   
 
 英國樂隊Coldplay晚上在啟德體育園主場館舉行首場演唱會。運輸署呼籲離場人士盡量乘搭港鐵，署方一直督導公共運輸服務安排，整體交通至今大致暢順。
