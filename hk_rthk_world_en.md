@@ -1,3 +1,75 @@
+# Trump announces direct nuclear talks with Iran
+
+![US President Donald Trump made the announcement about the Iran talks during a meeting with Israeli Prime Minister Benjamin Netanyahu. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799344_1_20250408083723.jpg&q=90)
+  
+
+US President Donald Trump said the United States was starting direct, high-level talks with Iran over its nuclear programme on Saturday, in an announcement during a White House meeting with Israeli Prime Minister Benjamin Netanyahu.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799344-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799344-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799344-20250408.htm)
+
+---
+
+# Supreme Court backs Trump over Alien Enemies Act
+
+![US President Donald Trump has used the law to deport alleged Venezuelan gang members. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799334_1_20250408075344.jpg&q=80)
+  
+
+The US Supreme Court handed Donald Trump a victory on Monday by letting him use a 1798 law that historically has been employed only in wartime to swiftly deport alleged Venezuelan gang members as part of the Republican president's hardline approach to immigration.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm)
+
+---
+
+# Trump threatens further 50pc tariffs on China
+
+![Last week, Trump put an additional 34 percent tariff on Chinese goods, on top of two rounds of 10 percent tariffs already declared in February and March. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799320_1_20250408012952.jpg&q=90)
+  
+
+US President Donald Trump on Monday threatened huge additional tariffs on imports from China, raising the possibility of further escalation in a trade war that has already wiped trillions of dollars from global markets.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm)
+
+---
+
 # Britain may close hundreds of quangos to cut costs
 
 ![Quangos, or quasi-autonomous non-governmental organizations, will be reviewed with a view to closing or merging them or bringing their functions back into government departments. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799284_1_20250407182022.jpg&q=75)
@@ -1363,77 +1435,5 @@ A French appeals court said on Tuesday it would examine Marine Le Pen's case wit
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm)
-
----
-
-# Far-right party chief calls for rally over Le Pen ban
-
-![Marine Le Pen with Jordan Bardella at the Elysee presidential palace in Paris in August. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798485_1_20250401174939.jpg&q=85)
-  
-
-Far-right party chief Jordan Bardella called on the French to rally this weekend to protest against a ruling that banned Marine Le Pen from running for public office for five years after being found guilty of embezzling European Union funds.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm)
-
----
-
-# Junta leader fears worse to come as toll passes 2,700
-
-![People are preferring to take their chances out in the open in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798458_1_20250401162658.jpg&q=90)
-  
-
-Aid groups in the worst-hit areas of Myanmar said there was an urgent need for shelter, food and water after an earthquake that killed more than 2,700 people, but said the country's civil war could prevent help reaching those in need.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm)
-
----
-
-# Three killed in Beirut as Israel targets top militant
-
-![The airstrike targeted a Hezbollah militant in the top three floors of a building in south Beirut. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798455_1_20250401160916.jpg&q=90)
-  
-
-At least three people were killed and seven wounded in an Israeli airstrike on Beirut's southern suburbs on Tuesday, the Lebanese health ministry said, further testing a shaky four-month ceasefire between Israel and Hezbollah.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm)
 
 ---

@@ -1,4 +1,28 @@
-# HK market functioning normally despite sell-off: FS
+# Chinese culture festival 'modernises tradition'
+
+!["Dongpo: Life in Poems" will be performed by the China Oriental Performing Arts Group. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799291_1_20250407215236.jpg&q=90)
+  
+
+A modern dance drama inspired by renowned Chinese poet Su Dongpo and innovative works relating to tea are some of the highlights of an upcoming Chinese Culture Festival organised by the Leisure and Cultural Services Department (LCSD).
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm)
+
+---
+
+# HK market functioning normally amid sell-off: FS
 
 ![Paul Chan says investors should exercise caution going forward as market fluctuations are expected to continue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799293_1_20250407191203.jpg&q=80)
   
@@ -1411,29 +1435,5 @@ Secretary for Justice Paul Lam has stressed sanctions imposed by the United Stat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm)
-
----
-
-# Top court overturns ex-lawmaker's acquittal
-
-![In a 3-2 ruling, the Court of Final Appeal overturns former lawmaker Lam Cheuk-ting's acquittal. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798417_1_20250401121740.jpg&q=80)
-  
-
-Hong Kong's top court has overturned the acquittal of a former lawmaker for revealing that a police officer who was on duty during clashes in Yuen Long amid the 2019 protests was facing an anti-graft probe.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798417-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798417-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798417-20250401.htm)
 
 ---

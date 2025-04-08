@@ -1,3 +1,27 @@
+# 英超紐卡素3:0大勝李斯特城　西甲雷加利斯1:1奧沙辛拿
+
+![積及梅菲（左）開賽初段已經為紐卡素攻入兩球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799336_1_20250408072942.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，紐卡素以3:0大勝李斯特城。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799336-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799336-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799336-20250408.htm)
+
+---
+
 # 英超利物浦2:3富咸　曼聯0:0曼城
 
 ![利物浦作客2:3不敵富咸，今季聯賽第二次輸波。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799164_1_20250407080734.jpg&q=90)
@@ -1435,29 +1459,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797606-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797606-20250327.htm)
-
----
-
-# 運輸署建議七欖觀眾乘港鐵往啟德主場館　港鐵加密屯馬綫列車班次
-
-![鄧竟成（左二）說，體育園將不斷累積經驗，與主辦方合作及調整營運及溝通，合辦香港盛事。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797522_1_20250326203304.jpg&q=80)
-  
-
-香港國際七人欖球賽將於本星期五起，一連三日舉行，啟德體育園表示，有信心與主辦單位合辦一件盛事，運輸署表示，港鐵及公共巴士將會有特別安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm)
 
 ---

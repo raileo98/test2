@@ -1,3 +1,147 @@
+# Trump announces direct nuclear talks with Iran
+
+![US President Donald Trump made the announcement about the Iran talks during a meeting with Israeli Prime Minister Benjamin Netanyahu. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799344_1_20250408083723.jpg&q=90)
+  
+
+US President Donald Trump said the United States was starting direct, high-level talks with Iran over its nuclear programme on Saturday, in an announcement during a White House meeting with Israeli Prime Minister Benjamin Netanyahu.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799344-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799344-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799344-20250408.htm)
+
+---
+
+# Supreme Court backs Trump over Alien Enemies Act
+
+![US President Donald Trump has used the law to deport alleged Venezuelan gang members. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799334_1_20250408075344.jpg&q=80)
+  
+
+The US Supreme Court handed Donald Trump a victory on Monday by letting him use a 1798 law that historically has been employed only in wartime to swiftly deport alleged Venezuelan gang members as part of the Republican president's hardline approach to immigration.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm)
+
+---
+
+# Wall Street closes mostly lower but no big sell-off
+
+![The Dow Jones and the S&P 500 both closed less than a percentage lower, while the Nasdaq rose slightly. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799327_1_20250408051648.jpg&q=90)
+  
+
+Wall Street stocks finished mostly lower on Monday following a volatile session amid rising recession worries due to US President Donald Trump's trade wars.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799327-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799327-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799327-20250408.htm)
+
+---
+
+# Trump threatens further 50pc tariffs on China
+
+![Last week, Trump put an additional 34 percent tariff on Chinese goods, on top of two rounds of 10 percent tariffs already declared in February and March. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799320_1_20250408012952.jpg&q=90)
+  
+
+US President Donald Trump on Monday threatened huge additional tariffs on imports from China, raising the possibility of further escalation in a trade war that has already wiped trillions of dollars from global markets.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm)
+
+---
+
+# Wild swings on Wall Street amid tariff fears
+
+![All three major US indices were at more than one-year lows in early trading on Monday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799307_1_20250407222802.jpg&q=85)
+  
+
+Wall Street stocks opened sharply lower on Monday amid worries that a trade war induced by US President Donald Trump's tariffs will spark a global economic slowdown.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799307-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799307-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799307-20250407.htm)
+
+---
+
+# Chinese culture festival 'modernises tradition'
+
+!["Dongpo: Life in Poems" will be performed by the China Oriental Performing Arts Group. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799291_1_20250407215236.jpg&q=90)
+  
+
+A modern dance drama inspired by renowned Chinese poet Su Dongpo and innovative works relating to tea are some of the highlights of an upcoming Chinese Culture Festival organised by the Leisure and Cultural Services Department (LCSD).
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm)
+
+---
+
 # Southampton sack manager Ivan Juric after relegation
 
 ![Under Juric, the Saints have lost seven of their past eight league matches. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799297_1_20250407195542.jpg&q=90)
@@ -22,7 +166,7 @@ Southampton have sacked manager Ivan Juric following their relegation from the P
 
 ---
 
-# HK market functioning normally despite sell-off: FS
+# HK market functioning normally amid sell-off: FS
 
 ![Paul Chan says investors should exercise caution going forward as market fluctuations are expected to continue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799293_1_20250407191203.jpg&q=80)
   
@@ -1291,149 +1435,5 @@ The Director of Water Supplies said on Saturday that while the department is sti
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm)
-
----
-
-# Verstappen snatches 'insane' pole for Japan GP
-
-![Red Bull's Max Verstappen celebrates smashing the track record at Suzuka. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799043_1_20250405162226.jpg&q=90)
-  
-
-Four-time world champion Max Verstappen smashed the track record to snatch pole position for Sunday's Japanese Grand Prix ahead of McLaren's Lando Norris, as Yuki Tsunoda qualified a lowly 15th on his Red Bull debut.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799043-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799043-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799043-20250405.htm)
-
----
-
-# Youth facilities to open in Kai Tak by October
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799037_1_20250405154953.jpg&q=80)
-  
-
-Secretary for Home and Youth Affairs Alice Mak on Saturday said youth facilities will be set up at the original site of an isolation facility in Kai Tak by October this year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799037-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799037-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799037-20250405.htm)
-
----
-
-# Myanmar quake death toll passes 3,300
-
-![Many people have to sleep outdoors because their homes were destroyed. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799034_1_20250405153937.jpg&q=85)
-  
-
-The death toll from a major earthquake in Myanmar has risen above 3,300, state media said on Saturday, as the United Nations aid chief made a renewed call for the world to help the disaster-struck nation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799034-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799034-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799034-20250405.htm)
-
----
-
-# Manufacturers told to look for markets outside US
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799027_1_20250405130110.jpg&q=90)
-  
-
-The former president of the Chinese Manufacturers' Association of Hong Kong has called on entrepreneurs to look for new markets away from the US.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799027-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799027-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799027-20250405.htm)
-
----
-
-# Housing Society to complete tenant checks in late 2026
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799023_1_20250405122827.jpg&q=80)
-  
-
-The Hong Kong Housing Society on Saturday said it hopes to complete checks for well-off tenants by November of next year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799023-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799023-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799023-20250405.htm)
-
----
-
-# Retaliatory tariffs on US goods 'aim to cause pain'
-
-![Lau Siu-kai, a consultant to the Chinese Association of Hong Kong and Macau Studies, said China's measures were not gestures. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799015_1_20250405103147.jpg&q=80)
-  
-
-A senior member of a leading national think tank says China's retaliatory tariffs on the US aim to cause pain. Lau Siu-kai, a consultant to the Chinese Association of Hong Kong and Macau Studies, said that given the difficult trade situation, China's retaliatory measures were not gestures, saying otherwise they would be meaningless.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm)
 
 ---

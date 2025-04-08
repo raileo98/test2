@@ -1,3 +1,147 @@
+# 選舉事務處為兩場選舉預留約15億元
+
+![選舉事務處為兩場選舉預留大約15億1300萬元撥款。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799313_1_20250407231141.jpg&q=90)
+  
+
+第8屆立法會選舉將於12月7日舉行；在選舉前會舉行選委會界別分組補選，定於9月7日進行。當局初步預計需要招募大約38500名政府人員參與相關工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799313-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799313-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799313-20250407.htm)
+
+---
+
+# 水務署稱將加快舊水管更換修復　分階段擴大「智管網」監測範圍
+
+![署方說，就兩宗事故進行調查，並向發展局提交報告後，實施多項措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799312_1_20250407231007.jpg&q=85)
+  
+
+水務署表示，去年深水埗荔枝角道水管爆裂引致路陷，以及東涌翔東路的水管爆裂事故導致附近屋苑停水12小時，期間訊息發布顯示協調方面不足。署方在社交網站說，就兩宗事故進行調查，並向發展局提交報告後，實施多項措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799312-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799312-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799312-20250407.htm)
+
+---
+
+# 針對工地高危工序　勞工處料今年下半年利用無人機助執法
+
+![針對工地高危工序　勞工處料今年下半年利用無人機助執法](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799311_1_20250407230937.jpg&q=90)
+  
+
+勞工處在2023至24年度，就致命工業意外提出146項檢控、以及115張定罪傳票，是近三個財政年度最低，而每張傳票判處的平均罰款金額為24007元，高於對上兩個財政年度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799311-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799311-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799311-20250407.htm)
+
+---
+
+# Coldplay觀眾可帶指定容量塑料或硅膠水杯進場　不得有蓋
+
+![英國樂隊Coldplay演唱會將於明天、星期三、星期五及星期六晚在啟德主場館舉行。（Live Nation 社交網站截圖)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799305_1_20250407220235.jpg&q=90)
+  
+
+英國樂隊Coldplay演唱會將於明天、星期三、星期五及星期六晚在啟德主場館舉行。演唱會主辦單位昨日在社交平台公布， 觀眾可攜帶容量不超過600毫升的塑料或硅膠水瓶或杯進場。啟德體育園表示，水瓶或水杯不得附有瓶蓋或杯蓋。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799305-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799305-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799305-20250407.htm)
+
+---
+
+# 私隱專員公署去年收624宗資料外洩個案　較前一年增近五成
+
+![公署說，近年個人資料外洩個案呈上升趨勢，政府和公署十分關注。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799304_1_20250407222708.jpg&q=80)
+  
+
+個人資料私隱專員公署去年接獲624宗有關個人資料外洩的個案，較前一年高出超過47%，也是過去三年之中最高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799304-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799304-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799304-20250407.htm)
+
+---
+
+# 丘應樺晤多個本地商會代表　稱政府致力協助企業應對挑戰
+
+![丘應樺今日與10個本地商會，包括中小企業商會代表會面，聽取業界對美國向香港產品加徵所謂對等關稅一事的意見，以及商討應對措施。（商經局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799302_1_20250407222636.jpg&q=90)
+  
+
+商務及經濟發展局表示，局長丘應樺今日與10個本地商會，包括中小企業商會代表會面，聽取業界對美國向香港產品加徵所謂對等關稅一事的意見，以及商討應對措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799302-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799302-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799302-20250407.htm)
+
+---
+
 # 5歲男童新冠肺炎併發嘶吼症　情況危殆
 
 ![一名患有長期病患的5歲男童確診新冠病毒併發嘶吼症，目前情況危殆。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799299_1_20250407202709.jpg&q=85)
@@ -1292,150 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm)
-
----
-
-# 港大醫學院與團體辦外傭免費體檢活動　逾百人參與
-
-![過百名外傭到場參加。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799120_2_20250406162418.jpg&q=85)
-  
-
-港大醫學院和中風研究組首次在醫學院校園，舉辦外傭免費健康檢查活動，以提升外傭對中風的關注度和認識，從而積極預防並及早治療，過百名外傭到場參加。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799120-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799120-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799120-20250406.htm)
-
----
-
-# 旅發局促成逾50大型國際會展活動在港舉辦　料共26萬人次參與
-
-![考察團到香港會議展覽中心參觀展覽場地和會議室，作為日後選址香港舉辦會展活動的參考。（政府新聞網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799117_1_20250406161237.jpg&q=80)
-![成穎詩表示，隨着會展旅遊強勁復蘇和國際航空運力進一步恢復，相信會迎來更多會展旅客。（政府新聞網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799117_2_20250406161237.jpg&q=90)
-  
-
-旅發局表示，已成功競投和促成56個大型國際會展活動今年在港舉辦，其中16個活動是首度落戶香港，涵蓋金融科技、創科、醫療科學、航空等領域。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799117-20250406.htm)
-
----
-
-# 前旺角街市大樓改建地區康健中心　近日取得入伙紙
-
-![康健中心面向亞皆老街方向採用落地大玻璃設計。（市建網誌設計構想圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799116_1_20250406160819.jpg&q=90)
-  
-
-市建局行政總監韋志成在網誌表示，市建局將前旺角街市大樓翻新成地區康健中心的工程，最近取得「入伙紙」及消防處批出的「消防紙」，未來數月加緊內部裝修及執修，配合今年內將油尖旺區地區康健站提升為地區康健中心的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799116-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799116-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799116-20250406.htm)
-
----
-
-# 中國國際救援隊聯同中國救援隊及中國香港救援隊續於緬甸災區義診
-
-![央視新聞報道，中國國際救援隊聯同中國救援隊及中國香港救援隊，繼續在緬甸曼德勒市受災群眾安置點義診。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799109_1_20250406141841.jpg&q=85)
-  
-
-央視新聞報道，中國國際救援隊聯同中國救援隊及中國香港救援隊，繼續在緬甸曼德勒市受災群眾安置點義診，派出內科、外科、兒科、心理諮詢等專業醫療專家及護士超過20人，以心電圖機、可携式X光機等檢查設備，為災民量血壓及進行超聲波等檢查，並免費發放藥品，昨日共診治180多人次、輔助檢查化驗59人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799109-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799109-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799109-20250406.htm)
-
----
-
-# 盧寵茂：公立醫院收費改革有如送市民保險
-
-![盧寵茂說，改革永遠在路上，沒有一個醫療體制是完美。（無綫電視節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799107_1_20250406125726.jpg&q=90)
-  
-
-公立醫院收費改革首階段明年元旦起實施，醫務衞生局局長盧寵茂在一個電視台節目表示，有關收費改革已討論多年，強調能夠幫助到全港700多萬市民，就像政府送出一份保險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799107-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799107-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799107-20250406.htm)
-
----
-
-# Coldplay啟德演唱會周二展開　運輸署籲過境旅客預早計劃
-
-![英國樂隊Coldplay將於本月在啟德體育園主場館舉行巡迴演唱會。（Coldplay社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799106_1_20250406125826.jpg&q=90)
-  
-
-因應英國樂隊Coldplay將於本月在啟德體育園主場館舉行巡迴演唱會，運輸署表示，本月8、9、11及12日晚上將於啟德體育園實施特別交通及運輸安排，以便利觀眾往返，同時提醒過境旅客預早計劃行程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799106-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799106-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799106-20250406.htm)
 
 ---

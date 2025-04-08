@@ -1,3 +1,51 @@
+# 中國駐美使館發言人：施壓或威脅不是與中國打交道的正確方式
+
+![中國駐美使館發言人：施壓或威脅不是與中國打交道的正確方式](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799326_1_20250408045319.jpg&q=90)
+  
+
+美國總統特朗普警告，若果北京不撤回計劃採取的反制措施，美國就會對中國產品再徵收額外50%的關稅，中方重申不會屈服於壓力或威脅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799326-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799326-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799326-20250408.htm)
+
+---
+
+# 央企中國誠通和中國國新控股分別增持中國股票資產
+
+![央企中國誠通和中國國新控股分別增持中國股票資產](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799316_1_20250408003744.jpg&q=90)
+  
+
+繼中央匯金後，央企中國誠通和中國國新控股，分別增持中國股票資產。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799316-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799316-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799316-20250408.htm)
+
+---
+
 # 中央紀委國家監委駐中央組織部紀檢監察組原組長李剛開除黨籍公職
 
 ![中央紀委國家監委駐中央組織部紀檢監察組原組長李剛開除黨籍公職](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799294_1_20250407192341.jpg&q=90)
@@ -1393,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm)
-
----
-
-# 滬深京交易所發布程序化交易管理實施細則　7月7日起實施
-
-![上海、深圳和北京證券交易所發布程序化交易管理實施細則，對程序化交易實行實時監控，將於7月7日起實施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798843_1_20250403192505.jpg&q=90)
-  
-
-上海、深圳和北京證券交易所發布程序化交易管理實施細則，對程序化交易實行實時監控，重點監控瞬時申報速率異常、頻繁瞬時撤單、頻繁拉抬打壓、短時間大額成交等異常交易行為，細則將於7月7日起實施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798843-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798843-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798843-20250403.htm)
-
----
-
-# 金管總局：保險機構應全部使用自有資金開展重大股權投資
-
-![國家金融監督管理總局表示，保險機構應當全部使用自有資金開展重大股權投資，防止無序擴張。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798845_1_20250403193211.jpg&q=80)
-  
-
-國家金融監督管理總局表示，保險機構應當全部使用自有資金開展重大股權投資，要審慎開展，並加強對股權投資的統籌管理，防止無序擴張。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm)
 
 ---
