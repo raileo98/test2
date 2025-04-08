@@ -1,3 +1,27 @@
+# 兗礦能源擬斥資約140.7億元收購西北礦業51%股權
+
+![兗礦能源計劃收購控股股東山東能源旗下的西北礦業51%股權，涉及交易總額約140.7億元。（港交所截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799488_1_20250408225917.jpg&q=90)
+  
+
+兗礦能源公布，計劃收購控股股東山東能源旗下的西北礦業51%股權。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799488-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799488-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799488-20250408.htm)
+
+---
+
 # 美股初段急升逾3%
 
 ![紐約股市初段急升，美股3大主要指數升逾3%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799483_1_20250408213548.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799352-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799352-20250408.htm)
-
----
-
-# 金融監管總局發通知上調權益資產配置比例上限
-
-![金融監管總局調整保險資金權益類資產監管比例，將部分檔位償付能力充足率對應的權益類資產比例上調5%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799348_1_20250408085614.jpg&q=85)
-  
-
-國家金融監管總局發布通知，調整保險資金權益類資產監管比例，上調權益資產配置比例上限，將部分檔位償付能力充足率對應的權益類資產比例上調5%，進一步拓寛權益投資空間，為實體經濟提供更多股權性資本。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799348-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799348-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799348-20250408.htm)
 
 ---

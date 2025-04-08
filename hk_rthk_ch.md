@@ -1,3 +1,27 @@
+# 兗礦能源擬斥資約140.7億元收購西北礦業51%股權
+
+![兗礦能源計劃收購控股股東山東能源旗下的西北礦業51%股權，涉及交易總額約140.7億元。（港交所截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799488_1_20250408225917.jpg&q=90)
+  
+
+兗礦能源公布，計劃收購控股股東山東能源旗下的西北礦業51%股權。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799488-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799488-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799488-20250408.htm)
+
+---
+
 # 馬來西亞進口冰凍甜點大腸菌群含量超標
 
   
