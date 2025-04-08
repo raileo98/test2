@@ -1,3 +1,27 @@
+# 央視玉淵譚天文章指美國關稅全球憤怒　中方被迫反制合理合情合法
+
+![文章引述學者指中國受惠於內部經濟穩定及更强的經濟韌性，提前儲備了抗外部衝擊的能力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799504_1_20250409024456.jpg&q=90)
+  
+
+央視旗下新媒體專欄玉淵譚天發表文章指出，美國對華加徵關稅將超過100%，美國關稅已讓全球憤怒，中國人不惹事也不怕事，奉陪到底。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799504-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799504-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799504-20250409.htm)
+
+---
+
 # 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關銳
 
 ![格里爾說部分國家已釋出信號，希望找到一條貿易互惠之路。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799502_1_20250409015525.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799265-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799265-20250407.htm)
-
----
-
-# 中方冀南韓有序推進政治議程　保持政局和社會穩定
-
-![林劍稱中方希望南韓有序地推進國內的政治議程。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799257_1_20250407155309.jpg&q=90)
-  
-
-在北京，外交部發言人林劍回應南韓憲法法院罷免尹錫悅總統職務，指這是南韓內部事務，中方希望南韓有序推進國內的政治議程，保持政局和社會穩定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm)
 
 ---

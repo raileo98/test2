@@ -1,5 +1,30 @@
+# 央視玉淵譚天文章指美國關稅全球憤怒　中方被迫反制合理合情合法
+
+![文章引述學者指中國受惠於內部經濟穩定及更强的經濟韌性，提前儲備了抗外部衝擊的能力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799504_1_20250409024456.jpg&q=90)
+  
+
+央視旗下新媒體專欄玉淵譚天發表文章指出，美國對華加徵關稅將超過100%，美國關稅已讓全球憤怒，中國人不惹事也不怕事，奉陪到底。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799504-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799504-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799504-20250409.htm)
+
+---
+
 # 孫東稱國際創科營商周將向世界展示香港創科實力與獨特優勢
 
+![孫東表示「國際創科營商周」將匯聚來自29個國家和地區的創科界別菁英及超過2800家展商。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799503_1_20250409024205.jpg&q=90)
   
 
 創新科技及工業局舉辦的「國際創科營商周」將於本月稍後舉行，屆時將舉行多項創新科技盛事，包括由政府資助的旗艦活動「香港國際創科展」，以及當局大力推動的第二屆「香港世界青年科學大會」等。同期舉行的還包括「世界互聯網大會亞太峰會」。
@@ -1419,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm)
-
----
-
-# 港股高收299點　科指反彈近4%
-
-![恒指重上20000點以上，最多升逾600點，收市報20127點，升299點，升幅1.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799437_1_20250408162839.jpg&q=65)
-  
-
-港股經過昨日顯著急挫後反彈。恒指重上20000點關口以上，最多升逾600點，觸及20454點，其後最多曾倒跌逾80點，收市報20127點，升299點，升幅1.51%，主板成交額近4332億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm)
 
 ---
