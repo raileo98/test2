@@ -27,7 +27,7 @@ Tram fares will go up by up to 15 percent starting from May 12.
 ![Financial Secretary Paul Chan, centre back row, says more than 80 strategic enterprises have set up in Hong Kong in the past two years. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799460_1_20250408181322.jpg&q=90)
   
 
-Financial secretary Paul Chan said on Tuesday the Office for Attracting Strategic Enterprises, OASES, will seek to attract cultural enterprises in the future in a way that combines innovation and technology with artistry.
+Financial Secretary Paul Chan said on Tuesday the Office for Attracting Strategic Enterprises, OASES, will seek to attract cultural enterprises in the future in a way that combines innovation and technology with artistry.
 
   
 

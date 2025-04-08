@@ -1,3 +1,49 @@
+# 文憑試公民科開考　首次有「是否同意」題目
+
+  
+
+文憑試公民與社會發展科開考。不少考生表示，試卷較簡單。有公民科教師估計今年達標率會與往年相若。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799468-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799468-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799468-20250408.htm)
+
+---
+
+# 18家銀行同意為進出口製造業彈性延長貿易融資貸款還款期
+
+  
+
+金管局與多間銀行及商會舉行會議，銀行業界承諾繼續落實支持中小企的「9+5」措施，而「中小企融資專責小組」的18家參與銀行同意為進出口製造業，彈性延長貿易融資貸款還款期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm)
+
+---
+
 # Coldplay啟德演唱會即將舉行　有觀眾中午已到場排隊
 
   
@@ -71,6 +117,7 @@
 
 # 工總稱銀行彈性延長貿易融資貸款還款期　對中小企是很大幫忙
 
+![莊子雄說業界面對很大困難，特別是資金周轉，現金流亦受影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799462_1_20250408183155.jpg&q=80)
   
 
 香港工業總會主席莊子雄表示，關稅戰對製造業、進出口業、物流等都帶來挑戰，不只香港的出口商，有不少美國進口商亦不知道如何應對。
@@ -240,6 +287,7 @@
 
 # 貿發局：新貿易走廊可降低關稅影響
 
+![范婉兒表示，香港企業早已準備應對美國關稅措施，認為新貿易走廊可降低關稅影響。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799451_1_20250408183623.jpg&q=75)
   
 
 貿發局研究總監范婉兒表示，香港企業早已準備應對美國關稅措施，2017至2024年期間，香港對美國出口下跌約9-10%，但整體出口同期增加17%，當中向東盟及中東出口分別增加39%和40%，認為新貿易走廊可降低關稅影響。
@@ -311,6 +359,7 @@
 
 # 渣打：期望內地及美國以外地區推出措施穩定全球需求惠及香港出口
 
+![劉健恒稱市場過份憧憬年內大幅減息，認為聯儲局需平衡經濟增長及通脹。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799445_1_20250408183427.jpg&q=90)
   
 
 渣打大中華及北亞區高級經濟師劉健恒認為，「特朗普1.0」時透過增加對其他地方出口以應對關稅的策略，今次未必能再奏效。
@@ -474,30 +523,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm)
-
----
-
-# 有教師稱公民科試卷深淺與去年相若　考生需用課堂或日常知識作例
-
-![聖士提反堂中學公民科科主任姚志偉（左）表示，試卷深淺程度與去年相若。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799428_1_20250408153910.jpg&q=80)
-  
-
-文憑試公民與社會發展科今日開考。成績繼續分為「達標」和「不達標」，有約4萬8千人報考。多名考生均表示，試卷較簡單，有信心取得「達標」的成績，有公民科教師認為試卷不太難，估計今年達標率亦會與往年相若。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799428-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799428-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799428-20250408.htm)
 
 ---
 
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799285-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799285-20250407.htm)
-
----
-
-# 回應取消2500元學生津貼　蔡若蓮：面對財政挑戰時要有所抉擇
-
-![蔡若蓮說，2500元學生津貼屬2019年紓困措施之一，目前社會經濟環境已起變化，是否仍有紓困需要。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799282_1_20250407182418.jpg&q=90)
-  
-
-新一份財政預算案提出取消中小學及幼稚園2500元的學生津貼。多名議員在立法會財委會特別會議表達關注。教育局局長蔡若蓮強調，有關措施不涉資產審查，涉款20億元，認為面對財政挑戰時期要有所抉擇，希望將資源投放在確保教育質素，有針對性協助有需要學生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799282-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799282-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799282-20250407.htm)
 
 ---
