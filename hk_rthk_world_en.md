@@ -1,3 +1,27 @@
+# Musk slams Trump trade adviser as a 'moron'
+
+![Elon Musk says Peter Navarro "is dumber than a sack of bricks." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799497_1_20250409001640.jpg&q=90)
+  
+
+Elon Musk on Tuesday described Peter Navarro, a senior White House trade adviser, as "truly a moron" in a growing rift over Donald Trump's tariff policy.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799497-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799497-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799497-20250409.htm)
+
+---
+
 # Deadly nightclub disaster rocks Dominican Republic
 
 ![Rescue staff find a survivor at the Jet Set nightclub in Santo Domingo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799484_1_20250408221231.jpg&q=90)
@@ -1411,29 +1435,5 @@ China's embassy in Bangkok called on the country's companies operating abroad to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm)
-
----
-
-# Seoul braces for clashes over Yoon ruling
-
-![Police officers get ready for a potential showdown on Friday between pro and anti-Yoon supporters near the entrance of the Constitutional Court in Seoul. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798612_1_20250402141524.jpg&q=80)
-  
-
-South Korean police will mobilise "all available resources" to prevent violence when a court rules on Friday on the fate of impeached President Yoon Suk Yeol, with top tourist sites to close and embassies warning citizens to stay away.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798612-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798612-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798612-20250402.htm)
 
 ---

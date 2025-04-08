@@ -1,3 +1,27 @@
+# Musk slams Trump trade adviser as a 'moron'
+
+![Elon Musk says Peter Navarro "is dumber than a sack of bricks." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799497_1_20250409001640.jpg&q=90)
+  
+
+Elon Musk on Tuesday described Peter Navarro, a senior White House trade adviser, as "truly a moron" in a growing rift over Donald Trump's tariff policy.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799497-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799497-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799497-20250409.htm)
+
+---
+
 # Referees to wear body cameras at Club World Cup
 
 ![During this year's competition refs will also attempt to crack down on time-wasting by goalkeepers. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799493_1_20250408234007.jpg&q=90)
@@ -1411,29 +1435,5 @@ Alex Ovechkin scored his 895th NHL career goal, etching his name into ice hockey
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799168-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799168-20250407.htm)
-
----
-
-# Man City held by Man Utd in derby stalemate
-
-![Manchester City's hopes of Champions League qualification remain in the balance after a dismal derby at Manchester United ended in a 0-0 stalemate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799169_1_20250407081504.jpg&q=85)
-  
-
-Manchester United boss Ruben Amorim said his side must improve "everywhere" after a dismal derby against Manchester City ended 0-0 on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799169-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799169-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799169-20250407.htm)
 
 ---
