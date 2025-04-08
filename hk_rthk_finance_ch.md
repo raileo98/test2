@@ -1,3 +1,50 @@
+# 銀行公會歡迎金管局與銀行業推出針對個別行業支持措施
+
+![銀行公會歡迎金管局與銀行業針對個別行業推出支持措施，協助中小企減輕資金壓力及升級轉型。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799464_1_20250408182755.jpg&q=90)
+  
+
+銀行公會表示，歡迎金管局與銀行業推出針對個別行業的支持措施，協助更多中小企減輕資金流動性壓力及升級轉型。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799464-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799464-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799464-20250408.htm)
+
+---
+
+# 18家銀行同意為進出口製造業彈性延長貿易融資貸款還款期
+
+  
+
+金管局與多間銀行及商會舉行會議，銀行業界承諾繼續落實支持中小企的「9+5」措施，而「中小企融資專責小組」的18家參與銀行同意為進出口製造業，彈性延長貿易融資貸款還款期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm)
+
+---
+
 # 世邦魏理仕下調今年甲級寫字樓新租務成交至下跌5%
 
 ![世邦魏理仕下調部分商業房地產市道表現預測。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799440_1_20250408164554.jpg&q=85)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799339-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799339-20250408.htm)
-
----
-
-# 港股ADR較本港昨日收市個別發展
-
-![港股美國預託證券個別發展，滙控較本港昨日收市價升逾2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799333_1_20250408070345.jpg&q=90)
-  
-
-港股美國預託證券(ADR)個別發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799333-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799333-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799333-20250408.htm)
-
----
-
-# 美元指數反彈近0.9%
-
-![美元指數回升，較早時報103.5，升近0.9%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799335_1_20250408072754.jpg&q=75)
-  
-
-美元指數回升，較早時報103.5，升近0.9%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799335-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799335-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799335-20250408.htm)
 
 ---

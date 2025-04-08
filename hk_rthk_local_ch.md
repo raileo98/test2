@@ -1,3 +1,27 @@
+# 銀行公會歡迎金管局與銀行業推出針對個別行業支持措施
+
+![銀行公會歡迎金管局與銀行業針對個別行業推出支持措施，協助中小企減輕資金壓力及升級轉型。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799464_1_20250408182755.jpg&q=90)
+  
+
+銀行公會表示，歡迎金管局與銀行業推出針對個別行業的支持措施，協助更多中小企減輕資金流動性壓力及升級轉型。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799464-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799464-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799464-20250408.htm)
+
+---
+
 # 文憑試公民科開考　首次有「是否同意」題目
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799286-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799286-20250407.htm)
-
----
-
-# 復活節兒童可免費乘機鐵　市區增設售票機乘客可先乘車後付費
-
-![港鐵即日起至下月5日，推出機場快綫小童免費乘車優惠，持小童八達通的3至11歲兒童，可免費乘機鐵往返機場和3個市區車站。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799285_1_20250407183239.jpg&q=80)
-  
-
-為配合復活節出遊高峰期的需求，港鐵即日起至下月5日，推出機場快綫小童免費乘車優惠，持小童八達通的3至11歲兒童，可免費乘機鐵往返機場和3個市區車站，即香港站、九龍站及青衣站。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799285-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799285-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799285-20250407.htm)
 
 ---
