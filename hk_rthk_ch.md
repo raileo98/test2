@@ -1,3 +1,27 @@
+# 英法德股市反彈逾2%收市
+
+![英國富時100指數收報7910點，升208點，升幅2.71%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799512_1_20250409052451.jpg&q=85)
+  
+
+歐洲3大指數反彈逾2%。投資者繼續關注各國對美國加徵關稅的反應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799512-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799512-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799512-20250409.htm)
+
+---
+
 # 特朗普稱關稅措施對其美國願景至關重要　推出後大量錢湧入美國
 
   
@@ -1419,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799445-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799445-20250408.htm)
-
----
-
-# 再引進18間重點企業　陳茂波指連同早前企業帶來500億元投資
-
-![陳茂波表示，新一批引進企業未來會為香港帶來500億元的投資，創造2萬個職位。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799444_1_20250408170605.jpg&q=80)
-  
-
-引進重點企業辦公室下午舉辦重點企業夥伴簽約儀式，公布第四批共18間重點企業名單，當中涉及人工智能與數據科學，生命健康科技，先進製造與新能源科技等行業，14間企業來自內地，2間來自美國，1間來自新加坡，另有1間不公開企業名稱。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799444-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799444-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799444-20250408.htm)
 
 ---

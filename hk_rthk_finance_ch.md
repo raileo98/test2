@@ -1,3 +1,27 @@
+# 英法德股市反彈逾2%收市
+
+![英國富時100指數收報7910點，升208點，升幅2.71%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799512_1_20250409052451.jpg&q=85)
+  
+
+歐洲3大指數反彈逾2%。投資者繼續關注各國對美國加徵關稅的反應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799512-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799512-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799512-20250409.htm)
+
+---
+
 # 特朗普稱關稅措施對其美國願景至關重要　推出後大量錢湧入美國
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799359-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799359-20250408.htm)
-
----
-
-# 恒指反彈329點　重上20000點
-
-![恒生競價時段報20157點，升329點，升幅1.66%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799358_1_20250408092244.jpg&q=15)
-  
-
-港股經過昨日大跌後，今日高開逾300點，恒指重上20000點，競價時段報20157點，升329點，升幅1.66%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799358-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799358-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799358-20250408.htm)
 
 ---
