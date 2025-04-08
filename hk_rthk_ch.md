@@ -1,3 +1,26 @@
+# 據了解警方發現6人涉高價兜售演唱會門票　警方稱續打擊黃牛活動
+
+  
+
+英國樂隊Coldplay在啟德體育園主場館舉行的首場演唱會。據了解，警方共發現6人涉嫌高價兜售演唱會門票，會向其中1人發傳票票控，並拘捕餘下5名內地人，因他們涉嫌違反逗留條件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799496-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799496-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799496-20250408.htm)
+
+---
+
 # Coldplay演唱會完場後約一小時　全部觀眾大致離開園區
 
   

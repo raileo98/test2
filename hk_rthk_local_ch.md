@@ -1,3 +1,26 @@
+# 據了解警方發現6人涉高價兜售演唱會門票　警方稱續打擊黃牛活動
+
+  
+
+英國樂隊Coldplay在啟德體育園主場館舉行的首場演唱會。據了解，警方共發現6人涉嫌高價兜售演唱會門票，會向其中1人發傳票票控，並拘捕餘下5名內地人，因他們涉嫌違反逗留條件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799496-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799496-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799496-20250408.htm)
+
+---
+
 # Coldplay演唱會完場後約一小時　全部觀眾大致離開園區
 
   
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799355-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799355-20250408.htm)
-
----
-
-# 羅淑佩稱「甲亢哥」來港讓世界知道香港是安全及可隨時到訪地方
-
-![羅淑佩表示，「甲亢哥」來港是快閃行程，據了解對方未必想與官方渠道合作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799353_1_20250408093901.jpg&q=80)
-  
-
-美國網紅IShowSpeed又稱「甲亢哥」日前來港及進行直播，吸引不少市民圍觀拍攝。文化體育及旅遊局局長羅淑佩表示，即興是對方的賣點，今次行程展示了香港街頭及有趣事情，讓世界知道香港是安全及隨時都能到訪的地方，任何人來到香港，只要守秩序就可以玩得很開心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799353-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799353-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799353-20250408.htm)
 
 ---
