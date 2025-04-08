@@ -1,3 +1,27 @@
+# Denver Nuggets fire coach Michael Malone
+
+![Malone was sacked with just three games remaining in the regular season. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799505_1_20250409024635.jpg&q=90)
+  
+
+The Denver Nuggets, mired in a four-game losing streak as the NBA playoffs approach, fired coach Michael Malone on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799505-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799505-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799505-20250409.htm)
+
+---
+
 # Referees to wear body cameras at Club World Cup
 
 ![During this year's competition refs will also attempt to crack down on time-wasting by goalkeepers. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799493_1_20250408234007.jpg&q=90)
@@ -1425,30 +1449,5 @@ There were winning starts for the Hong Kong, China men's and women's squads on F
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm)
-
----
-
-# Dream run ends for remarkable Eala
-
-![Alexandra Eala holds her head high even after Jessica Pegula ends her remarkable Miami Open run at the Hard Rock Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797850_1_20250328133508.jpg&q=90)
-![Jessica Pegula has a word with Alexandra Eala after squeezing through to the finals. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797850_2_20250328133508.jpg&q=90)
-  
-
-Philippines sensation Alexandra Eala's remarkable run at the Miami Open came to a brave end with a three-set loss to Jessica Pegula in the semi-finals on Friday Hong Kong time.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm)
 
 ---
