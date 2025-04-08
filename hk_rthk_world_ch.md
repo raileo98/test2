@@ -1,3 +1,27 @@
+# 日本《外交藍皮書》重申擁竹島主權　南韓強烈抗議
+
+![日本發表年度《外交藍皮書》重申擁有竹島主權， 南韓外交部強烈抗議。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799434_1_20250408161045.jpg&q=90)
+  
+
+日本發表年度《外交藍皮書》，重申擁有竹島，即南韓稱為獨島的主權。 南韓外交部召見日本駐韓公使實生泰介，提出強烈抗議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm)
+
+---
+
 # 外交部：中方繼續與有關各方溝通協調　推動解決伊朗核問題
 
 ![林劍表示，中方將繼續與有關各方溝通協調，推動達成兼顧各方合理關切的伊朗核問題解決方案。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799442_1_20250408164818.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799156-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799156-20250407.htm)
-
----
-
-# 被裁定不得參選　瑪麗娜勒龐：不會放棄
-
-![瑪麗娜勒龐在巴黎出席黨內集會並向支持者發表講話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799155_1_20250407035615.jpg&q=90)
-  
-
-被裁定挪用公款罪成、5年內不得參選公職的法國極右國民聯盟領袖瑪麗娜勒龐誓言不會放棄，形容她的政黨正受到「政治迫害」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799155-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799155-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799155-20250407.htm)
 
 ---

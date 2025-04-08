@@ -1,3 +1,50 @@
+# 陳茂波稱新一批引進企業不少將設研發中心　帶來500億元投資
+
+  
+
+引進重點企業辦公室下午舉辦重點企業夥伴簽約儀式，公布第四批共18間重點企業名單，當中涉及人工智能與數據科學，生命健康科技，先進製造與新能源科技等行業，14間企業來自內地，2間來自美國，1間來自新加坡，另有1間不公布企業名稱。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799444-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799444-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799444-20250408.htm)
+
+---
+
+# 日本《外交藍皮書》重申擁竹島主權　南韓強烈抗議
+
+![日本發表年度《外交藍皮書》重申擁有竹島主權， 南韓外交部強烈抗議。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799434_1_20250408161045.jpg&q=90)
+  
+
+日本發表年度《外交藍皮書》，重申擁有竹島，即南韓稱為獨島的主權。 南韓外交部召見日本駐韓公使實生泰介，提出強烈抗議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm)
+
+---
+
 # 外交部：中方繼續與有關各方溝通協調　推動解決伊朗核問題
 
 ![林劍表示，中方將繼續與有關各方溝通協調，推動達成兼顧各方合理關切的伊朗核問題解決方案。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799442_1_20250408164818.jpg&q=90)
@@ -48,7 +95,11 @@
 
 # 行會通過電車加價5月12日生效　12歲或以上票價加至3.3元
 
+![政府表示已考慮到所有相關因素，包括電車公司當前的財政狀況及未來的財政預測。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799438_1_20250408165444.jpg&q=90)
   
+
+行政長官會同行政會議同意電車公司加價，新收費5月12日起生效，加幅6.7%至15%。12歲或以上人士票價加0.3元至3.3元；小童車費加0.1元至1.6元；65歲或以上人士加0.2元至1.5元。月票維持260元。
+
   
 
 
@@ -92,6 +143,8 @@
 
 # 新一批重點引進企業涉人工智能　生命健康與新能源科技行業
 
+![百度智能駕駛國際化業務總理牛昊天表示，公司選擇來港是希望將自動駕駛技術和先導應用在香港落地。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_1_20250408165543.jpg&q=80)
+![理想汽車高級副總裁李冠華表示，公司會在香港作長期投資，總額達20億元。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_2_20250408165543.jpg&q=80)
   
 
 引進重點企業辦公室下午舉辦重點企業夥伴簽約儀式，將公布新一批重點企業名單，當中涉及人工智能與數據科學，生命健康科技，先進製造與新能源科技等行業，不少企業來自內地。

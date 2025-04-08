@@ -360,7 +360,7 @@ Chief Executive John Lee has hit out at the United States for slapping "reckless
 
 # Seoul confirms June 3 date for presidential elections
 
-![Opposition leader Lee Jae-myung is the frontrunner in opinion polls. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799377_1_20250408105202.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799377_1_20250408105202.jpg&q=90)
   
 
 South Korea will hold a presidential election on June 3, the country's acting president said on Tuesday, after Seoul's former leader Yoon Suk-yeol was removed from office over a disastrous declaration of martial law.
