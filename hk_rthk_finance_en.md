@@ -1,4 +1,4 @@
-# HK stocks ends with slight rebound
+# HK stocks end with slight rebound
 
 ![The Hang Seng Index ended the day 299.38 points, or 1.51 percent, higher at 20,127.68. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799430_2_20250408171407.jpg&q=80)
   

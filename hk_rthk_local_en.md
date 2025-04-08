@@ -1,4 +1,4 @@
-# Fans delight as Coldplay kicks off HK tour
+# Fans delight as Coldplay kick off HK tour
 
 ![Fans begin arriving at the Kai Tak Stadium even before the doors open to the majority of the public at 5pm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799473_1_20250408193720.jpg&q=90)
   
