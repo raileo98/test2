@@ -1,3 +1,26 @@
+# 行會批准北環線主線鐵路方案　議員料項目總造價或升至上千億元
+
+  
+
+行政長官會同行政會議批准北環線主線的鐵路方案。來往錦上路站和古洞站的行程，預計將由現時繁忙時段約60至80分鐘，大幅減至約12分鐘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799486-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799486-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799486-20250408.htm)
+
+---
+
 # 配合啟德演唱會　港鐵屯馬綫班次加密至約2.5分鐘一班車
 
   
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799305-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799305-20250407.htm)
-
----
-
-# 私隱專員公署去年收624宗資料外洩個案　較前一年增近五成
-
-![公署說，近年個人資料外洩個案呈上升趨勢，政府和公署十分關注。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799304_1_20250407222708.jpg&q=80)
-  
-
-個人資料私隱專員公署去年接獲624宗有關個人資料外洩的個案，較前一年高出超過47%，也是過去三年之中最高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799304-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799304-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799304-20250407.htm)
 
 ---

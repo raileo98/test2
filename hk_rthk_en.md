@@ -1,4 +1,4 @@
-# Deadly nightclub disastear rocks Dominican Republic
+# Deadly nightclub disaster rocks Dominican Republic
 
 ![Rescue staff find a survivor at the Jet Set nightclub in Santo Domingo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799484_1_20250408221231.jpg&q=90)
   
