@@ -1,3 +1,27 @@
+# UN chief says Gaza transformed into 'killing field'
+
+![Antonio Guterres also raised the alarm about the situation in the West Bank. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799501_1_20250409013523.jpg&q=90)
+  
+
+United Nations Secretary-General Antonio Guterres said on Tuesday that Gaza had become "a killing field," blaming Israel for blocking aid and failing in its "unequivocal obligations" to meet the needs of the Palestinian territory's residents.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799501-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799501-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799501-20250409.htm)
+
+---
+
 # Musk slams Trump trade adviser as a 'moron'
 
 ![Elon Musk says Peter Navarro "is dumber than a sack of bricks." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799497_1_20250409001640.jpg&q=90)
@@ -1411,29 +1435,5 @@ China on Wednesday warned the Philippines against threatening "regional peace" a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm)
-
----
-
-# Chinese companies abroad told to abide by local laws
-
-![The skyscraper that collapsed was a joint project involving an offshoot of China Railway Group. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798620_1_20250402151025.jpg&q=90)
-  
-
-China's embassy in Bangkok called on the country's companies operating abroad to comply with local laws after a Chinese construction firm came under scrutiny over a deadly building collapse in Friday's earthquake.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm)
 
 ---

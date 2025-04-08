@@ -1,3 +1,26 @@
+# 孫東稱國際創科營商周將向世界展示香港創科實力與獨特優勢
+
+  
+
+創新科技及工業局舉辦的「國際創科營商周」將於本月稍後舉行，屆時將舉行多項創新科技盛事，包括由政府資助的旗艦活動「香港國際創科展」，以及當局大力推動的第二屆「香港世界青年科學大會」等。同期舉行的還包括「世界互聯網大會亞太峰會」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799503-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799503-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799503-20250409.htm)
+
+---
+
 # 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關銳
 
 ![格里爾說部分國家已釋出信號，希望找到一條貿易互惠之路。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799502_1_20250409015525.jpg&q=90)
@@ -24,6 +47,7 @@
 
 # 多米尼加夜總會屋頂坍塌增至最少27死　當局加緊救瓦礫下倖存者
 
+![事發時現場有歌手表演，屋頂突然坍塌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799500_1_20250409021258.jpg&q=80)
   
 
 多米尼加首都聖多明各一間夜總會屋頂坍塌事故，當地傳媒報道增至最少27人死亡，超過130人送院。
@@ -238,14 +262,14 @@
 
 ---
 
-# Coldplay演唱會散場後約半小時仍有觀眾於園區排隊離場
+# Coldplay演唱會散場後約半小時大批觀眾於園區排隊離開
 
 ![散場後約半小時，大批觀眾在園區排隊離場。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_1_20250408233935.jpg&q=85)
-![樂隊主音Chris Martin用廣東話同觀眾打招呼，話好開心來到香港，贏得全場歡呼。（Coldplay 社交平台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_2_20250408233935.jpg&q=90)
-![本港女團Collar成員邱彥筒出任暖場嘉賓，同時與Coldplay在台上合唱。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_3_20250408233935.jpg&q=90)
+![樂隊主音Chris Martin用廣東話同觀眾打招呼，他說很開心來到香港，贏得全場歡呼。（Coldplay 社交平台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_2_20250408233935.jpg&q=90)
+![本港女團COLLAR成員邱彥筒出任暖場嘉賓，同時與Coldplay在台上合唱。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_3_20250408233935.jpg&q=90)
   
 
-英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，在晚上約10時半結束，散場後約半小時，大批觀眾仍在園區排隊離場，秩序良好。港鐵屯馬綫班次進一步加密至約2.5分鐘一班車，東鐵綫北行亦相應加密班次。
+英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，在晚上約10時半結束，散場後約半小時，大批觀眾在園區排隊離場，秩序大致良好。港鐵屯馬綫班次進一步加密至約2.5分鐘一班車，東鐵綫北行亦相應加密班次。
 
   
 
@@ -1419,30 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm)
-
----
-
-# 新一批重點引進企業涉人工智能　生命健康與新能源科技行業
-
-![百度智能駕駛國際化業務總經理牛昊天表示，公司選擇來港是希望將自動駕駛技術和先導應用在香港落地。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_1_20250408165543.jpg&q=80)
-![理想汽車高級副總裁李冠華表示，公司會在香港作長期投資，總額達20億元。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_2_20250408165543.jpg&q=80)
-  
-
-引進重點企業辦公室下午舉辦重點企業夥伴簽約儀式，將公布新一批重點企業名單，當中涉及人工智能與數據科學，生命健康科技，先進製造與新能源科技等行業，不少企業來自內地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm)
 
 ---

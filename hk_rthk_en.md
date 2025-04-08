@@ -1,3 +1,27 @@
+# UN chief says Gaza transformed into 'killing field'
+
+![Antonio Guterres also raised the alarm about the situation in the West Bank. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799501_1_20250409013523.jpg&q=90)
+  
+
+United Nations Secretary-General Antonio Guterres said on Tuesday that Gaza had become "a killing field," blaming Israel for blocking aid and failing in its "unequivocal obligations" to meet the needs of the Palestinian territory's residents.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799501-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799501-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799501-20250409.htm)
+
+---
+
 # Musk slams Trump trade adviser as a 'moron'
 
 ![Elon Musk says Peter Navarro "is dumber than a sack of bricks." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799497_1_20250409001640.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong, China secured a bronze medal in the mixed relay at the Asia Triathlon
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm)
-
----
-
-# Ovechkin scores 895th goal for all-time NHL record
-
-![Alex Ovechkin broke the NHL all-time career goals record previously held by Wayne Gretzky. Photo courtesy of Geoff Burke-Imagn Images via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799168_1_20250407080934.jpg&q=90)
-  
-
-Alex Ovechkin scored his 895th NHL career goal, etching his name into ice hockey history by finally passing the previous all-time record he shared with Wayne Gretzky.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799168-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799168-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799168-20250407.htm)
 
 ---
