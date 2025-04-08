@@ -1,3 +1,26 @@
+# 特朗普稱關稅措施對其美國願景至關重要　推出後大量錢湧入美國
+
+  
+
+美國總統特朗普形容，自己近日公布的關稅措施具「爆炸性」，但他堅信有關措施對他的美國願景是至關重要。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm)
+
+---
+
 # 馬克龍促特朗普改變主意　加拿大會對部分美國進口車徵稅
 
 ![馬克龍說歐盟正帶領各成員國採取應對美方關稅措施的行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799510_1_20250409035637.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm)
-
----
-
-# 莎拉完成為杜特爾特組建法律團隊　昨由海牙返抵馬尼拉
-
-![莎拉早前在海牙國際刑事法院外被傳媒包圍。（法新社資料圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799268_1_20250407165055.jpg&q=90)
-  
-
-菲律賓副總統莎拉昨晚從荷蘭海牙，返抵菲律賓首都馬尼拉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799268-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799268-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799268-20250407.htm)
 
 ---

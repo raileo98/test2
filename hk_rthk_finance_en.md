@@ -1,3 +1,27 @@
+# S&P 500 ends down 1.6% as tariff angst kills rally
+
+![US stocks have been in free fall since Trump's "Liberation Day" event announcing tariffs on major US trading partners last Wednesday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799508_1_20250409051017.jpg&q=90)
+  
+
+Wall Street stocks tumbled again on Tuesday as initially successful efforts to rebound from big losses faded amid worries over US President Donald Trump's trade wars.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799508-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799508-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799508-20250409.htm)
+
+---
+
 # HK stocks end with slight rebound
 
 ![The Hang Seng Index ended the day 299.38 points, or 1.51 percent, higher at 20,127.68. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799430_2_20250408171407.jpg&q=80)
@@ -1412,29 +1436,5 @@ Canadian Prime Minister Mark Carney reacted with anger on Wednesday to US Presid
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm)
-
----
-
-# Trump hints at lower tariffs for China over TikTok
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
-  
-
-US President Donald Trump said on Wednesday he would be willing to reduce tariffs to get a deal done with TikTok's Chinese parent ByteDance to sell the short video app used by 170 million Americans.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm)
 
 ---

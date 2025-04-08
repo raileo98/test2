@@ -1,3 +1,26 @@
+# 特朗普稱關稅措施對其美國願景至關重要　推出後大量錢湧入美國
+
+  
+
+美國總統特朗普形容，自己近日公布的關稅措施具「爆炸性」，但他堅信有關措施對他的美國願景是至關重要。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm)
+
+---
+
 # 馬克龍促特朗普改變主意　加拿大會對部分美國進口車徵稅
 
 ![馬克龍說歐盟正帶領各成員國採取應對美方關稅措施的行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799510_1_20250409035637.jpg&q=90)
@@ -1420,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799444-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799444-20250408.htm)
-
----
-
-# 日本《外交藍皮書》重申擁竹島主權　南韓強烈抗議
-
-![日本發表年度《外交藍皮書》重申擁有竹島主權， 南韓外交部強烈抗議。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799434_1_20250408161045.jpg&q=90)
-  
-
-日本發表年度《外交藍皮書》，重申擁有竹島，即南韓稱為獨島的主權。 南韓外交部召見日本駐韓公使實生泰介，提出強烈抗議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm)
 
 ---

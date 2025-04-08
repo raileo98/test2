@@ -1,3 +1,27 @@
+# S&P 500 ends down 1.6% as tariff angst kills rally
+
+![US stocks have been in free fall since Trump's "Liberation Day" event announcing tariffs on major US trading partners last Wednesday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799508_1_20250409051017.jpg&q=90)
+  
+
+Wall Street stocks tumbled again on Tuesday as initially successful efforts to rebound from big losses faded amid worries over US President Donald Trump's trade wars.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799508-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799508-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799508-20250409.htm)
+
+---
+
 # Grand National winning jockey Mullins suspended
 
 ![Disciplinary officials found Patrick Mullins had used his whip one above the permitted level of seven from the final fence. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799506_1_20250409031635.jpg&q=85)
@@ -147,7 +171,7 @@ Rescuers were on Tuesday racing to find survivers among the rubble of a Dominica
 ![Fans begin arriving at the Kai Tak Stadium even before the doors open to the majority of the public at 5pm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799473_1_20250408193720.jpg&q=90)
   
 
-There was fanfare at the Kai Tak Stadium at Tuesday evening as Coldplay kicked off the first of four concerts in Hong Kong on its current world tour.
+There was fanfare at the Kai Tak Stadium on Tuesday evening as Coldplay kicked off the first of four concerts in Hong Kong on its current world tour.
 
   
 
@@ -1411,29 +1435,5 @@ Boeing is poised to face a jury trial from Monday over the fatal 2019 crash of a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm)
-
----
-
-# SAR 'committed to promoting Web3 development'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799210_1_20250407112528.jpg&q=85)
-  
-
-The financial secretary said on Monday Hong Kong is committed to creating a promising and successful future for Web3, or third generation Internet, development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm)
 
 ---

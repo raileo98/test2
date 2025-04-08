@@ -3,7 +3,7 @@
 ![Fans begin arriving at the Kai Tak Stadium even before the doors open to the majority of the public at 5pm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799473_1_20250408193720.jpg&q=90)
   
 
-There was fanfare at the Kai Tak Stadium at Tuesday evening as Coldplay kicked off the first of four concerts in Hong Kong on its current world tour.
+There was fanfare at the Kai Tak Stadium on Tuesday evening as Coldplay kicked off the first of four concerts in Hong Kong on its current world tour.
 
   
 

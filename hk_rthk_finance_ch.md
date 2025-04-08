@@ -1,3 +1,26 @@
+# 特朗普稱關稅措施對其美國願景至關重要　推出後大量錢湧入美國
+
+  
+
+美國總統特朗普形容，自己近日公布的關稅措施具「爆炸性」，但他堅信有關措施對他的美國願景是至關重要。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm)
+
+---
+
 # 馬克龍促特朗普改變主意　加拿大會對部分美國進口車徵稅
 
 ![馬克龍說歐盟正帶領各成員國採取應對美方關稅措施的行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799510_1_20250409035637.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799358-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799358-20250408.htm)
-
----
-
-# 莊太量料美國或加快減息步伐　又稱特朗普害怕中國反制
-
-![莊太量估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799357_1_20250408102235.jpg&q=85)
-  
-
-美國引發的貿易戰震盪全球股市，清明節長周末過後，港股單日跌超過3000點，創歷來最大點數跌幅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量在本台節目《千禧年代》說，估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。他估計美國減息的步伐可能會加快，反而通脹問題不會是美國目前最關注的情況，因此應留意未來聯儲局的動向。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm)
 
 ---
