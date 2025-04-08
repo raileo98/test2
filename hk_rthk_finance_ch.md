@@ -1,5 +1,6 @@
 # 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關銳
 
+![格里爾說部分國家已釋出信號，希望找到一條貿易互惠之路。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799502_1_20250409015525.jpg&q=90)
   
 
 美國貿易代表格里爾表示，對等關稅在星期三生效。
