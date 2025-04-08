@@ -1,3 +1,72 @@
+# 陳國基：特區政府在維護國安和推展愛國主義教育取得豐碩成果
+
+  
+
+勞工及福利局、社署和香港社福界心連心大行動聯合舉辦香港社福界維護國家安全研討會，進一步提升香港社福界主動維護國家安全的意識。超過8000位香港社福界人士以線上線下的方式參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799477-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799477-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799477-20250408.htm)
+
+---
+
+# 議員關注多少大廈參與「聯廈聯管」　麥美娟指關愛隊協助聯絡業主
+
+  
+
+民政及青年事務局局長麥美娟表示，政府最快今年6月在油尖旺、深水埗、九龍城及荃灣推行為期一年的「聯廈聯管」的試驗計劃，協助「三無大廈」和舊式單幢樓宇的業主，共同聘用同一間物業管理公司聯合管理大廈。政府已預留700萬元推行試驗計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799476-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799476-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799476-20250408.htm)
+
+---
+
+# 電車5月12日起加票價　公司稱有助確保電車服務持續營運和發展
+
+  
+
+行政長官會同行政會議通過電車加價，香港電車公司對此表示歡迎，並指今次票價調整將大大有助於確保電車服務能持續營運和發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799475-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799475-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799475-20250408.htm)
+
+---
+
 # 新一輪「富戶政策」申報周期展開　約21萬租戶須５月底前交表
 
   
@@ -26,7 +95,7 @@
 ![據了解便衣警截獲一男子懷疑在啟德兜售Coldplay黃牛票（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799469_1_20250408193856.jpg&q=85)
   
 
-英國樂隊Coldplay晚上在啟德主場館舉行演唱會。據了解，警方下午在啟德體育園截獲一名香港男子涉嫌以高於原價售賣門票，警方稍後將票控該男子。另外，警方在行動中以涉嫌違反逗留條件拘捕兩男兩女，他們介乎39至51歲。
+英國樂隊Coldplay晚上在啟德主場館舉行演唱會。據了解，警方下午在啟德體育園截獲一名香港男子涉嫌以高於原價售賣門票，警方稍後將票控該男子。另外，警方在行動中又以涉嫌違反逗留條件拘捕兩男兩女，他們持雙程證，介乎39至51歲，他們亦以高於原價放售演唱會門票，每張賺取數百元差價。
 
   
 
@@ -1369,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799296-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799296-20250407.htm)
-
----
-
-# 梁鳳儀稱港股跌幅雖高但交投仍暢旺　展現市場韌性能抵禦外來波幅
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799295_1_20250407203031.jpg&q=80)
-  
-
-恒生指數今日跌超過3000點，創歷來最大單日點數跌幅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799295-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799295-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799295-20250407.htm)
-
----
-
-# 港股夜期重上2萬點關口　美股3大股指期貨跌幅收窄至不足2%
-
-![美股3大指數期貨延續上周跌勢，但跌勢收窄至不足2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799290_1_20250407190853.jpg&q=85)
-  
-
-市場憂慮貿易衝突升級加劇及引發經濟衰退，美股3大指數期貨延續上周跌勢，但跌勢收窄至不足2%。本港期指夜市反彈，重上20000點，較早時報20032點，升252點，升幅約1.3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799290-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799290-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799290-20250407.htm)
-
----
-
-# 麥美娟稱最重要是區議員善用開會時間　為發言而發言無意思
-
-![麥美娟表示，最重要是區議員有無善用開會時間。（周國安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799289_1_20250407192308.jpg&q=90)
-  
-
-對於有報道指，部分區議員在去年的區議會大會甚少發言，甚至全年無發言。民政及青年事務局局長麥美娟表示，最重要是區議員有無善用開會時間，如果只是「為發言而發言」，為達到某些數字而重複發表意見，並無意思。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799289-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799289-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799289-20250407.htm)
 
 ---
