@@ -1,3 +1,49 @@
+# Coldplay啟德主場館演唱會開場　陳茂波及黃偉綸入場欣賞
+
+  
+
+英國樂隊Coldplay在啟德體育園主場館舉行的首場演唱會晚上8時半開場，5萬個座位全場爆滿，當樂隊成員出場時，現場氣氛高漲，樂隊主音Chris Martin用廣東話向在場觀眾說，歡迎大家，好開心來到香港，贏得全場歡呼。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799481-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799481-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799481-20250408.htm)
+
+---
+
+# 網上有人聲稱提供跨境私家車來往內地與啟德站　運輸署轉介警方
+
+  
+
+運輸署表示，留意到社交媒體有人聲稱可提供跨境私家車服務來往內地及港鐵啟德站。署方重申，跨境私家車必須領有有效的出租汽車許可證，才可用作出租或取酬載客用途。領有許可證的跨境出租汽車會在擋風玻璃左邊和車尾張貼印有「Cross Boundary Hire Car」和「過境出租車」的識別標誌，以及獲配予的車輛編號。運輸署會將懷疑非法個案轉交警方跟進調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799480-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799480-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799480-20250408.htm)
+
+---
+
 # 董軍晤巴基斯坦空軍參謀長　稱願加強中巴戰略溝通協作
 
 ![董軍表示，中方願與巴方不斷加強戰略溝通協作，共同維護國際和地區安全穩定。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799479_1_20250408204046.jpg&q=90)

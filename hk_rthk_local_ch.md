@@ -1,3 +1,26 @@
+# Coldplay啟德主場館演唱會開場　陳茂波及黃偉綸入場欣賞
+
+  
+
+英國樂隊Coldplay在啟德體育園主場館舉行的首場演唱會晚上8時半開場，5萬個座位全場爆滿，當樂隊成員出場時，現場氣氛高漲，樂隊主音Chris Martin用廣東話向在場觀眾說，歡迎大家，好開心來到香港，贏得全場歡呼。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799481-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799481-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799481-20250408.htm)
+
+---
+
 # 網上有人聲稱提供跨境私家車來往內地與啟德站　運輸署轉介警方
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799302-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799302-20250407.htm)
-
----
-
-# 5歲男童新冠肺炎併發嘶吼症　情況危殆
-
-![一名患有長期病患的5歲男童確診新冠病毒併發嘶吼症，目前情況危殆。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799299_1_20250407202709.jpg&q=85)
-  
-
-一名患有長期病患的5歲男童確診新冠病毒併發嘶吼症，目前情況危殆。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799299-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799299-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799299-20250407.htm)
 
 ---
