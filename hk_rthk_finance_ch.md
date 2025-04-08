@@ -1,3 +1,75 @@
+# 美股轉跌收市　道指跌320點　白宮對華部分貨品徵104%關稅
+
+![美股先升後跌，3大指數跌近1%至逾2%收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799513_1_20250409054522.jpg&q=90)
+  
+
+美股先升後跌，早段一度升近4%或以上，不過其後美國白宮證實，會對中國部分貨品徵收104%關稅，大市轉跌，3大指數跌近1%至逾2%收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799513-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799513-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799513-20250409.htm)
+
+---
+
+# 油價低收近2%或以上　憂經濟衰退影響需求
+
+![油價跌近2%或以上收市，市場擔心貿易衝突加劇影響原油需求。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799514_1_20250409054404.jpg&q=90)
+  
+
+原油期貨價格跌近2%或以上收市。貿易衝突加劇令市場擔心導致經濟衰退，影響原油需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799514-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799514-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799514-20250409.htm)
+
+---
+
+# 金價靠穩　紐約期金升0.5%
+
+![現貨金一度升逾1%，其後升幅顯著收窄。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799515_1_20250409055156.jpg&q=90)
+  
+
+金價靠穩。美元偏軟，加上貿易緊張局勢都為金價帶來支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799515-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799515-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799515-20250409.htm)
+
+---
+
 # 英法德股市反彈逾2%收市
 
 ![英國富時100指數收報7910點，升208點，升幅2.71%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799512_1_20250409052451.jpg&q=85)
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799364-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799364-20250408.htm)
-
----
-
-# 崔定邦稱Coldplay有助帶動旅客訪港　交通安排應無問題
-
-![崔定邦說，今次Coldplay演唱會，絕對有助帶動不同地區的旅客訪港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799363_1_20250408102153.jpg&q=80)
-  
-
-啟德體育園主場館首次舉辦大型商業演唱會，英國樂隊Coldplay今晚首場演出。旅遊業促進會總幹事崔定邦說，從七欖賽事成功舉辦，到今次Coldplay的表演，都反映本港舉辦大型盛事活動，絕對有助帶動不同地區的旅客訪港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799363-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799363-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799363-20250408.htm)
-
----
-
-# 滬深股市初段升近1%至3%以上
-
-![上證指數重上3100點，較早時報3124點，升28點，升幅0.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799362_1_20250408094354.jpg&q=90)
-  
-
-滬深股市初段升近1%至3%以上。A股開市前，中央匯金表示，將繼續發揮好資本市場「穩定器」作用，有效平抑市場異常波動，該出手時將果斷出手。國家金融監管總局亦表示，調整保險資金權益類資產監管比例。另外，多間上市公司表示增持股份。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799362-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799362-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799362-20250408.htm)
-
----
-
-# 人行開展1674億元人民幣逆回購操作
-
-![人民銀行公開市場開展1674億元人民幣7日期逆回購操作，單日淨投放1025億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799359_1_20250408092947.jpg&q=80)
-  
-
-人民銀行公開市場開展1674億元人民幣7日期逆回購操作，利率維持1.5厘，投標量及中標量相同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799359-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799359-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799359-20250408.htm)
 
 ---

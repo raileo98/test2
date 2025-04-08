@@ -1,3 +1,75 @@
+# 美股轉跌收市　道指跌320點　白宮對華部分貨品徵104%關稅
+
+![美股先升後跌，3大指數跌近1%至逾2%收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799513_1_20250409054522.jpg&q=90)
+  
+
+美股先升後跌，早段一度升近4%或以上，不過其後美國白宮證實，會對中國部分貨品徵收104%關稅，大市轉跌，3大指數跌近1%至逾2%收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799513-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799513-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799513-20250409.htm)
+
+---
+
+# 油價低收近2%或以上　憂經濟衰退影響需求
+
+![油價跌近2%或以上收市，市場擔心貿易衝突加劇影響原油需求。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799514_1_20250409054404.jpg&q=90)
+  
+
+原油期貨價格跌近2%或以上收市。貿易衝突加劇令市場擔心導致經濟衰退，影響原油需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799514-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799514-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799514-20250409.htm)
+
+---
+
+# 金價靠穩　紐約期金升0.5%
+
+![現貨金一度升逾1%，其後升幅顯著收窄。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799515_1_20250409055156.jpg&q=90)
+  
+
+金價靠穩。美元偏軟，加上貿易緊張局勢都為金價帶來支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799515-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799515-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799515-20250409.htm)
+
+---
+
 # 英法德股市反彈逾2%收市
 
 ![英國富時100指數收報7910點，升208點，升幅2.71%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799512_1_20250409052451.jpg&q=85)
@@ -1371,77 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799443-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799443-20250408.htm)
-
----
-
-# 優化新資本投資者入境計劃　當局料已批申請帶來逾270億元資金
-
-![劉凱旋有信心隨著加大推廣計劃，例如有東盟國家甚至歐洲和北美等地區，均有人申請。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799448_1_20250408182942.jpg&q=90)
-  
-
-立法會舉行特別財務委員會會議，審核2025至26年度開支預算。在財經事務方面，有議員關注優化新資本投資者入境計劃的情況，當局說截至今年2月底，新計劃合共接獲918宗申請，已批出868宗申請的淨資產審查和386宗申請的投資規定審查，預計可為本港帶來超過270億元資金。由於新計劃的相關優化措施只推行一段短時間，政府會持續檢視申請人的投資情況，並會適時評估成效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm)
-
----
-
-# Coldplay啟德主場館演唱會　有觀眾為免混亂提早到場排隊
-
-![Coldplay啟德主場館演唱會　有觀眾為免混亂提早到場排隊](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799447_2_20250408182512.jpg&q=75)
-  
-
-英國樂隊Coldplay今晚起在啟德體育園主場館舉行演唱會。下午一時許，已經有大批持票人士在場館外排隊等候入場，包括不少專程來港看演唱會的旅客。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799447-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799447-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799447-20250408.htm)
-
----
-
-# 渣打：期望內地及美國以外地區推出措施穩定全球需求惠及香港出口
-
-![劉健恒稱市場過份憧憬年內大幅減息，認為聯儲局需平衡經濟增長及通脹。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799445_1_20250408183427.jpg&q=90)
-  
-
-渣打大中華及北亞區高級經濟師劉健恒認為，「特朗普1.0」時透過增加對其他地方出口以應對關稅的策略，今次未必能再奏效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799445-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799445-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799445-20250408.htm)
 
 ---
