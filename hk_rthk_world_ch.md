@@ -1,3 +1,26 @@
+# 多米尼加夜總會屋頂坍塌事故增至最少66死　仍有人被困待救
+
+  
+
+多米尼加首都聖多明各一間夜總會屋頂坍塌的事故，當局說增至最少66人死亡，包括一名政界人士及一名棒球明星，另有過百人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799519-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799519-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799519-20250409.htm)
+
+---
+
 # 特朗普稱關稅措施對其美國願景至關重要　推出後大量錢湧入美國
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799273-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799273-20250407.htm)
-
----
-
-# 陳茂波：金融體系穩健交易暢順有序　政府嚴防金融風險
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799287_1_20250407183131.jpg&q=90)
-  
-
-財政司司長陳茂波表示，本港股市今日下跌超過3千點，全日成交6200億元，是反映了環球悲觀的投資情緒，但他指港匯仍然非常強勁，香港金融體系仍然相當穩健，交易暢順有秩序進行，沒有發現任何對香港市場造成系統性影響的不正常行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 歐聯8強首回合　阿仙奴主場3:0皇馬　拜仁作客1:2國際米蘭
+
+  
+
+歐聯8強首回合，阿仙奴主場3:0大勝皇家馬德里。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799517-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799517-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799517-20250409.htm)
+
+---
+
 # 曼聯時隔12年再訪港　下月30日與港隊於大球場踢表演賽
 
 ![曼聯將於5月30日晚上8時，與港隊在大球場對戰。（中國香港足球總會社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799426_1_20250408153824.jpg&q=90)
@@ -1435,29 +1458,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm)
-
----
-
-# 改制後世冠盃6至7月舉行　冠軍最高可獲1.25億美元獎金
-
-![國際足協公布改制之後的世界冠軍球會盃獎金詳情。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797608_1_20250327071212.jpg&q=90)
-  
-
-國際足協公布改制之後的世界冠軍球會盃獎金詳情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797608-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797608-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797608-20250327.htm)
 
 ---
