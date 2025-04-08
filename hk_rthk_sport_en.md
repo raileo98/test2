@@ -1,3 +1,27 @@
+# Referees to wear body cameras at Club World Cup
+
+![During this year's competition refs will also attempt to crack down on time-wasting by goalkeepers. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799493_1_20250408234007.jpg&q=90)
+  
+
+Referees at this year's Club World Cup will be equipped with body cameras and instructed to implement new rules to cut down on time-wasting by goalkeepers, Fifa announced on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799493-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799493-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799493-20250408.htm)
+
+---
+
 # Manchester United to play in Hong Kong on May 30
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799432_1_20250408160003.jpg&q=90)
@@ -1426,29 +1450,5 @@ Philippines sensation Alexandra Eala's remarkable run at the Miami Open came to 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm)
-
----
-
-# Bulls score 6 points in 6 seconds in win over Lakers
-
-![Late triples from Coby White (L) and Josh Giddey helped the Bulls to a win over the Lakers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797835_1_20250328123014.jpg&q=90)
-  
-
-Josh Giddey buried a miracle shot from beyond halfcourt at the final buzzer as the Chicago Bulls overturned an 18-point fourth-quarter deficit to beat the Los Angeles Lakers 119-117.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm)
 
 ---

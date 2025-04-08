@@ -24,6 +24,7 @@
 
 # 陳國基明早赴北京　迎接中國救援隊包括香港隊員由緬甸回國
 
+![陳國基將赴京出席迎接中國救援隊隊員、包括香港隊員由緬甸回國的儀式。圖為中國救援隊。（香港消防社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799490_1_20250408233804.jpg&q=85)
   
 
 政務司司長陳國基明日早上前赴北京，出席迎接中國救援隊隊員包括香港隊員，由緬甸回國的儀式。
@@ -47,9 +48,12 @@
 
 # Coldplay演唱會散場後約半小時仍有觀眾於園區排隊離場
 
+![散場後約半小時，大批觀眾在園區排隊離場。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_1_20250408233935.jpg&q=85)
+![樂隊主音Chris Martin用廣東話同觀眾打招呼，話好開心來到香港，贏得全場歡呼。（Coldplay 社交平台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_2_20250408233935.jpg&q=90)
+![本港女團Collar成員邱彥筒出任暖場嘉賓，同時與Coldplay在台上合唱。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_3_20250408233935.jpg&q=90)
   
 
-英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，晚上約10時半結束，散場後約半小時，大批觀眾仍在園區排隊離場。
+英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，在晚上約10時半結束，散場後約半小時，大批觀眾仍在園區排隊離場，秩序良好。港鐵屯馬綫班次進一步加密至約2.5分鐘一班車，東鐵綫北行亦相應加密班次。
 
   
 

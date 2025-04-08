@@ -1,3 +1,27 @@
+# Referees to wear body cameras at Club World Cup
+
+![During this year's competition refs will also attempt to crack down on time-wasting by goalkeepers. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799493_1_20250408234007.jpg&q=90)
+  
+
+Referees at this year's Club World Cup will be equipped with body cameras and instructed to implement new rules to cut down on time-wasting by goalkeepers, Fifa announced on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799493-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799493-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799493-20250408.htm)
+
+---
+
 # Deadly nightclub disaster rocks Dominican Republic
 
 ![Rescue staff find a survivor at the Jet Set nightclub in Santo Domingo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799484_1_20250408221231.jpg&q=90)
@@ -1411,29 +1435,5 @@ Manchester United boss Ruben Amorim said his side must improve "everywhere" afte
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799169-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799169-20250407.htm)
-
----
-
-# Sara Duterte back home for electoral fight
-
-![Sara Duterte addresses supporters outside the International Criminal Court in The Hague last month. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799207_1_20250407111536.jpg&q=90)
-  
-
-Impeached Philippine Vice President Sara Duterte has returned home after nearly a month at her father's side in The Hague, where he is facing a charge of crimes against humanity, her communications team said Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm)
 
 ---
