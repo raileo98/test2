@@ -1,3 +1,27 @@
+# 外交部：中方繼續與有關各方溝通協調　推動解決伊朗核問題
+
+![林劍表示，中方將繼續與有關各方溝通協調，推動達成兼顧各方合理關切的伊朗核問題解決方案。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799442_1_20250408164818.jpg&q=90)
+  
+
+中國、伊朗及俄羅斯昨天起一連兩日，在莫斯科舉行三方磋商，討論伊朗核問題。在北京，外交部發言人林劍表示，中方堅信通過政治外交途徑解決伊朗核問題是唯一正確的選擇，支持俄方主辦今次磋商。中方將繼續與有關各方溝通協調，推動達成兼顧各方合理關切的伊朗核問題解決方案，以維護國際核不擴散體系，維護中東地區的和平穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm)
+
+---
+
 # 葉劉淑儀：中國已預備好應對美國關稅措施　長遠將成為贏家
 
 ![葉劉淑儀表示，長遠而言，中國在貿易、技術和道德層面都會是贏家。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799429_1_20250408153932.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799155-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799155-20250407.htm)
-
----
-
-# 伊朗外長重申只能與美國間接談判
-
-![阿拉格齊說，與美國只能是間接談判，至今尚未舉行任何一輪談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799154_1_20250407033749.jpg&q=90)
-  
-
-伊朗外阿拉格齊說，伊朗願意與美國談判，但只能以間接方式進行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799154-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799154-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799154-20250407.htm)
 
 ---
