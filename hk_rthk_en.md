@@ -1,3 +1,27 @@
+# Trump signs order to 'turbocharge' coal mining in US
+
+![President Trump speaks next to coal industry workers, on the day he signs energy-related executive orders at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799521_1_20250409073316.jpg&q=90)
+  
+
+US President Donald Trump on Tuesday signed executive orders to "turbocharge coal mining" in the country, seeking to "more than double" electricity production to keep up with power-hungry artificial intelligence technology.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799521-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799521-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799521-20250409.htm)
+
+---
+
 # At least 66 dead in Dominican Republic roof collapse
 
 ![Rescuers work at the site of the collapsed Jet Set nightclub in Santo Domingo, Dominican Republic. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799520_1_20250409073023.jpg&q=80)
@@ -1411,29 +1435,5 @@ The Airport Authority Hong Kong board has appointed Vivian Cheung as its chief e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm)
-
----
-
-# National security education 'an everyday process'
-
-![Secretary for Justice Paul Lam says national security risks might still exist despite Hong Kong being very stable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799215_1_20250407114227.jpg&q=80)
-  
-
-Hong Kong's justice chief has stressed that educating the public on national security is an ongoing effort, calling on people to stay vigilant against possible threats.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm)
 
 ---

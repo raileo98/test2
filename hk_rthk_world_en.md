@@ -1,3 +1,27 @@
+# Trump signs order to 'turbocharge' coal mining in US
+
+![President Trump speaks next to coal industry workers, on the day he signs energy-related executive orders at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799521_1_20250409073316.jpg&q=90)
+  
+
+US President Donald Trump on Tuesday signed executive orders to "turbocharge coal mining" in the country, seeking to "more than double" electricity production to keep up with power-hungry artificial intelligence technology.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799521-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799521-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799521-20250409.htm)
+
+---
+
 # At least 66 dead in Dominican Republic roof collapse
 
 ![Rescuers work at the site of the collapsed Jet Set nightclub in Santo Domingo, Dominican Republic. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799520_1_20250409073023.jpg&q=80)
@@ -1411,29 +1435,5 @@ A Singaporean teenager allegedly planning to kill dozens of Muslims outside seve
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm)
-
----
-
-# Warning shots fired at Chinese Red Cross convoy
-
-![A Chinese Red Cross team looks for survivors among the ruins of a residential building in Mandalay on Sunday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798650_1_20250402174414.jpg&q=80)
-  
-
-China strongly urges all parties in Myanmar to ensure the safety of earthquake relief workers and supplies from China and other countries, a Foreign Ministry spokesman said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm)
 
 ---
