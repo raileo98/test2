@@ -1,3 +1,27 @@
+# Grand National winning jockey Mullins suspended
+
+![Disciplinary officials found Patrick Mullins had used his whip one above the permitted level of seven from the final fence. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799506_1_20250409031635.jpg&q=85)
+  
+
+Patrick Mullins has been given an eight-day suspension after he was found to have breached whip rules when riding Nick Rockett to Grand National glory on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799506-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799506-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799506-20250409.htm)
+
+---
+
 # Denver Nuggets fire coach Michael Malone
 
 ![Malone was sacked with just three games remaining in the regular season. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799505_1_20250409024635.jpg&q=90)
@@ -1411,29 +1435,5 @@ The financial secretary said on Monday Hong Kong is committed to creating a prom
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm)
-
----
-
-# Ghibli-style AI art can't match real animation: expert
-
-![The new feature transforms photos into the soft pastel palette style of Studio Ghibli. Photo courtesy of Raj Shroff](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799213_1_20250407113648.jpg&q=90)
-  
-
-A tech expert says people still prefer authentic animation over AI-generated art, despite ChatGPT's popular new function that creates Ghibli-style images.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799213-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799213-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799213-20250407.htm)
 
 ---
