@@ -1,3 +1,27 @@
+# 馬克龍促特朗普改變主意　加拿大會對部分美國進口車徵稅
+
+![馬克龍說歐盟正帶領各成員國採取應對美方關稅措施的行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799510_1_20250409035637.jpg&q=90)
+  
+
+法國總統馬克龍呼籲美國總統特朗普在對全球採取關稅措施方面，改變主意。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm)
+
+---
+
 # 古特雷斯重申貿易戰無贏家　特別擔心最脆弱發展中國家
 
 ![古特雷斯說希望不會出現經濟衰退。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799509_1_20250409033825.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799268-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799268-20250407.htm)
-
----
-
-# 塞爾維亞總統提名貝爾格萊德大學醫學院教授馬楚特為新總理人選
-
-![武契奇表示維護和平穩定是新政府的主要責任。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799267_1_20250407173823.jpg&q=90)
-  
-
-塞爾維亞總統武契奇宣布，提名貝爾格萊德大學醫學院教授馬楚特為新一屆總理人選。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799267-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799267-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799267-20250407.htm)
 
 ---

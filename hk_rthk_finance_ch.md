@@ -1,3 +1,27 @@
+# 馬克龍促特朗普改變主意　加拿大會對部分美國進口車徵稅
+
+![馬克龍說歐盟正帶領各成員國採取應對美方關稅措施的行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799510_1_20250409035637.jpg&q=90)
+  
+
+法國總統馬克龍呼籲美國總統特朗普在對全球採取關稅措施方面，改變主意。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm)
+
+---
+
 # 白宮證對華部分貨品徵104%關稅　稱特朗普相信中方盼達成協議
 
 ![萊維特強調任何協議的焦點，都在於是否對美國工人有利。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799507_1_20250409033148.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm)
-
----
-
-# 人民幣中間價下調近60點子
-
-![人民幣中間價報7.2038兌1美元，較上日中間價下調58點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799356_1_20250408091855.jpg&q=80)
-  
-
-人民幣中間價報7.2038兌1美元，較上日中間價下調58點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799356-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799356-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799356-20250408.htm)
 
 ---

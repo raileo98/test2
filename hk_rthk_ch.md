@@ -1,3 +1,27 @@
+# 馬克龍促特朗普改變主意　加拿大會對部分美國進口車徵稅
+
+![馬克龍說歐盟正帶領各成員國採取應對美方關稅措施的行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799510_1_20250409035637.jpg&q=90)
+  
+
+法國總統馬克龍呼籲美國總統特朗普在對全球採取關稅措施方面，改變主意。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm)
+
+---
+
 # 古特雷斯重申貿易戰無贏家　特別擔心最脆弱發展中國家
 
 ![古特雷斯說希望不會出現經濟衰退。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799509_1_20250409033825.jpg&q=90)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm)
-
----
-
-# 外交部：中方繼續與有關各方溝通協調　推動解決伊朗核問題
-
-![林劍表示，中方將繼續與有關各方溝通協調，推動達成兼顧各方合理關切的伊朗核問題解決方案。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799442_1_20250408164818.jpg&q=90)
-  
-
-中國、伊朗及俄羅斯昨天起一連兩日，在莫斯科舉行三方磋商，討論伊朗核問題。在北京，外交部發言人林劍表示，中方堅信通過政治外交途徑解決伊朗核問題是唯一正確的選擇，支持俄方主辦今次磋商。中方將繼續與有關各方溝通協調，推動達成兼顧各方合理關切的伊朗核問題解決方案，以維護國際核不擴散體系，維護中東地區的和平穩定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm)
 
 ---
