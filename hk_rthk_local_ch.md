@@ -257,7 +257,7 @@
 
 # 新一批重點引進企業涉人工智能　生命健康與新能源科技行業
 
-![百度智能駕駛國際化業務總理牛昊天表示，公司選擇來港是希望將自動駕駛技術和先導應用在香港落地。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_1_20250408165543.jpg&q=80)
+![百度智能駕駛國際化業務總經理牛昊天表示，公司選擇來港是希望將自動駕駛技術和先導應用在香港落地。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_1_20250408165543.jpg&q=80)
 ![理想汽車高級副總裁李冠華表示，公司會在香港作長期投資，總額達20億元。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_2_20250408165543.jpg&q=80)
   
 

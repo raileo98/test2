@@ -1,3 +1,27 @@
+# 中海油控股股東擬斥資最多40億元增持AH股
+
+![中國海油集團計劃未來1年內，增持中海油A股及港股股份，最多涉及40億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799456_1_20250408174749.jpg&q=90)
+  
+
+中海油公布，控股股東中國海油集團計劃未來1年內，動用自有資金增持中海油A股及港股股份，涉及金額介乎20億至40億元人民幣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799456-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799456-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799456-20250408.htm)
+
+---
+
 # 美軍將於沖繩嘉手納基地部署大型無人機
 
 ![美軍將於沖繩嘉手納基地部署大型無人機](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799453_1_20250408172251.jpg&q=90)
@@ -425,7 +449,7 @@
 
 # 新一批重點引進企業涉人工智能　生命健康與新能源科技行業
 
-![百度智能駕駛國際化業務總理牛昊天表示，公司選擇來港是希望將自動駕駛技術和先導應用在香港落地。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_1_20250408165543.jpg&q=80)
+![百度智能駕駛國際化業務總經理牛昊天表示，公司選擇來港是希望將自動駕駛技術和先導應用在香港落地。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_1_20250408165543.jpg&q=80)
 ![理想汽車高級副總裁李冠華表示，公司會在香港作長期投資，總額達20億元。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_2_20250408165543.jpg&q=80)
   
 

@@ -1,3 +1,27 @@
+# 中海油控股股東擬斥資最多40億元增持AH股
+
+![中國海油集團計劃未來1年內，增持中海油A股及港股股份，最多涉及40億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799456_1_20250408174749.jpg&q=90)
+  
+
+中海油公布，控股股東中國海油集團計劃未來1年內，動用自有資金增持中海油A股及港股股份，涉及金額介乎20億至40億元人民幣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799456-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799456-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799456-20250408.htm)
+
+---
+
 # 巴拿馬審計報告指長和港口特許經營權有多項違規
 
   
@@ -211,7 +235,7 @@
 
 # 新一批重點引進企業涉人工智能　生命健康與新能源科技行業
 
-![百度智能駕駛國際化業務總理牛昊天表示，公司選擇來港是希望將自動駕駛技術和先導應用在香港落地。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_1_20250408165543.jpg&q=80)
+![百度智能駕駛國際化業務總經理牛昊天表示，公司選擇來港是希望將自動駕駛技術和先導應用在香港落地。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_1_20250408165543.jpg&q=80)
 ![理想汽車高級副總裁李冠華表示，公司會在香港作長期投資，總額達20億元。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_2_20250408165543.jpg&q=80)
   
 
@@ -303,6 +327,54 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799419-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799419-20250408.htm)
+
+---
+
+# 回應美國籲阿根廷終止與中國本幣互換合作　外交部批美挑撥離間
+
+![林劍表示，中方一貫在平等互利基礎上與阿根廷合作，兩國本幣互換合作為阿根廷維護經濟金融穩定，發揮重要作用。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799427_1_20250408152519.jpg&q=90)
+  
+
+美國國務院拉美問題特使卡羅內近日呼籲阿根廷終止與中國的本幣互換合作，並形容這是中國對阿根廷的「勒索機制」。在北京，外交部發言人林劍表示，中國同有關國家雙邊合作從不針對第三方，也不應受到第三方干擾。到底是誰在勒索脅迫、無事生非，公道自在人心。中方奉勸美方擺正心態，與其花時間挑撥離間，不如為拉美和加勒比國家發展多做點實實在在的事情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm)
+
+---
+
+# 曼聯時隔12年再訪港　下月30日與港隊於大球場踢表演賽
+
+![曼聯將於5月30日晚上8時，與港隊在大球場對戰。（中國香港足球總會社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799426_1_20250408153824.jpg&q=90)
+  
+
+英超球隊曼聯將於5月底訪港，與中國香港足球代表隊在香港大球場踢表演賽。主辦單位與中國香港足球總會將於星期四下午舉行記者會，公布賽事詳情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm)
 
 ---
 
@@ -1358,77 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799330-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799330-20250408.htm)
-
----
-
-# 道指低收349點　曾挫逾1700點　納指靠穩收市
-
-![美股收市個別發展，道指及標普500指數跌幅顯著收窄，納指微升。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799328_1_20250408051420.jpg&q=85)
-  
-
-美股劇烈波動，收市個別發展，道指及標普500指數跌幅顯著收窄，納指微升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799328-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799328-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799328-20250408.htm)
-
----
-
-# 中國駐美使館發言人：施壓或威脅不是與中國打交道的正確方式
-
-![中國駐美使館發言人：施壓或威脅不是與中國打交道的正確方式](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799326_1_20250408045319.jpg&q=90)
-  
-
-美國總統特朗普警告，若果北京不撤回計劃採取的反制措施，美國就會對中國產品再徵收額外50%的關稅，中方重申不會屈服於壓力或威脅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799326-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799326-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799326-20250408.htm)
-
----
-
-# 特朗普稱不考慮暫停加關稅　若中方不撤關稅美方將再加五成
-
-![特朗普說，與中國國家主席習近平關係很好，希望一直保持這種狀態。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799324_1_20250408042611.jpg&q=90)
-  
-
-美國總統特朗普表示，不考慮暫停加徵關稅，強調希望與所有國家達成公平的協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799324-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799324-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799324-20250408.htm)
 
 ---
