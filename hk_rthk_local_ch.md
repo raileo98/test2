@@ -1,3 +1,23 @@
+# 據了解便衣警截獲一男子懷疑在啟德兜售Coldplay黃牛票
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799469-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799469-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799469-20250408.htm)
+
+---
+
 # 銀行公會歡迎金管局與銀行業推出針對個別行業支持措施
 
 ![銀行公會歡迎金管局與銀行業針對個別行業推出支持措施，協助中小企減輕資金壓力及升級轉型。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799464_1_20250408182755.jpg&q=90)
@@ -47,6 +67,7 @@
 
 # 18家銀行同意為進出口製造業彈性延長貿易融資貸款還款期
 
+![「中小企融資專責小組」會議由金管局副總裁阮國恒（左三）及銀行公會主席禤惠儀（右二）共同主持。（金管局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799467_1_20250408191200.jpg&q=90)
   
 
 金管局與多間銀行及商會舉行會議，銀行業界承諾繼續落實支持中小企的「9+5」措施，而「中小企融資專責小組」的18家參與銀行同意為進出口製造業，彈性延長貿易融資貸款還款期。
@@ -70,6 +91,10 @@
 
 # Coldplay啟德演唱會即將舉行　有觀眾中午已到場排隊
 
+![場館外有人手持寫有「求票」的紙牌。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799466_1_20250408191742.jpg&q=90)
+![有市民形容氣氛很好，演唱會未開始，在場外都感受到氣氛（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799466_2_20250408191742.jpg&q=85)
+![觀眾可攜帶容量不超過600毫升的膠水瓶或杯進場，但不能有蓋，亦不能載有飲品，不少人要即場飲完才進場。（陳曉筠攝）.JPG](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799466_3_20250408191742.jpg&q=85)
+![為爭取有利位置，有購了企位票的觀眾中午已到場排隊。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799466_4_20250408191742.jpg&q=75)
   
 
 英國樂隊Coldplay在啟德體育園主場館的演唱會，即將舉行，有觀眾中午已到場排隊。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm)
-
----
-
-# 行政署稱前特首辦搬往入境事務大樓是物盡其用
-
-![伍江美妮表示，前任行政長官辦公室搬往入境事務大樓是物盡其用，並節省大筆開支。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799286_1_20250407192241.jpg&q=85)
-  
-
-立法會財委會一連五日舉行特別會議，審議2025/26年度政府開支預算。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799286-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799286-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799286-20250407.htm)
 
 ---

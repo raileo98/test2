@@ -1,3 +1,27 @@
+# 捷克總理社交平台帳號被黑客攻擊並發布虛假資訊
+
+![菲亞拉的社交平台帳號今早被黑客攻擊，並發布虛假資訊。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799471_1_20250408191732.jpg&q=90)
+  
+
+捷克總理菲亞拉的社交平台「X」帳號被黑客攻擊，並發布虛假資訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799471-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799471-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799471-20250408.htm)
+
+---
+
 # 美軍將於沖繩嘉手納基地部署大型無人機
 
 ![美軍將於沖繩嘉手納基地部署大型無人機](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799453_1_20250408172251.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799204-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799204-20250407.htm)
-
----
-
-# 央視「玉淵譚天」文章指特朗普濫施關稅　美國上下開展自救行動
-
-![文章指關稅措施從根本上重塑美國人生活。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799195_1_20250407104031.jpg&q=75)
-  
-
-央視旗下社交平台「玉淵譚天」發文，形容關稅措施為美國帶來的風暴才剛剛開始。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm)
 
 ---
