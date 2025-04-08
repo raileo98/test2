@@ -1,3 +1,27 @@
+# 外交部：倘美方執意打關稅戰貿易戰　中方必將奉陪到底
+
+![外交部說，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799450_1_20250408171401.jpg&q=80)
+  
+
+美國總統特朗普威脅升級對華關稅，警告若中方不撤回對美國加徵反制關稅的決定，美國會再向中國徵收五成關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm)
+
+---
+
 # 外交部：中方繼續與有關各方溝通協調　推動解決伊朗核問題
 
 ![林劍表示，中方將繼續與有關各方溝通協調，推動達成兼顧各方合理關切的伊朗核問題解決方案。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799442_1_20250408164818.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798920-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798920-20250404.htm)
-
----
-
-# 西藏有藏族學生指學習漢語對未來發展重要　校方稱寄宿與否屬自願
-
-![校方表示，學習多種語言對學生的溝通能力有幫助。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798921_1_20250404123258.jpg&q=85)
-  
-
-西藏近年不少藏族學童入讀公立寄宿學校，每星期都要學習藏語、漢語及英語。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm)
 
 ---

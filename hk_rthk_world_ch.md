@@ -1,3 +1,27 @@
+# 外交部：倘美方執意打關稅戰貿易戰　中方必將奉陪到底
+
+![外交部說，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799450_1_20250408171401.jpg&q=80)
+  
+
+美國總統特朗普威脅升級對華關稅，警告若中方不撤回對美國加徵反制關稅的決定，美國會再向中國徵收五成關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm)
+
+---
+
 # 李強與馮德萊恩通話討論美國關稅措施　馮德萊恩稱避免局勢升級
 
 ![針對美國關稅措施造成混亂，馮德萊恩強調歐中有責任支持建基於自由、公平的貿易體系改革，呼籲透過談判解決當前情況，避免局勢進一步升級。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799443_1_20250408170902.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799175-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799175-20250407.htm)
-
----
-
-# 韓媒：南韓政府初步定於6月3日舉行總統選舉
-
-![韓媒稱南韓政府初步定於今年6月3日舉行大選，填補上星期被罷免的尹錫悅的總統職務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799173_1_20250407090000.jpg&q=90)
-  
-
-南韓傳媒報道，南韓政府初步定於今年6月3日，舉行總統大選，填補上星期被罷免的尹錫悅的總統職務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799173-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799173-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799173-20250407.htm)
 
 ---
