@@ -1,5 +1,6 @@
 # 有樂迷稱啟德主場館音響佳　有觀眾指不能帶有蓋水瓶不方便
 
+![Coldplay在啟德主場館舉行首場演唱會。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799499_2_20250409010349.jpg&q=90)
 ![有觀眾認為，演唱會整體有驚喜，氣氛一流。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799499_1_20250409004913.jpg&q=90)
   
 
@@ -24,6 +25,7 @@
 
 # 據了解警方發現6人涉高價兜售演唱會門票　警方稱續打擊黃牛活動
 
+![啟德體育園區下午已有不少觀眾提早到場，亦有人懷疑兜售門票。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799496_2_20250409010310.jpg&q=80)
   
 
 英國樂隊Coldplay在啟德體育園主場館舉行的首場演唱會。據了解，警方共發現6人涉嫌高價兜售演唱會門票，會向其中1人發傳票票控，並拘捕餘下5名內地人，因他們涉嫌違反逗留條件。

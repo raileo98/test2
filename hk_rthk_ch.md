@@ -1,5 +1,29 @@
+# 多米尼加夜總會屋頂坍塌增至最少27死　當局加緊救瓦礫下倖存者
+
+  
+
+多米尼加首都聖多明各一間夜總會屋頂坍塌事故，當地傳媒報道增至最少27人死亡，超過130人送院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799500-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799500-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799500-20250409.htm)
+
+---
+
 # 有樂迷稱啟德主場館音響佳　有觀眾指不能帶有蓋水瓶不方便
 
+![Coldplay在啟德主場館舉行首場演唱會。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799499_2_20250409010349.jpg&q=90)
 ![有觀眾認為，演唱會整體有驚喜，氣氛一流。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799499_1_20250409004913.jpg&q=90)
   
 
@@ -47,6 +71,7 @@
 
 # 據了解警方發現6人涉高價兜售演唱會門票　警方稱續打擊黃牛活動
 
+![啟德體育園區下午已有不少觀眾提早到場，亦有人懷疑兜售門票。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799496_2_20250409010310.jpg&q=80)
   
 
 英國樂隊Coldplay在啟德體育園主場館舉行的首場演唱會。據了解，警方共發現6人涉嫌高價兜售演唱會門票，會向其中1人發傳票票控，並拘捕餘下5名內地人，因他們涉嫌違反逗留條件。
@@ -1418,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799424-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799424-20250408.htm)
-
----
-
-# 葉劉淑儀：中國已預備好應對美國關稅措施　長遠將成為贏家
-
-![葉劉淑儀表示，長遠而言，中國在貿易、技術和道德層面都會是贏家。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799429_1_20250408153932.jpg&q=80)
-  
-
-美國對包括中國在內的全球大部分國家和地區徵收對等關稅，行政會議召集人、新民黨主席葉劉淑儀表示，中國已準備好如何應對，美國總統特朗普將自由貿易和多邊體系的領導者角色讓給中國，長遠而言，中國在貿易、技術和道德層面都會是贏家。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm)
 
 ---
