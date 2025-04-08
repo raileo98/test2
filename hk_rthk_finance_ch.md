@@ -1,8 +1,31 @@
+# 渣打：期望內地及美國以外地區推出措施穩定全球需求惠及香港出口
+
+  
+
+渣打大中華及北亞區高級經濟師劉健恒認為，「特朗普1.0」時透過增加對其他地方出口以應對關稅的策略，今次未必能再奏效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799445-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799445-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799445-20250408.htm)
+
+---
+
 # 陳茂波稱新一批引進企業不少將設研發中心　帶來500億元投資
 
   
 
-引進重點企業辦公室下午舉辦重點企業夥伴簽約儀式，公布第四批共18間重點企業名單，當中涉及人工智能與數據科學，生命健康科技，先進製造與新能源科技等行業，14間企業來自內地，2間來自美國，1間來自新加坡，另有1間不公布企業名稱。
+引進重點企業辦公室下午舉辦重點企業夥伴簽約儀式，公布第四批共18間重點企業名單，當中涉及人工智能與數據科學，生命健康科技，先進製造與新能源科技等行業，14間企業來自內地，2間來自美國，1間來自新加坡，另有1間不公開企業名稱。
 
   
 
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799303-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799303-20250407.htm)
-
----
-
-# 陳茂波：堅持自由港核心優勢　政府多方面支援中小企
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799296_1_20250407200503.jpg&q=80)
-  
-
-財政司司長陳茂波表示，香港的自由港地位是在一國兩制下其中一個最重要的基本和核心競爭優勢，不管資金、人才、貨物和資訊都可自由進出香港，強調本港會繼續按照基本法保持自由港地位，香港支持自由貿易的決心和承諾決不動搖。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799296-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799296-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799296-20250407.htm)
 
 ---
