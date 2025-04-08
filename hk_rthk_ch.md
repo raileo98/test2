@@ -1,3 +1,51 @@
+# 美軍將於沖繩嘉手納基地部署大型無人機
+
+![美軍將於沖繩嘉手納基地部署大型無人機](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799453_1_20250408172251.jpg&q=90)
+  
+
+美軍將於日本沖繩嘉手納空軍基地部署大型無人機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799453-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799453-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799453-20250408.htm)
+
+---
+
+# 南韓：約10名北韓士兵越過軍事分界線　鳴槍警告後退回
+
+![南韓：約10名北韓士兵越過軍事分界線　鳴槍警告後退回](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799454_1_20250408172801.jpg&q=90)
+  
+
+南韓聯合參謀本部表示，約10名北韓士兵越過軍事分界線，在南韓鳴槍警告後馬上退回。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799454-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799454-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799454-20250408.htm)
+
+---
+
 # 有樂迷對Coldplay香港限定衣服售罄感可惜
 
   

@@ -1,3 +1,51 @@
+# 美軍將於沖繩嘉手納基地部署大型無人機
+
+![美軍將於沖繩嘉手納基地部署大型無人機](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799453_1_20250408172251.jpg&q=90)
+  
+
+美軍將於日本沖繩嘉手納空軍基地部署大型無人機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799453-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799453-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799453-20250408.htm)
+
+---
+
+# 南韓：約10名北韓士兵越過軍事分界線　鳴槍警告後退回
+
+![南韓：約10名北韓士兵越過軍事分界線　鳴槍警告後退回](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799454_1_20250408172801.jpg&q=90)
+  
+
+南韓聯合參謀本部表示，約10名北韓士兵越過軍事分界線，在南韓鳴槍警告後馬上退回。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799454-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799454-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799454-20250408.htm)
+
+---
+
 # 巴拿馬審計報告指長和港口特許經營權有多項違規
 
   
@@ -1385,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm)
-
----
-
-# 中方強烈不滿及堅決反對少數國家與組織罔顧事實干涉中國內政
-
-![發言人說中方敦促有關國家和組織恪守對中方所作的政治承諾。（中國駐加拿大使館網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799197_1_20250407165040.jpg&q=90)
-  
-
-中國駐加拿大使館表示，中方強烈不滿、堅決反對並絕不接受少數國家與組織罔顧事實、顛倒黑白及公然干涉中國內政。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm)
-
----
-
-# 林定國稱國家安全教育應持續每天都要做　制裁不影響工作決心
-
-![林定國表示，雖然現在擁有很安定的環境，都不能忘記國家安全的風險或會存在。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799190_1_20250407102518.jpg&q=90)
-  
-
-本月15日是第10屆「全民國家安全教育日」，律政司司長林定國表示，國家安全教育不應集中在某些特別的日子，他舉例說每年2月14日是情人節，說「難道那天你才對老婆好 」，認為應該持續每天都要做，又說這是他在法律方面推動國家安全教育的理念。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm)
 
 ---
