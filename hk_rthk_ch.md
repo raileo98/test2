@@ -1,3 +1,26 @@
+# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關銳
+
+  
+
+美國貿易代表格里爾表示，對等關稅在星期三生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm)
+
+---
+
 # 多米尼加夜總會屋頂坍塌增至最少27死　當局加緊救瓦礫下倖存者
 
   
@@ -1419,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm)
-
----
-
-# 全國社保基金：近期將繼續增持國內股票
-
-![社保基金稱始終堅持長期投資、價值投資、責任投資理念，堅定看好中國資本市場發展前景。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799424_1_20250408173924.jpg&q=90)
-  
-
-全國社保基金公布，近日已主動增持國內股票，近期將繼續增持，會在積極開展股票投資的同時實現基金安全和保值增值。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799424-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799424-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799424-20250408.htm)
 
 ---

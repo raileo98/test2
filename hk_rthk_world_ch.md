@@ -1,3 +1,26 @@
+# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關銳
+
+  
+
+美國貿易代表格里爾表示，對等關稅在星期三生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm)
+
+---
+
 # 多米尼加夜總會屋頂坍塌增至最少27死　當局加緊救瓦礫下倖存者
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm)
-
----
-
-# 中方完成福島核污水獨立檢測未見異常　外交部稱續促日方履行承諾
-
-![國家原子能機構公布，中方對日本福島核污染水排海獨立取樣檢測結果，指海水和海洋生物樣本放射性物質濃度未見異常。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799253_1_20250407154336.jpg&q=90)
-  
-
-在北京，國家原子能機構公布，中方對日本福島核污染水排海獨立取樣檢測結果，指海水和海洋生物樣本的氚、銫-134、銫-137、鍶-90等放射性物質濃度未見異常。中方會將相關檢測數據提交國際原子能機構。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799253-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799253-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799253-20250407.htm)
 
 ---

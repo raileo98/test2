@@ -1,3 +1,26 @@
+# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關銳
+
+  
+
+美國貿易代表格里爾表示，對等關稅在星期三生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm)
+
+---
+
 # 日本公明黨黨魁據報本月下旬訪華　或轉交石破茂致習近平親筆信
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798955-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798955-20250404.htm)
-
----
-
-# 中方將斯凱迪奧公司等11間美國企業列入不可靠實體清單
-
-![商務部將斯凱迪奧公司等11間美國企業列入不可靠實體清單。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798953_1_20250404183729.jpg&q=75)
-  
-
-在北京，商務部表示，為維護國家主權、安全和發展利益，根據《對外貿易法》、《國家安全法》及《反外國制裁法》等有關法律，依據《不可靠實體清單規定》，決定將斯凱迪奧公司等11間實體，列入不可靠實體清單，禁止有關企業從事與中國有關的進出口活動，並禁止他們在中國境內新增投資。公告自公布日起實施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm)
 
 ---

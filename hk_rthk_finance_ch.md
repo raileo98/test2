@@ -1,3 +1,26 @@
+# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關銳
+
+  
+
+美國貿易代表格里爾表示，對等關稅在星期三生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm)
+
+---
+
 # 離岸人民幣跌穿7.38水平　創2010年開啟離岸交易以來最低
 
 ![離岸人民幣較早時跌穿7.38水平，低見7.3847兌1美元，急挫408點子，創2010年開啟離岸交易以來最低水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799491_1_20250408231939.jpg&q=85)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799354-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799354-20250408.htm)
-
----
-
-# 羅淑佩稱「甲亢哥」來港讓世界知道香港是安全及可隨時到訪地方
-
-![羅淑佩表示，「甲亢哥」來港是快閃行程，據了解對方未必想與官方渠道合作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799353_1_20250408093901.jpg&q=80)
-  
-
-美國網紅IShowSpeed又稱「甲亢哥」日前來港及進行直播，吸引不少市民圍觀拍攝。文化體育及旅遊局局長羅淑佩表示，即興是對方的賣點，今次行程展示了香港街頭及有趣事情，讓世界知道香港是安全及隨時都能到訪的地方，任何人來到香港，只要守秩序就可以玩得很開心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799353-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799353-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799353-20250408.htm)
 
 ---
