@@ -1,3 +1,51 @@
+# 董軍晤巴基斯坦空軍參謀長　稱願加強中巴戰略溝通協作
+
+![董軍表示，中方願與巴方不斷加強戰略溝通協作，共同維護國際和地區安全穩定。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799479_1_20250408204046.jpg&q=90)
+  
+
+國防部長董軍在北京會見巴基斯坦空軍參謀長巴伯爾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799479-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799479-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799479-20250408.htm)
+
+---
+
+# 李強指中國完全能對沖外部不利影響
+
+![國務院總理李強指中方反制美國關稅措施，捍衛國際公平正義，完全能夠對沖外部不利影響。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799478_1_20250408203650.jpg&q=90)
+  
+
+國務院總理李強與歐盟委員會主席馮德萊恩通電話，討論貿易和中歐關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799478-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799478-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799478-20250408.htm)
+
+---
+
 # 李強：中歐應加強溝通協調　維護自由開放貿易投資
 
 ![國務院總理李強說中歐應加強溝通協調、擴大相互開放，維護自由開放的貿易投資。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799470_1_20250408191709.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm)
-
----
-
-# 全運會保齡球香港甄選賽明日起舉行
-
-![香港代表隊的甄選賽將會在明天、後天及下星期六，在啟德體育園啟德一號零售館的保齡球中心舉行。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798947_1_20250404172623.jpg&q=90)
-  
-
-第十五屆全運會年底舉行，首次將保齡球列為群眾賽事項目，並將在香港舉行。香港代表隊的甄選賽將會在明天、後天及下星期六，在啟德體育園啟德一號零售館的保齡球中心舉行，選出5男5女代表香港出賽。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm)
-
----
-
-# 特區救援隊與國家隊義診緬甸地震災民
-
-![救援隊帶災民到醫療帳篷接受診治。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798938_2_20250404155558.jpg&q=65)
-  
-
-正在緬甸協助救援的特區救援隊，聯同國家隊在災區設置帳篷義診，帶同醫療裝備，例如量度維生指數的儀器、處理傷口的消毒用品等，協助災民處理傷患及提供藥物。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm)
 
 ---

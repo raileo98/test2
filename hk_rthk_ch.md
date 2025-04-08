@@ -1,5 +1,54 @@
+# 董軍晤巴基斯坦空軍參謀長　稱願加強中巴戰略溝通協作
+
+![董軍表示，中方願與巴方不斷加強戰略溝通協作，共同維護國際和地區安全穩定。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799479_1_20250408204046.jpg&q=90)
+  
+
+國防部長董軍在北京會見巴基斯坦空軍參謀長巴伯爾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799479-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799479-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799479-20250408.htm)
+
+---
+
+# 李強指中國完全能對沖外部不利影響
+
+![國務院總理李強指中方反制美國關稅措施，捍衛國際公平正義，完全能夠對沖外部不利影響。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799478_1_20250408203650.jpg&q=90)
+  
+
+國務院總理李強與歐盟委員會主席馮德萊恩通電話，討論貿易和中歐關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799478-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799478-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799478-20250408.htm)
+
+---
+
 # 陳國基：特區政府在維護國安和推展愛國主義教育取得豐碩成果
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799477_1_20250408203840.jpg&q=90)
   
 
 勞工及福利局、社署和香港社福界心連心大行動聯合舉辦香港社福界維護國家安全研討會，進一步提升香港社福界主動維護國家安全的意識。超過8000位香港社福界人士以線上線下的方式參與。
