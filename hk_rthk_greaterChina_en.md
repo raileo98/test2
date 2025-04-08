@@ -1,3 +1,51 @@
+# PBOC backs sovereign fund in boosting market stability
+
+![Shanghai Composite Index plunged 7 percent on Monday in its worst day in five years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799347_1_20250408085608.jpg&q=90)
+  
+
+China's central bank said on Tuesday it supported sovereign wealth fund Central Huijin Investment increasing its holdings in stock market index funds.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm)
+
+---
+
+# Beijing 'won't cave in' to 50pc Trump tariff threat
+
+![An electronic board shows stock indices in the Lujiazui financial district in Shanghai. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799351_1_20250408090938.jpg&q=90)
+  
+
+China said it would never accept the "blackmail nature" of the United States after Washington escalated tariff threats against the nation, the Ministry of Commerce said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm)
+
+---
+
 # World Expo hit with methane risk ahead of opening
 
 ![Organisers barred people from coming near the affected area at Expo 2025 in Osaka for about an hour to ventilate it. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799288_1_20250407183551.jpg&q=75)
@@ -1391,53 +1439,5 @@ The chair of the European Chamber of Commerce in Hong Kong on Monday welcomed la
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797113-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797113-20250324.htm)
-
----
-
-# Norway's Jakob Ingebrigtsen wins 1,500m in Nanjing
-
-![Norway’s Jakob Ingebrigtsen celebrates after winning the men’s 1500m final during the Indoor World Athletics Championships in Nanjing, Jiangsu province. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797058_1_20250323214422.jpg&q=90)
-  
-
-Norway's Jakob Ingebrigtsen won the 1,500m in Nanjing on Sunday to claim not only a first global gold in his favoured distance, but also a rare world indoor track distance double.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm)
-
----
-
-# Reed qualifies for British Open after Macau finish
-
-![Patrick Reed playing a shot during the final round of the 2025 International Series Macau at the Macau Golf and Country Club in Macau. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797045_1_20250323191233.jpg&q=90)
-  
-
-Former Masters champion Patrick Reed qualified for the British Open after coming second behind fellow LIV player Carlos Ortiz at the International Series Macau on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm)
 
 ---

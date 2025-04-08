@@ -1,3 +1,195 @@
+# US aid cuts a 'death sentence' for millions: UN
+
+![The Trump administration has largely gutted USAID, the main US humanitarian assistance organisation. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799361_1_20250408093958.jpg&q=90)
+  
+
+The United States has ended emergency food aid for 14 countries, endangering the lives of millions of hungry or starving people, a United Nations agency said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm)
+
+---
+
+# Tokyo's Nikkei up 5.8pc as US tariffs fuel volatility
+
+![The benchmark Nikkei 225 index was up 5.81 percent, or 1,809 points, in early trade on Tuesday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799360_1_20250408093028.jpg&q=80)
+  
+
+Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after plunging 7.8 percent the previous day, as US tariffs fuel market volatility.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm)
+
+---
+
+# PBOC backs sovereign fund in boosting market stability
+
+![Shanghai Composite Index plunged 7 percent on Monday in its worst day in five years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799347_1_20250408085608.jpg&q=90)
+  
+
+China's central bank said on Tuesday it supported sovereign wealth fund Central Huijin Investment increasing its holdings in stock market index funds.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm)
+
+---
+
+# Beijing 'won't cave in' to 50pc Trump tariff threat
+
+![An electronic board shows stock indices in the Lujiazui financial district in Shanghai. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799351_1_20250408090938.jpg&q=90)
+  
+
+China said it would never accept the "blackmail nature" of the United States after Washington escalated tariff threats against the nation, the Ministry of Commerce said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm)
+
+---
+
+# JPMorgan Chase CEO warns tariffs will slow growth
+
+![JPMorgan Chase CEO Jamie Dimon described Trump's tariffs as one of several factors that could boost inflation. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799345_1_20250408084713.jpg&q=90)
+  
+
+JPMorgan Chase CEO Jamie Dimon warned on Monday that US President Donald Trump's tariffs will likely lift inflation, describing himself as "very cautious" in light of the rising recession risk.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799345-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799345-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799345-20250408.htm)
+
+---
+
+# Philippines volcano sends ash into the air
+
+![Videos posted on social media show a wide, billowing plume of smoke coming from the Kanlaon Volcano. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799343_1_20250408083655.jpg&q=90)
+  
+
+A volcano in the central Philippines erupted early on Tuesday morning, sending a plume of ash 4,000 metres into the sky and prompting calls for local school cancellations.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm)
+
+---
+
+# Medvedev battles past Khachanov at Monte Carlo
+
+![Daniil Medvedev advanced to the second round of the Monte Carlo Masters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799341_1_20250408081254.jpg&q=90)
+  
+
+Daniil Medvedev navigated his way into the second round of the Monte Carlo Masters on Monday, eventually seeing off former world number eight Karen Khachanov 7-5, 4-6, 6-4.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799341-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799341-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799341-20250408.htm)
+
+---
+
+# Newcastle boost Champions League chase
+
+![Newcastle defeated Leicester 3-0 at King Power Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799342_1_20250408082838.jpg&q=90)
+  
+
+Newcastle coasted to a 3-0 win over sorry Leicester on Monday to step up their Champions League charge and condemn the Foxes to an eighth straight Premier League defeat without scoring.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799342-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799342-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799342-20250408.htm)
+
+---
+
 # Trump announces direct nuclear talks with Iran
 
 ![US President Donald Trump made the announcement about the Iran talks during a meeting with Israeli Prime Minister Benjamin Netanyahu. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799344_1_20250408083723.jpg&q=90)
@@ -1243,197 +1435,5 @@ Donald Trump told Americans on Saturday to “hang tough” in the face of econo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm)
-
----
-
-# Nick Rockett, at 33-1, wins the Grand National
-
-![Jockey Patrick Mullins reacts as he passes the finish line. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799082_1_20250406074831.jpg&q=90)
-  
-
-Nick Rockett, a 33-1 shot ridden by Patrick Mullins, won the Grand National steeplechase at Aintree on Saturday (April 5) in a top three sweep for horses trained by the Irish amateur jockey's father Willie.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799082-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799082-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799082-20250406.htm)
-
----
-
-# Arsenal title bid almost over after draw at Everton
-
-![Arsenal manager Mikel Arteta reacts on the pitch after the match between Everton and Arsenal at Goodison Park. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799081_1_20250406071657.jpg&q=90)
-  
-
-Arsenal's faint hopes of catching Premier League leaders Liverpool are almost over after their 1-1 draw at Everton, while Aston Villa bolstered their bid for Champions League qualification with a 2-1 win against Nottingham Forest on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799081-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799081-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799081-20250406.htm)
-
----
-
-# Elon Musk calls for a US-Europe free trade zone
-
-![The billionaire also said he favoured more freedom for people to move between Europe and North America for work. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799077_1_20250406044926.jpg&q=90)
-  
-
-Billionaire US presidential adviser Elon Musk said on Saturday he hoped Europe and the United States would agree to join in a free-trade zone after US leader Donald Trump unleashed heavy global trade tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799077-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799077-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799077-20250406.htm)
-
----
-
-# China says US must 'stop using tariffs as a weapon'
-
-![Foreign Ministry spokesperson Guo Jiakun wrote on Facebook that "the market has spoken," after Wall Street headed south two days in a row. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799060_1_20250405203120.jpg&q=90)
-  
-
-China said on Saturday "the market has spoken" in rejecting US President Donald Trump's tariffs, and called on Washington for "equal-footed consultation" after global markets plunged in reaction to the trade levies that drew Chinese retaliation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm)
-
----
-
-# India's Modi signs defence, energy deals in Sri Lanka
-
-![Indian Prime Minister Narendra Modi received the Mithra Vibhushana medal from Sri Lankan President Anura Kumara Dissanayake as a sign of their friendship. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799057_1_20250405194538.jpg&q=90)
-  
-
-India secured defence and energy deals with neighbouring Sri Lanka on Saturday during Prime Minister Narendra Modi's visit.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799057-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799057-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799057-20250405.htm)
-
----
-
-# Thomas Müller to leave Bayern Munich after this season
-
-![Müller came through the Bayern junior system and has won two Champions Leagues along with 12 Bundesliga titles. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799054_1_20250405184900.jpg&q=90)
-  
-
-Thomas Müller will leave Bayern Munich this summer after a 25-year career at the German club.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799054-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799054-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799054-20250405.htm)
-
----
-
-# HK won't impose countermeasures against US tariffs: FS
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799045_1_20250405170141.jpg&q=80)
-  
-
-Financial Secretary Paul Chan on Saturday said Hong Kong will not impose countermeasures even though the United States announced sweeping tariffs on countries around the world.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799045-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799045-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799045-20250405.htm)
-
----
-
-# Water tariff review aims to make users pay: director
-
-![Roger Wong says the review of water charges aims to achieve the principle of user pays. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799041_1_20250405161641.jpg&q=90)
-  
-
-The Director of Water Supplies said on Saturday that while the department is still reviewing water charges, its objective is to achieve the principle of user pays.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm)
 
 ---

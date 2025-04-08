@@ -1,3 +1,140 @@
+# 李家超：特區救援隊表現無私　期待完成任務後安全返港
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm)
+
+---
+
+# 李家超：加快融入國家發展大局　與更多國家簽訂自貿協定
+
+  
+
+行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm)
+
+---
+
+# 李家超：美國霸凌行為濫施關稅　破壞世界經貿秩序
+
+  
+
+行政長官李家超表示，上星期美國宣布對多個貿易夥伴徵收所謂「對等關稅」，其中向香港產品加徵三成四關稅，連同早前宣布的兩成關稅，累計徵收五成四關稅。他批評美國不再奉行自由貿易，破壞國際共同建立的世界貿易規則，做法霸凌野蠻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm)
+
+---
+
+# 莊太量料美國或加快減息步伐　又稱特朗普害怕中國反制
+
+  
+
+美國引發的貿易戰震盪全球股市，清明節長周末過後，港股單日跌超過3000點，創歷來最大點數跌幅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量在本台節目《千禧年代》說，估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。他估計美國減息的步伐可能會加快，反而通脹問題不會是美國目前最關注的情況，因此應留意未來聯儲局的動向。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm)
+
+---
+
+# 美威脅升級對華關稅　商務部：中方必將奉陪到底
+
+![發言人表示，美方對華加徵所謂「對等關稅」毫無根據，是典型的單邊霸凌做法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799354_1_20250408091435.jpg&q=75)
+  
+
+在北京，商務部表示，堅決反對美方威脅進一步對華加徵50%關稅，如果美方升級關稅措施落地，中方將堅決採取反制措施維護自身權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799354-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799354-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799354-20250408.htm)
+
+---
+
+# 人民日報署名文章：施壓和威脅絕不是同中方打交道的正確方式
+
+![人民日報發表署名文章強調中方從不惹事，但也不怕事。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799346_1_20250408091208.jpg&q=85)
+  
+
+人民日報發表署名文章，批評美方所謂「對等關稅」實質上是強權政治的表現，搞的是「美國獨霸」。強調中方從不惹事，但也不怕事，認為施壓和威脅絕不是同中方打交道的正確方式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799346-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799346-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799346-20250408.htm)
+
+---
+
 # 美國龍捲風及暴雨等惡劣天氣於中西部和南部造成至少21死
 
 ![肯塔基州創下州內連續4天降雨量最高紀錄，至少20個城鎮的供水系統受到影響。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799338_1_20250408080330.jpg&q=90)
@@ -1291,149 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799118-20250406.htm)
-
----
-
-# 北韓官媒簡要報道尹錫悅被罷免　分析指欲與韓方保持一定距離
-
-![朝中社有報道尹錫悅的消息，但未加以評論。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799113_1_20250406143359.jpg&q=90)
-  
-
-北韓官方朝中社昨日簡要報道南韓憲法法院前一天裁定罷免尹錫悅總統職務的消息，未加以評論。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799113-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799113-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799113-20250406.htm)
-
----
-
-# 尹錫悅再發表立場　稱雖不再擔任總統但會一直守護大家
-
-![尹錫悅向支持自己的組織「國民律師團」發出的感謝信。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799112_1_20250406143244.jpg&q=90)
-  
-
-在南韓被罷免總統職務的尹錫悅向支持者發表感謝信，是他被罷免後第二次發表立場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799112-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799112-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799112-20250406.htm)
-
----
-
-# 基輔遇襲防空系統作出防禦　市長籲民眾做好安全防護
-
-![烏克蘭首都基輔遭受導彈攻擊，防空系統作出防禦。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799111_1_20250406141927.jpg&q=85)
-  
-
-烏克蘭首都基輔遭受導彈攻擊，防空系統作出防禦。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799111-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799111-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799111-20250406.htm)
-
----
-
-# 中國國際救援隊聯同中國救援隊及中國香港救援隊續於緬甸災區義診
-
-![央視新聞報道，中國國際救援隊聯同中國救援隊及中國香港救援隊，繼續在緬甸曼德勒市受災群眾安置點義診。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799109_1_20250406141841.jpg&q=85)
-  
-
-央視新聞報道，中國國際救援隊聯同中國救援隊及中國香港救援隊，繼續在緬甸曼德勒市受災群眾安置點義診，派出內科、外科、兒科、心理諮詢等專業醫療專家及護士超過20人，以心電圖機、可携式X光機等檢查設備，為災民量血壓及進行超聲波等檢查，並免費發放藥品，昨日共診治180多人次、輔助檢查化驗59人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799109-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799109-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799109-20250406.htm)
-
----
-
-# 中國海警艦艇驅離一艘非法進入釣魚島領海日本漁船
-
-![中國海警局表示，釣魚島及其附屬島嶼是中國固有領土。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799099_1_20250406140236.jpg&q=90)
-  
-
-中國海警局表示，一艘日本漁船非法進入釣魚島領海，中國海警艦艇依法採取必要管控措施並警告驅離。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799099-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799099-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799099-20250406.htm)
-
----
-
-# 美國多州惡劣天氣持續　最少16人因天氣相關原因死亡
-
-![美國國家氣象局預計多個州的數十個地點將達到該機構所界定的「重大洪水階段」。（美國國家氣象局網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799094_1_20250406114534.jpg&q=90)
-  
-
-美國多個州的惡劣天氣持續，南部和中西部部分地區，周六遭遇暴雨和洪水，加上近數日強風暴雨，亦出現龍捲風，令有關地區積水嚴重。天氣預報警告，部分地區的河水水位將於未來幾日持續上漲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799094-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799094-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799094-20250406.htm)
 
 ---

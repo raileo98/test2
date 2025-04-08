@@ -1,3 +1,51 @@
+# Medvedev battles past Khachanov at Monte Carlo
+
+![Daniil Medvedev advanced to the second round of the Monte Carlo Masters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799341_1_20250408081254.jpg&q=90)
+  
+
+Daniil Medvedev navigated his way into the second round of the Monte Carlo Masters on Monday, eventually seeing off former world number eight Karen Khachanov 7-5, 4-6, 6-4.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799341-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799341-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799341-20250408.htm)
+
+---
+
+# Newcastle boost Champions League chase
+
+![Newcastle defeated Leicester 3-0 at King Power Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799342_1_20250408082838.jpg&q=90)
+  
+
+Newcastle coasted to a 3-0 win over sorry Leicester on Monday to step up their Champions League charge and condemn the Foxes to an eighth straight Premier League defeat without scoring.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799342-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799342-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799342-20250408.htm)
+
+---
+
 # Southampton sack manager Ivan Juric after relegation
 
 ![Under Juric, the Saints have lost seven of their past eight league matches. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799297_1_20250407195542.jpg&q=90)
@@ -1404,53 +1452,5 @@ Novak Djokovic turned on the style to take his place in the last four of the Mia
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm)
-
----
-
-# New NBA All-Star Game format was 'a miss', says Silver
-
-![The NBA said the four-team mini-tournament for this year's All-Star Game will be scrapped. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797807_1_20250328094751.jpg&q=85)
-  
-
-It's unclear what next year's NBA All-Star Game will look like, but commissioner Adam Silver said the league is "a bit back to the drawing board" as it moves away from the three-game mini-tournament that was implemented this season.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm)
-
----
-
-# HK's men's 3x3 basketball team make Asia Cup history
-
-![The SAR's men's 3x3 basketball team qualified for the Asia Cup for the first time ever. Photo courtesy of FIBA](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797793_1_20250328085214.jpg&q=90)
-  
-
-The SAR’s men’s basketball team have made history by qualifying for the FIBA 3x3 Asia Cup for the first time ever, while their teammates from the women’s team representing Hong Kong, China fell just short of doing the same.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm)
 
 ---

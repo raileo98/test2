@@ -1,3 +1,209 @@
+# 李家超：特區救援隊表現無私　期待完成任務後安全返港
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm)
+
+---
+
+# 李家超：加快融入國家發展大局　與更多國家簽訂自貿協定
+
+  
+
+行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm)
+
+---
+
+# 陳國基稱將引導市民特別是年輕一代深入認識香港抗戰歷史
+
+  
+
+今年是抗戰勝利80周年，特區政府將舉辦一系列紀念活動。政務司司長陳國基昨日下午聯同「愛國主義教育工作小組」成員到沙頭角烏蛟騰，實地考察其中一條沙頭角抗戰文物徑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799366-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799366-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799366-20250408.htm)
+
+---
+
+# 李家超：美國霸凌行為濫施關稅　破壞世界經貿秩序
+
+  
+
+行政長官李家超表示，上星期美國宣布對多個貿易夥伴徵收所謂「對等關稅」，其中向香港產品加徵三成四關稅，連同早前宣布的兩成關稅，累計徵收五成四關稅。他批評美國不再奉行自由貿易，破壞國際共同建立的世界貿易規則，做法霸凌野蠻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm)
+
+---
+
+# 崔定邦稱Coldplay有助帶動旅客訪港　交通安排應無問題
+
+  
+
+啟德體育園主場館首次舉辦大型商業演唱會，英國樂隊Coldplay今晚首場演出。旅遊業促進會總幹事崔定邦說，從七欖賽事成功舉辦，到今次Coldplay的表演，都反映本港舉辦大型盛事活動，絕對有助帶動不同地區的旅客訪港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799363-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799363-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799363-20250408.htm)
+
+---
+
+# 莊太量料美國或加快減息步伐　又稱特朗普害怕中國反制
+
+  
+
+美國引發的貿易戰震盪全球股市，清明節長周末過後，港股單日跌超過3000點，創歷來最大點數跌幅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量在本台節目《千禧年代》說，估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。他估計美國減息的步伐可能會加快，反而通脹問題不會是美國目前最關注的情況，因此應留意未來聯儲局的動向。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm)
+
+---
+
+# Coldplay演唱會舉行　港鐵將加強屯馬及東鐵綫列車服務
+
+![港鐵表示，如人數眾多或需分批入站，啟德及宋皇臺站會增加職員協助乘客。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799355_1_20250408094246.jpg&q=90)
+  
+
+英國樂隊Coldplay演唱會將於今晚、明晚、星期五及星期六晚在啟德主場館舉行，港鐵表示，會加強屯馬綫及東鐵綫列車服務，亦會配合相關部門的整體人群管理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799355-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799355-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799355-20250408.htm)
+
+---
+
+# 羅淑佩稱「甲亢哥」來港讓世界知道香港是安全及可隨時到訪地方
+
+![羅淑佩表示，「甲亢哥」來港是快閃行程，據了解對方未必想與官方渠道合作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799353_1_20250408093901.jpg&q=80)
+  
+
+美國網紅IShowSpeed又稱「甲亢哥」日前來港及進行直播，吸引不少市民圍觀拍攝。文化體育及旅遊局局長羅淑佩表示，即興是對方的賣點，今次行程展示了香港街頭及有趣事情，讓世界知道香港是安全及隨時都能到訪的地方，任何人來到香港，只要守秩序就可以玩得很開心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799353-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799353-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799353-20250408.htm)
+
+---
+
+# 文憑試公民與社會發展科開考　有考生憂今年題目較難已多留意時事
+
+  
+
+文憑試公民與社會發展科今日開考，成績只分「達標」和「不達標」。有約4萬8千人報考。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799350-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799350-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799350-20250408.htm)
+
+---
+
 # 選舉事務處為兩場選舉預留約15億元
 
 ![選舉事務處為兩場選舉預留大約15億1300萬元撥款。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799313_1_20250407231141.jpg&q=90)
@@ -1220,221 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm)
-
----
-
-# 警方太子道東截查私家車檢獲毒品拘捕3人
-
-![警方在東九龍打擊酒後駕駛。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799162_1_20250407065413.jpg&q=85)
-  
-
-警方在東九龍拘捕3人，檢獲少量懷疑可卡因。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799162-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799162-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799162-20250407.htm)
-
----
-
-# 入境處指截至晚上9時　逾55萬人次經各口岸入境
-
-![入境處表示，截至晚上9時，有超過55萬人次經各口岸入境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799144_1_20250406223802.jpg&q=75)
-  
-
-清明節三日長周末假期最後一天，入境處表示，截至晚上9時，有超過55萬人次經各口岸入境，當中43萬多人次是香港居民。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799144-20250406.htm)
-
----
-
-# Coldplay演唱會　觀眾可攜不超600毫升塑膠樽或杯進場
-
-![英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會。（Cityline 網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799143_1_20250406221634.jpg&q=90)
-  
-
-英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會。主辦單位在社交專頁表示，觀眾可攜帶容量不超過600毫升的塑料或硅膠可重用便攜式水瓶或杯進場。不過，有關容器超過600毫升不可帶入場，另外觀眾亦不可攜帶即棄膠樽裝飲品的空樽、玻璃瓶或杯、鋁罐、保溫瓶或杯，以及不鏽鋼瓶或杯進場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799143-20250406.htm)
-
----
-
-# 休班警涉酒後駕駛被檢控明早提堂
-
-![警方表示，該名男警已被停職。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799139_1_20250406211945.jpg&q=40)
-  
-
-一名休班男警去年10月11日凌晨，在元朗公路駕駛電單車期間懷疑失控並翻側，警方到場後在他身上發現酒氣，其後證實他的血液酒精濃度超標。該名休班警員已被控一項「在血液中的酒精濃度超過訂明限度的情況下駕駛汽車」罪，案件明日上午在粉嶺判法院提堂。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799139-20250406.htm)
-
----
-
-# 將軍澳有鋁窗從高處墮下　女途人被玻璃碎片濺中頸部受傷
-
-![將軍澳富麗花園有一扇鋁窗下午懷疑從高處墮下。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799135_1_20250406201513.jpg&q=75)
-  
-
-將軍澳富麗花園有一扇約1米乘0.5米鋁窗下午近4時懷疑從高處墮下，一名69歲女途人被玻璃碎片濺中頸部受傷，她自行報警，清醒送院治理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799135-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799135-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799135-20250406.htm)
-
----
-
-# 盧寵茂指公立醫院收費改革增保障　預約日無出現應付成本
-
-![盧寵茂強調能夠為市民增加保障，猶如政府送出一份保險一樣。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799131_1_20250406185601.jpg&q=90)
-  
-
-公立醫院收費改革首階段明年元旦起實施。至於方案有無微調空間，醫務衞生局局長盧寵茂強調，收費改革已討論多時，強調能為市民增加保障，就如政府送出一份保險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799131-20250406.htm)
-
----
-
-# Coldplay演唱會散場時港鐵加密班次　特別巴士線方便過境
-
-![英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會。（Cityline 網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799130_1_20250406185539.jpg&q=90)
-  
-
-英國樂隊Coldplay星期二起將在啟德體育園舉行四場演唱會，港鐵散場時會加密班次，尾班接駁東鐵綫過境列車，晚上約11時分別在宋皇臺站及啟德站開出。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799130-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799130-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799130-20250406.htm)
-
----
-
-# 入境處：截至下午4時　逾27.7萬人次經各口岸入境
-
-![截至下午4時，逾27.7萬人次經各口岸入境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799129_1_20250406182555.jpg&q=90)
-  
-
-清明節三日長周末假期最後一日，入境處表示，截至下午4時，有27萬7000多人次經各口岸入境，另有25萬6000多人次出境，總出入境人數合計有53萬4000多人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm)
-
----
-
-# 緬甸地震災區天氣炎熱　特區救援隊備多種藥物確保適合出勤
-
-![醫護團隊分別講述當地救援工作及如何應對高溫天氣。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799128_1_20250406181110.jpg&q=90)
-  
-
-特區救援隊繼續在緬甸地震災區協助搜救工作，醫護團隊分別講述當地救援工作及如何應對高溫天氣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799128-20250406.htm)
 
 ---

@@ -1,3 +1,75 @@
+# US aid cuts a 'death sentence' for millions: UN
+
+![The Trump administration has largely gutted USAID, the main US humanitarian assistance organisation. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799361_1_20250408093958.jpg&q=90)
+  
+
+The United States has ended emergency food aid for 14 countries, endangering the lives of millions of hungry or starving people, a United Nations agency said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm)
+
+---
+
+# Tokyo's Nikkei up 5.8pc as US tariffs fuel volatility
+
+![The benchmark Nikkei 225 index was up 5.81 percent, or 1,809 points, in early trade on Tuesday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799360_1_20250408093028.jpg&q=80)
+  
+
+Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after plunging 7.8 percent the previous day, as US tariffs fuel market volatility.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm)
+
+---
+
+# Philippines volcano sends ash into the air
+
+![Videos posted on social media show a wide, billowing plume of smoke coming from the Kanlaon Volcano. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799343_1_20250408083655.jpg&q=90)
+  
+
+A volcano in the central Philippines erupted early on Tuesday morning, sending a plume of ash 4,000 metres into the sky and prompting calls for local school cancellations.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm)
+
+---
+
 # Trump announces direct nuclear talks with Iran
 
 ![US President Donald Trump made the announcement about the Iran talks during a meeting with Israeli Prime Minister Benjamin Netanyahu. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799344_1_20250408083723.jpg&q=90)
@@ -1363,77 +1435,5 @@ Mass layoffs began at the major US health agencies on Tuesday as the Trump admin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm)
-
----
-
-# Volcano erupts in southwestern Iceland
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798551_1_20250402085600.jpg&q=85)
-  
-
-A volcano in southwestern Iceland - that has erupted repeatedly for more than a year - again belched lava and smoke into the air on Tuesday, just hours after authorities evacuated the few remaining residents of a nearby fishing village.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm)
-
----
-
-# Trump 'perfecting' tariffs with hours to go
-
-![White House Press Secretary Karoline Leavitt told a briefing that the tariffs would take effect "immediately" after the announcement. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798530_1_20250402033307.jpg&q=90)
-  
-
-US President Donald Trump kept the world's leading economies on edge on Tuesday as he made final preparations for a "Liberation Day" announcement of sweeping new tariffs that could trigger a global trade war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798530-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798530-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798530-20250402.htm)
-
----
-
-# French court to hear far-right leader's appeal
-
-![Marine Le Pen on Monday was given a prison term and fine after being convicted of a fake jobs scheme at the EU parliament. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798529_1_20250402032757.jpg&q=90)
-  
-
-A French appeals court said on Tuesday it would examine Marine Le Pen's case within a timeframe that could potentially allow the far-right leader to contest the 2027 presidential election if her conviction is overturned.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm)
 
 ---

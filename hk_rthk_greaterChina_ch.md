@@ -1,3 +1,120 @@
+# 李家超：加快融入國家發展大局　與更多國家簽訂自貿協定
+
+  
+
+行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm)
+
+---
+
+# 陳國基稱將引導市民特別是年輕一代深入認識香港抗戰歷史
+
+  
+
+今年是抗戰勝利80周年，特區政府將舉辦一系列紀念活動。政務司司長陳國基昨日下午聯同「愛國主義教育工作小組」成員到沙頭角烏蛟騰，實地考察其中一條沙頭角抗戰文物徑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799366-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799366-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799366-20250408.htm)
+
+---
+
+# 莊太量料美國或加快減息步伐　又稱特朗普害怕中國反制
+
+  
+
+美國引發的貿易戰震盪全球股市，清明節長周末過後，港股單日跌超過3000點，創歷來最大點數跌幅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量在本台節目《千禧年代》說，估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。他估計美國減息的步伐可能會加快，反而通脹問題不會是美國目前最關注的情況，因此應留意未來聯儲局的動向。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799357-20250408.htm)
+
+---
+
+# 美威脅升級對華關稅　商務部：中方必將奉陪到底
+
+![發言人表示，美方對華加徵所謂「對等關稅」毫無根據，是典型的單邊霸凌做法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799354_1_20250408091435.jpg&q=75)
+  
+
+在北京，商務部表示，堅決反對美方威脅進一步對華加徵50%關稅，如果美方升級關稅措施落地，中方將堅決採取反制措施維護自身權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799354-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799354-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799354-20250408.htm)
+
+---
+
+# 人民日報署名文章：施壓和威脅絕不是同中方打交道的正確方式
+
+![人民日報發表署名文章強調中方從不惹事，但也不怕事。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799346_1_20250408091208.jpg&q=85)
+  
+
+人民日報發表署名文章，批評美方所謂「對等關稅」實質上是強權政治的表現，搞的是「美國獨霸」。強調中方從不惹事，但也不怕事，認為施壓和威脅絕不是同中方打交道的正確方式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799346-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799346-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799346-20250408.htm)
+
+---
+
 # 中國駐美使館發言人：施壓或威脅不是與中國打交道的正確方式
 
 ![中國駐美使館發言人：施壓或威脅不是與中國打交道的正確方式](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799326_1_20250408045319.jpg&q=90)
@@ -1321,125 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm)
-
----
-
-# 再多一名中國人死於緬甸大地震
-
-![中國駐緬甸大使館確認，再多一名中國人死於緬甸中部大地震。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798862_1_20250403223629.jpg&q=90)
-  
-
-中國駐緬甸大使館確認，再多一名中國人死於緬甸中部大地震，至今共4名中國公民死亡，13人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm)
-
----
-
-# 羅淑佩拜會國家文化和旅遊部及國家電影局
-
-![文化體育及旅遊局局長羅淑佩（左）繼續北京拜訪行程，拜會國家文化和旅遊部副部長高政（右）。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798858_1_20250403213512.jpg&q=85)
-  
-
-文化體育及旅遊局局長羅淑佩與代表團部分成員繼續北京行程，拜會國家文化和旅遊部及國家電影局。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm)
-
----
-
-# 財政部指惠譽下調中國主權信用評級偏頗深表遺憾
-
-![惠譽將中國主權信用評級由「A+」下調至「A」，財政部回應指，有失偏頗，對此深表遺憾、不予認可。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798856_1_20250403211045.jpg&q=85)
-  
-
-財政部回應評級機構惠譽下調中國主權信用評級，指有關分析有失偏頗，不能充分客觀反映中國實際情況，以及國際國內市場對中國經濟回升向好的一致認知，對此深表遺憾、不予認可。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm)
-
----
-
-# 中國海軍指美軍艦機偵察活動極易造成誤解誤判　危害中國安全
-
-![中國海軍指美軍艦機偵察活動極易造成誤解誤判　危害中國安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798852_2_20250403203305.jpg&q=90)
-  
-
-中美兩軍一連兩日在上海，舉行中美海上軍事安全磋商機制工作小組會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798852-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798852-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798852-20250403.htm)
-
----
-
-# 鄭雁雄指要加強教育對科技和人才的支撐作用
-
-![鄭雁雄表示，特區要全面把握中共總書記習近平重要講話精神，進一步強化教育對科技和人才的支撐作用。（中聯辦相片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798848_1_20250403195407.jpg&q=90)
-  
-
-特區政府舉辦學習全國兩會精神座談會，行政長官李家超主持。中聯辦主任鄭雁雄應邀出席並作交流分享。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm)
 
 ---

@@ -1,3 +1,99 @@
+# Tokyo's Nikkei up 5.8pc as US tariffs fuel volatility
+
+![The benchmark Nikkei 225 index was up 5.81 percent, or 1,809 points, in early trade on Tuesday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799360_1_20250408093028.jpg&q=80)
+  
+
+Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after plunging 7.8 percent the previous day, as US tariffs fuel market volatility.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm)
+
+---
+
+# PBOC backs sovereign fund in boosting market stability
+
+![Shanghai Composite Index plunged 7 percent on Monday in its worst day in five years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799347_1_20250408085608.jpg&q=90)
+  
+
+China's central bank said on Tuesday it supported sovereign wealth fund Central Huijin Investment increasing its holdings in stock market index funds.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm)
+
+---
+
+# Beijing 'won't cave in' to 50pc Trump tariff threat
+
+![An electronic board shows stock indices in the Lujiazui financial district in Shanghai. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799351_1_20250408090938.jpg&q=90)
+  
+
+China said it would never accept the "blackmail nature" of the United States after Washington escalated tariff threats against the nation, the Ministry of Commerce said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm)
+
+---
+
+# JPMorgan Chase CEO warns tariffs will slow growth
+
+![JPMorgan Chase CEO Jamie Dimon described Trump's tariffs as one of several factors that could boost inflation. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799345_1_20250408084713.jpg&q=90)
+  
+
+JPMorgan Chase CEO Jamie Dimon warned on Monday that US President Donald Trump's tariffs will likely lift inflation, describing himself as "very cautious" in light of the rising recession risk.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799345-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799345-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799345-20250408.htm)
+
+---
+
 # Wall Street closes mostly lower but no big sell-off
 
 ![The Dow Jones and the S&P 500 both closed less than a percentage lower, while the Nasdaq rose slightly. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799327_1_20250408051648.jpg&q=90)
@@ -1340,101 +1436,5 @@ Lingering hopes that US president Donald Trump's planned tariff blitz next week 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797516-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797516-20250326.htm)
-
----
-
-# Ta Kung Pao issues fresh criticism of Hutchison deal
-
-![Ta Kung Pao says the sale by CK Hutchison of ports in Panama and elsewhere to BlackRock undermines China's national interests. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797495_1_20250326151647.jpg&q=80)
-  
-
-The Ta Kung Pao newspaper on Wednesday renewed its criticism of the sale by CK Hutchison of its Panama Canal ports.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm)
-
----
-
-# Hong Kong stocks rally at opening
-
-![The Hang Seng Index opened half a percentage point higher. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797435_1_20250326103245.jpg&q=75)
-  
-
-The Hang Seng Index rose 116.06 points or 0.5 percent to open at 23,460.31 points on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm)
-
----
-
-# US stocks make minor gains on tariff hopes
-
-![Tuesday's market gains came despite US consumer confidence falling for a fourth straight month in March. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797399_1_20250326062321.jpg&q=90)
-  
-
-Wall Street stocks mostly closed higher on Tuesday, building on earlier gains amid hopes that US President Donald Trump might take a narrower approach to upcoming tariffs than originally expected.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm)
-
----
-
-# Boao forum offers upbeat forecast on Asia growth
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797323_1_20250325164614.jpg&q=80)
-  
-
-Asia's economy is likely to continue its robust growth this year despite challenges, according to a report by the Boao Forum for Asia.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm)
 
 ---
