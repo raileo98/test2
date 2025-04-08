@@ -1,3 +1,51 @@
+# Tram fares to go up on May 12
+
+![Tram fares for those aged 12 and above will rise by 30 cents to HK$3.30. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799459_1_20250408181035.jpg&q=85)
+  
+
+Tram fares will go up by up to 15 percent starting from May 12.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799459-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799459-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799459-20250408.htm)
+
+---
+
+# HK to target creative industry in strategic push
+
+![Financial Secretary Paul Chan, centre back row, says more than 80 strategic enterprises have set up in Hong Kong in the past two years. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799460_1_20250408181322.jpg&q=90)
+  
+
+Financial secretary Paul Chan said on Tuesday the Office for Attracting Strategic Enterprises, OASES, will seek to attract cultural enterprises in the future in a way that combines innovation and technology with artistry.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799460-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799460-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799460-20250408.htm)
+
+---
+
 # Manchester United to play in Hong Kong on May 30
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799432_1_20250408160003.jpg&q=90)
@@ -1387,53 +1435,5 @@ Beijing has named Joe Chow as the new Commissioner of Police, replacing Raymond 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm)
-
----
-
-# 'Disneyland expansion needs careful planning'
-
-![Rosanna Law says any plans to use public money to expand Hong Kong Disneyland should be carefully considered. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798510_1_20250401213045.jpg&q=85)
-  
-
-Tourism minister Rosanna Law said on Tuesday any plans to expand Hong Kong Disneyland with public funding should be carefully considered, especially in the current economic climate.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798510-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798510-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798510-20250401.htm)
-
----
-
-# US sanctions just 'a piece of waste paper': Beijing
-
-![The Office for Safeguarding National Security says Washington should stop its bullying tactics as soon as possible. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798470_1_20250401170116.jpg&q=80)
-  
-
-Beijing's Office for Safeguarding National Security in Hong Kong has issued a stern warning against the United States for sanctioning six officials, saying such punitive actions are simply "a piece of waste paper."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 工總稱銀行彈性延長貿易融資貸款還款期　對中小企是很大幫忙
+
+  
+
+香港工業總會主席莊子雄表示，關稅戰對製造業、進出口業、物流等都帶來挑戰，不只香港的出口商，有不少美國進口商亦不知道如何應對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm)
+
+---
+
 # 中海油控股股東擬斥資最多40億元增持AH股
 
 ![中國海油集團計劃未來1年內，增持中海油A股及港股股份，最多涉及40億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799456_1_20250408174749.jpg&q=90)
@@ -24,6 +47,7 @@
 
 # 巴拿馬審計報告指長和港口特許經營權有多項違規
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799439_1_20250408181902.jpg&q=90)
   
 
 巴拿馬的審計報告指，授予長和旗下子公司，經營兩座港口的特許經營權，存在多項違規行為，違反合約條款，巴拿馬當局也未收到合約列明的12億美元欠款。有當地法律專家認為，如果總審計長確認特許經營權續約有違規行為，或最高法院宣布合約違憲，特許經營權可能會被撤銷。
@@ -1406,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799331-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799331-20250408.htm)
-
----
-
-# 油價低收逾2%　創近4年新低
-
-![市場擔心美國的關稅政策可能令全球經濟陷入衰退，並減少對能源的需求，油價跌逾2%，創近4年新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799330_1_20250408052234.jpg&q=90)
-  
-
-原油期貨價格跌逾2%，創近4年新低。市場擔心美國的關稅政策可能令全球經濟陷入衰退，並減少對能源的需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799330-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799330-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799330-20250408.htm)
 
 ---

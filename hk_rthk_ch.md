@@ -1,3 +1,95 @@
+# 工總稱銀行彈性延長貿易融資貸款還款期　對中小企是很大幫忙
+
+  
+
+香港工業總會主席莊子雄表示，關稅戰對製造業、進出口業、物流等都帶來挑戰，不只香港的出口商，有不少美國進口商亦不知道如何應對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm)
+
+---
+
+# 當局稱正研究離境私家車徵收邊境建設費　適時再諮詢立法會
+
+  
+
+財政預算案提出，研究向離境私家車徵收邊境建設費，如果每輛車收200元，政府每年可以有大約10億元收入。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm)
+
+---
+
+# 考評局稱公民與社會發展科試場運作暢順約九成考生使用「報到易」
+
+  
+
+文憑試公民與社會發展科今日開考。考評局表示，有約48000名考生於約450個一般試場及逾740個特別試場應考，各試場學校的整體運作暢順。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799458-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799458-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799458-20250408.htm)
+
+---
+
+# 涉販運懷疑大麻花及大麻產品　20歲男子明日提堂
+
+  
+
+海關在大埔檢獲一批懷疑大麻花及大麻產品等，估計市值約100萬元，拘捕一名20歲男子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799457-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799457-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799457-20250408.htm)
+
+---
+
 # 中海油控股股東擬斥資最多40億元增持AH股
 
 ![中國海油集團計劃未來1年內，增持中海油A股及港股股份，最多涉及40億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799456_1_20250408174749.jpg&q=90)
@@ -70,8 +162,11 @@
 
 ---
 
-# 有樂迷對Coldplay香港限定衣服售罄感可惜
+# Coldplay周邊商品大部分售罄　旅客未能購心頭好感可惜
 
+![有來自深圳的旅客說，購買了具有香港元素的海報和黑膠專輯，認為商店安排和輪候時間不錯。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799455_1_20250408180509.jpg&q=85)
+![不少觀眾提早到場選購商品及「打卡」拍照。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799455_2_20250408180710.jpg&q=90)
+![有顧客表示，大部分周邊商品已售罄。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799455_3_20250408180710.jpg&q=85)
   
 
 英國樂隊Coldplay今晚起在啟德體育園主場館舉行演唱會，下午已有不少市民和旅客到場搶購期間限定店的演唱會周邊商品。有顧客表示，大部分周邊商品已售罄，但整體氣氛良好。
@@ -95,6 +190,7 @@
 
 # 巴拿馬審計報告指長和港口特許經營權有多項違規
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799439_1_20250408181902.jpg&q=90)
   
 
 巴拿馬的審計報告指，授予長和旗下子公司，經營兩座港口的特許經營權，存在多項違規行為，違反合約條款，巴拿馬當局也未收到合約列明的12億美元欠款。有當地法律專家認為，如果總審計長確認特許經營權續約有違規行為，或最高法院宣布合約違憲，特許經營權可能會被撤銷。
@@ -259,6 +355,8 @@
 
 # Coldplay啟德主場館演唱會　有觀眾為免混亂提早到場排隊
 
+![下午已有大批持票人士在場館外排隊等候入場，包括不少專程來港看演唱會的旅客。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799447_1_20250408182512.jpg&q=75)
+![設於在啟德體育園附近商場的Coldplay期間限定店，店舖負責人表示很多產品已售罄，形容粉絲反應非常熱烈。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799447_2_20250408182512.jpg&q=75)
   
 
 英國樂隊Coldplay今晚起在啟德體育園主場館舉行演唱會。下午一時許，已經有大批持票人士在場館外排隊等候入場，包括不少專程來港看演唱會的旅客。

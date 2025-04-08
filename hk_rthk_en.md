@@ -1,3 +1,51 @@
+# Tram fares to go up on May 12
+
+![Tram fares for those aged 12 and above will rise by 30 cents to HK$3.30. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799459_1_20250408181035.jpg&q=85)
+  
+
+Tram fares will go up by up to 15 percent starting from May 12.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799459-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799459-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799459-20250408.htm)
+
+---
+
+# HK to target creative industry in strategic push
+
+![Financial Secretary Paul Chan, centre back row, says more than 80 strategic enterprises have set up in Hong Kong in the past two years. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799460_1_20250408181322.jpg&q=90)
+  
+
+Financial secretary Paul Chan said on Tuesday the Office for Attracting Strategic Enterprises, OASES, will seek to attract cultural enterprises in the future in a way that combines innovation and technology with artistry.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799460-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799460-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799460-20250408.htm)
+
+---
+
 # HK stocks ends with slight rebound
 
 ![The Hang Seng Index ended the day 299.38 points, or 1.51 percent, higher at 20,127.68. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799430_2_20250408171407.jpg&q=80)
@@ -1387,53 +1435,5 @@ South Korea's cabinet is expected to finalise a June 3 date for a presidential e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm)
-
----
-
-# Hang Seng Index slumps on US tariff sell-off
-
-![Hong Kong's benchmark fell by over 9 percent at the start of trading. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799185_1_20250407093759.jpg&q=65)
-  
-
-Financial markets in Hong Kong and across the border dived on Monday as markets around the world crumbled in the face of a widening global trade war and fears it will unleash a deep recession.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm)
-
----
-
-# Three people die in helicopter crash off Japan
-
-![An ambulance carrying a person rescued from the medical evacuation helicopter accident arrives at Fukuoka Washiro Hospital in Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799178_1_20250407085759.jpg&q=90)
-  
-
-A medical transport helicopter carrying a patient fell into the sea in southwestern Japan Sunday, leaving three of the six people aboard dead, the Japan coast guard said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799178-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799178-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799178-20250407.htm)
 
 ---
