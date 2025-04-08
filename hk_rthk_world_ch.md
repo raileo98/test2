@@ -1,3 +1,26 @@
+# 巴拿馬審計報告指長和港口特許經營權有多項違規
+
+  
+
+巴拿馬的審計報告指，授予長和旗下子公司，經營兩座港口的特許經營權，存在多項違規行為，違反合約條款，巴拿馬當局也未收到合約列明的12億美元欠款。有當地法律專家認為，如果總審計長確認特許經營權續約有違規行為，或最高法院宣布合約違憲，特許經營權可能會被撤銷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm)
+
+---
+
 # 外交部：倘美方執意打關稅戰貿易戰　中方必將奉陪到底
 
 ![外交部說，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799450_1_20250408171401.jpg&q=80)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm)
-
----
-
-# 以軍襲加沙據報最少40死　哈馬斯旗下派別發射火箭炮襲以南
-
-![以色列方面表示，大約有10枚火箭炮從加沙地帶中部發射，造成5人受傷。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799175_1_20250407085858.jpg&q=90)
-  
-
-以色列再攻擊加沙地帶，新華社引述巴勒斯坦傳媒報道，最少40人死於當地周日以軍的襲擊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799175-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799175-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799175-20250407.htm)
 
 ---

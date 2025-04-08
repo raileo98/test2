@@ -1,6 +1,6 @@
 # Manchester United to play in Hong Kong on May 30
 
-![Fans will hope to get a chance to see Bruno Fernandes (centre) and other United players in action in person. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799432_1_20250408160003.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799432_1_20250408160003.jpg&q=90)
   
 
 English Premier League giants Manchester United on Tuesday announced that they'll play a friendly in Hong Kong next month as part of their post-season Asian tour.

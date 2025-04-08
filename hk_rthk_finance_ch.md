@@ -1,3 +1,93 @@
+# 巴拿馬審計報告指長和港口特許經營權有多項違規
+
+  
+
+巴拿馬的審計報告指，授予長和旗下子公司，經營兩座港口的特許經營權，存在多項違規行為，違反合約條款，巴拿馬當局也未收到合約列明的12億美元欠款。有當地法律專家認為，如果總審計長確認特許經營權續約有違規行為，或最高法院宣布合約違憲，特許經營權可能會被撤銷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm)
+
+---
+
+# 在岸人民幣兌美元收市創19個月新低
+
+![人民幣收市報7.3368兌1美元，較上日收市跌219點子，創19個月新低。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799449_1_20250408171332.jpg&q=90)
+  
+
+人民幣兌美元收市創19個月新低，報7.3368兌1美元，較上日收市跌219點子。中間價失守7.2關口，創逾1年半低位，報7.2038，與市場預測偏離水平擴至近1300點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799449-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799449-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799449-20250408.htm)
+
+---
+
+# 行會批准北環綫主綫鐵路方案　來往錦上路站與古洞站約12分鐘
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm)
+
+---
+
+# 貿發局：新貿易走廊可降低關稅影響
+
+  
+
+貿發局研究總監范婉兒表示，香港企業早已準備應對美國關稅措施，2017至2024年期間，香港對美國出口下跌約9-10%，但整體出口同期增加17%，當中向東盟及中東出口分別增加39%和40%，認為新貿易走廊可降低關稅影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm)
+
+---
+
 # 優化新資本投資者入境計劃　當局料已批申請帶來逾270億元資金
 
   
@@ -1338,101 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799318-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799318-20250408.htm)
-
----
-
-# 特朗普：若中國不撤回34%反制關稅　美方周三起額外徵五成關稅
-
-![特朗普警告或再對中國額外加徵50%關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799314_1_20250408001200.jpg&q=90)
-  
-
-美國總統特朗普警告，如果中國不在星期二前撤銷對美國徵收34%的反制關稅，美方從星期三起會對中國再額外加徵50%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799314-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799314-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799314-20250407.htm)
-
----
-
-# 中國誠通增持ETF及中央企業股票以維護市場平穩
-
-![中國誠通表示旗下誠通金控及誠暘投資增持ETF及中央企業股票，堅決維護資本市場平穩運行。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799310_1_20250407225448.jpg&q=90)
-  
-
-中國誠通晚間發出公布，表示旗下誠通金控及誠暘投資在當日增持交易型開放式指數基金（ETF）及中央企業股票，堅決維護資本市場平穩運行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799310-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799310-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799310-20250407.htm)
-
----
-
-# 美股大幅波動
-
-![紐約股市顯著波動。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799308_1_20250407224153.jpg&q=90)
-  
-
-紐約股市顯著波動，3大主要指數曾經跌逾4%，較早時曾經掉頭上升，隨後再度下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799308-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799308-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799308-20250407.htm)
-
----
-
-# 美股掉頭上升
-
-![紐約股市止跌回升。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799306_1_20250407223542.jpg&q=90)
-  
-
-紐約股市止跌回升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799306-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799306-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799306-20250407.htm)
 
 ---

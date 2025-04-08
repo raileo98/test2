@@ -1,3 +1,92 @@
+# 有樂迷對Coldplay香港限定衣服售罄感可惜
+
+  
+
+英國樂隊Coldplay今晚起在啟德體育園主場館舉行演唱會，下午已有不少市民和旅客到場搶購期間限定店的演唱會周邊商品。有顧客表示，大部分周邊商品已售罄，但整體氣氛良好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799455-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799455-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799455-20250408.htm)
+
+---
+
+# 巴拿馬審計報告指長和港口特許經營權有多項違規
+
+  
+
+巴拿馬的審計報告指，授予長和旗下子公司，經營兩座港口的特許經營權，存在多項違規行為，違反合約條款，巴拿馬當局也未收到合約列明的12億美元欠款。有當地法律專家認為，如果總審計長確認特許經營權續約有違規行為，或最高法院宣布合約違憲，特許經營權可能會被撤銷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm)
+
+---
+
+# 行會批准北環綫主綫鐵路方案　來往錦上路站與古洞站約12分鐘
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm)
+
+---
+
+# 貿發局：新貿易走廊可降低關稅影響
+
+  
+
+貿發局研究總監范婉兒表示，香港企業早已準備應對美國關稅措施，2017至2024年期間，香港對美國出口下跌約9-10%，但整體出口同期增加17%，當中向東盟及中東出口分別增加39%和40%，認為新貿易走廊可降低關稅影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm)
+
+---
+
 # 優化新資本投資者入境計劃　當局料已批申請帶來逾270億元資金
 
   
@@ -1337,101 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799269-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799269-20250407.htm)
-
----
-
-# 陳茂波稱本港面對衝擊須憑自身遠見和國家支持發揮獨特優勢
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799266_1_20250407170640.jpg&q=65)
-  
-
-財政司司長陳茂波表示，創科是香港未來繁榮重要支柱，特區政府多年來投入大量資源建立具活力的生態系統，令本港的初創企業不斷快速增加，去年已有近4700間，比2020年增長約四成，預計數字仍會以驚人速度增長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799266-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799266-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799266-20250407.htm)
-
----
-
-# 恒指低收3021點　主板成交近6209億元創紀錄新高
-
-![恒生指數收市報19828點，跌3021點，跌幅13.2%。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799263_2_20250407164441.jpg&q=90)
-  
-
-市場憂慮貿易衝突升級加劇及引發經濟衰退，港股失守2萬點關口。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799263-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799263-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799263-20250407.htm)
-
----
-
-# 馬屎洲2018年有飛機意外　報告指初始螺旋低於要求致失控
-
-![意外調查報告，認為事故成因是飛行員在低於總會要求的最低螺旋高度下，進行初始螺旋。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799262_1_20250407163006.jpg&q=90)
-  
-
-民航意外調查機構公布在2018年6月24日中國香港飛行總會一架飛機在馬屎洲的意外調查報告，認為事故成因是飛行員在低於總會要求的最低螺旋高度下，進行初始螺旋。該動作隨後發展為完全螺旋而令飛行員失去對飛機的控制。飛行員在重新控制飛機後，在有限的高度下已無法作出有效的修正，導致飛機撞擊地面。調查小組就事故向中國香港飛行總會提出兩項安全建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799262-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799262-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799262-20250407.htm)
-
----
-
-# 理大成立計算機及數學科學學院　孫東：培養人才是創科發展的基石
-
-![孫東表示，當局將持續推動科學教育，加強數碼教育，協助香港發展成國際創科中心。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799261_1_20250407162114.jpg&q=80)
-  
-
-創新科技及工業局局長孫東表示，特區政府多管齊下擴大創新科技人才庫，為年輕人培養未來所需的技能，當局將持續推動科學教育，加強數碼教育，協助香港發展成國際創科中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799261-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799261-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799261-20250407.htm)
 
 ---

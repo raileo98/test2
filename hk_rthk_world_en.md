@@ -1,6 +1,6 @@
 # Singapore PM says tariffs 'not act of a friend'
 
-![Lawrence Wong says the US tariffs move is disappointing given the deep and long-standing friendship between the two countries. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799425_1_20250408152306.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799425_1_20250408152306.jpg&q=90)
   
 
 US President Donald Trump's tariffs on Singapore are "not actions one does to a friend", the city-state's leader said on Tuesday, adding the government will likely downgrade this year's economic growth forecast.

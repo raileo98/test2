@@ -1,3 +1,140 @@
+# 有樂迷對Coldplay香港限定衣服售罄感可惜
+
+  
+
+英國樂隊Coldplay今晚起在啟德體育園主場館舉行演唱會，下午已有不少市民和旅客到場搶購期間限定店的演唱會周邊商品。有顧客表示，大部分周邊商品已售罄，但整體氣氛良好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799455-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799455-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799455-20250408.htm)
+
+---
+
+# 巴拿馬審計報告指長和港口特許經營權有多項違規
+
+  
+
+巴拿馬的審計報告指，授予長和旗下子公司，經營兩座港口的特許經營權，存在多項違規行為，違反合約條款，巴拿馬當局也未收到合約列明的12億美元欠款。有當地法律專家認為，如果總審計長確認特許經營權續約有違規行為，或最高法院宣布合約違憲，特許經營權可能會被撤銷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm)
+
+---
+
+# 在岸人民幣兌美元收市創19個月新低
+
+![人民幣收市報7.3368兌1美元，較上日收市跌219點子，創19個月新低。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799449_1_20250408171332.jpg&q=90)
+  
+
+人民幣兌美元收市創19個月新低，報7.3368兌1美元，較上日收市跌219點子。中間價失守7.2關口，創逾1年半低位，報7.2038，與市場預測偏離水平擴至近1300點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799449-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799449-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799449-20250408.htm)
+
+---
+
+# 行會批准北環綫主綫鐵路方案　來往錦上路站與古洞站約12分鐘
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm)
+
+---
+
+# 貿發局：新貿易走廊可降低關稅影響
+
+  
+
+貿發局研究總監范婉兒表示，香港企業早已準備應對美國關稅措施，2017至2024年期間，香港對美國出口下跌約9-10%，但整體出口同期增加17%，當中向東盟及中東出口分別增加39%和40%，認為新貿易走廊可降低關稅影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm)
+
+---
+
+# 外交部：倘美方執意打關稅戰貿易戰　中方必將奉陪到底
+
+![外交部說，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799450_1_20250408171401.jpg&q=80)
+  
+
+美國總統特朗普威脅升級對華關稅，警告若中方不撤回對美國加徵反制關稅的決定，美國會再向中國徵收五成關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm)
+
+---
+
 # 李強與馮德萊恩通話討論美國關稅措施　馮德萊恩稱避免局勢升級
 
 ![針對美國關稅措施造成混亂，馮德萊恩強調歐中有責任支持建基於自由、公平的貿易體系改革，呼籲透過談判解決當前情況，避免局勢進一步升級。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799443_1_20250408170902.jpg&q=90)

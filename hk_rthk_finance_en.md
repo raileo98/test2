@@ -1,3 +1,27 @@
+# HK stocks ends with slight rebound
+
+![The Hang Seng Index ended the day 299.38 points, or 1.51 percent, higher at 20,127.68. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799430_2_20250408171407.jpg&q=80)
+  
+
+Asian and European markets battled on Tuesday to recover from the previous day's tariff-fuelled collapse, though Donald Trump's warning of more measures against China and Beijing's vow to "fight to the end" raised concerns of a spiralling trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799430-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799430-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799430-20250408.htm)
+
+---
+
 # Seeds of joy on China's farms in field of tariffs woe
 
 ![Customs officers inspect imported soybeans in Binzhou, Shandong, with the Trump tariffs set to put paid to US exports to China. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799433_1_20250408160927.jpg&q=85)
@@ -1412,29 +1436,5 @@ US President Donald Trump said on Wednesday he would be willing to reduce tariff
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm)
-
----
-
-# US stocks close lower on tariff concerns
-
-![US automakers fell on the news, with Tesla closing down 5.6 percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797600_1_20250327061131.jpg&q=90)
-  
-
-US stocks veered off course on Wednesday after the White House said President Donald Trump would announce fresh tariffs on the auto sector after markets close.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm)
 
 ---

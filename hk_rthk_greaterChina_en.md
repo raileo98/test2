@@ -1,6 +1,6 @@
 # China 'ready to fight till the end' over US tariffs
 
-![Lin Jian says pressuring, threatening and blackmailing are not the right ways to deal with China. Photo: Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799446_1_20250408170039.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799446_1_20250408170039.jpg&q=90)
   
 
 China is ready to fight till the end if the United States is bent on waging a tariff war or trade war, the Foreign Ministry said on Tuesday.

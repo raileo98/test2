@@ -1,6 +1,30 @@
+# HK stocks ends with slight rebound
+
+![The Hang Seng Index ended the day 299.38 points, or 1.51 percent, higher at 20,127.68. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799430_2_20250408171407.jpg&q=80)
+  
+
+Asian and European markets battled on Tuesday to recover from the previous day's tariff-fuelled collapse, though Donald Trump's warning of more measures against China and Beijing's vow to "fight to the end" raised concerns of a spiralling trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799430-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799430-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799430-20250408.htm)
+
+---
+
 # China 'ready to fight till the end' over US tariffs
 
-![Lin Jian says pressuring, threatening and blackmailing are not the right ways to deal with China. Photo: Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799446_1_20250408170039.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799446_1_20250408170039.jpg&q=90)
   
 
 China is ready to fight till the end if the United States is bent on waging a tariff war or trade war, the Foreign Ministry said on Tuesday.
@@ -24,7 +48,7 @@ China is ready to fight till the end if the United States is bent on waging a ta
 
 # Manchester United to play in Hong Kong on May 30
 
-![Fans will hope to get a chance to see Bruno Fernandes (centre) and other United players in action in person. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799432_1_20250408160003.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799432_1_20250408160003.jpg&q=90)
   
 
 English Premier League giants Manchester United on Tuesday announced that they'll play a friendly in Hong Kong next month as part of their post-season Asian tour.
@@ -72,7 +96,7 @@ Chinese agricultural stocks rose sharply on Tuesday as investors bet tariffs wou
 
 # Singapore PM says tariffs 'not act of a friend'
 
-![Lawrence Wong says the US tariffs move is disappointing given the deep and long-standing friendship between the two countries. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799425_1_20250408152306.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799425_1_20250408152306.jpg&q=90)
   
 
 US President Donald Trump's tariffs on Singapore are "not actions one does to a friend", the city-state's leader said on Tuesday, adding the government will likely downgrade this year's economic growth forecast.
@@ -1411,29 +1435,5 @@ A medical transport helicopter carrying a patient fell into the sea in southwest
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799178-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799178-20250407.htm)
-
----
-
-# Nikkei plunges on Trump tariff concerns
-
-![A display shows the sharp decline in the Nikkei average stock price. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799177_1_20250407084857.jpg&q=90)
-  
-
-Japan's Nikkei share index plunged further on Monday, as US futures pointed to additional losses on Wall Street over President Donald Trump's punishing tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm)
 
 ---
