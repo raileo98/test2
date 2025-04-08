@@ -1,3 +1,27 @@
+# 口岸爆炸案何卓為稱曾讓示威者到大角咀單位留宿及出租部分位置
+
+![何卓為承認自己曾牽涉示威衝突事件，聲稱並非在最前面、亦無投擲過汽油彈。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799441_1_20250408164740.jpg&q=80)
+  
+
+8名男女涉2020年初口岸爆炸案，高等法院踏入第83天審訊。首被告何卓為供稱，他在2019年警方封鎖理大期間，曾經三度進入地下雨水渠，進行「勘察」及「開路」，觀察可否經雨水渠離開理大及轉告他人，在最後一次進入理大時，在淤泥中看到示威者扔棄的裝備，推測有示威者成功離開理大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799441-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799441-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799441-20250408.htm)
+
+---
+
 # 行會通過電車加價5月12日生效　12歲或以上票價加至3.3元
 
   
@@ -1406,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799251-20250407.htm)
-
----
-
-# 新生嬰兒獎勵金計劃年底檢討　政府將檢視成效或有無需要調整
-
-![伍江美妮表示，政府在計劃推出兩年後，即今年年底作檢討，檢視成效或者有無需要調整。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799252_1_20250407155508.jpg&q=90)
-  
-
-立法會財委會舉行特別會議，審議25/26年度政府開支預算。工聯會議員鄧家彪關注，新生嬰兒二萬元獎勵金計劃運行1.4年，平均1年多了3萬名嬰兒出生，是否符合當局期望的成效，目前財政緊絀情況下，計劃在年底結束後會否恆常化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799252-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799252-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799252-20250407.htm)
 
 ---
