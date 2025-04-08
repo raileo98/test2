@@ -1,3 +1,27 @@
+# 離岸人民幣跌穿7.38水平　創2010年開啟離岸交易以來最低
+
+![離岸人民幣較早時跌穿7.38水平，低見7.3847兌1美元，急挫408點子，創2010年開啟離岸交易以來最低水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799491_1_20250408231939.jpg&q=85)
+  
+
+人民幣匯價顯著下挫，離岸人民幣較早時跌穿7.38水平，低見7.3847兌1美元，急挫408點子，跌幅近0.6%，創2010年開啟離岸交易以來最低水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799491-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799491-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799491-20250408.htm)
+
+---
+
 # 兗礦能源擬斥資約140.7億元收購西北礦業51%股權
 
 ![兗礦能源計劃收購控股股東山東能源旗下的西北礦業51%股權，涉及交易總額約140.7億元。（港交所截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799488_1_20250408225917.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799353-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799353-20250408.htm)
-
----
-
-# 台股開市後下挫
-
-![台灣加權指數較早時報18483點，跌748點，跌幅3.89%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799352_1_20250408090939.jpg&q=90)
-  
-
-台灣股市繼續下跌。加權指數較早時報18483點，跌748點，跌幅3.89%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799352-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799352-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799352-20250408.htm)
 
 ---

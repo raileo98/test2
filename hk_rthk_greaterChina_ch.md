@@ -1,3 +1,26 @@
+# 陳國基明早赴北京　迎接中國救援隊包括香港隊員由緬甸回國
+
+  
+
+政務司司長陳國基明日早上前赴北京，出席迎接中國救援隊隊員包括香港隊員，由緬甸回國的儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799490-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799490-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799490-20250408.htm)
+
+---
+
 # 董軍晤巴基斯坦空軍參謀長　稱願加強中巴戰略溝通協作
 
 ![董軍表示，中方願與巴方不斷加強戰略溝通協作，共同維護國際和地區安全穩定。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799479_1_20250408204046.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm)
-
----
-
-# 8位在韓志願軍烈士遺骸身份確認
-
-![去年11月28日， 第十一批在韓中國人民志願軍烈士遺骸回國。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798949_2_20250404175355.jpg&q=90)
-  
-
-央視新聞報道，從退役軍人事務部獲悉，8位在韓中國人民志願軍烈士遺骸的身份得以確認。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm)
 
 ---

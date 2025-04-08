@@ -1,3 +1,73 @@
+# 有馬來西亞進口冰凍甜點樣本大腸菌群含量超標　無流出市面
+
+![食物安全中心已知會涉事進口商有關違規事項。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799492_1_20250408232741.jpg&q=90)
+  
+
+一款馬來西亞進口冰凍甜點樣本，大腸菌群含量超出法例上限，受影響批次的產品仍存於進口商貨倉，沒有流出市面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799492-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799492-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799492-20250408.htm)
+
+---
+
+# 陳國基明早赴北京　迎接中國救援隊包括香港隊員由緬甸回國
+
+  
+
+政務司司長陳國基明日早上前赴北京，出席迎接中國救援隊隊員包括香港隊員，由緬甸回國的儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799490-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799490-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799490-20250408.htm)
+
+---
+
+# Coldplay演唱會散場後約半小時仍有觀眾於園區排隊離場
+
+  
+
+英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，晚上約10時半結束，散場後約半小時，大批觀眾仍在園區排隊離場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm)
+
+---
+
 # 馬來西亞進口冰凍甜點大腸菌群含量超標
 
 ![食安中心已知會涉事進口商有關違規事項，會暫時撤銷較早前簽發予有關進口商銷售該款產品的進口准許。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799487_1_20250408230234.jpg&q=90)
@@ -1370,77 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799350-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799350-20250408.htm)
-
----
-
-# 選舉事務處為兩場選舉預留約15億元
-
-![選舉事務處為兩場選舉預留大約15億1300萬元撥款。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799313_1_20250407231141.jpg&q=90)
-  
-
-第8屆立法會選舉將於12月7日舉行；在選舉前會舉行選委會界別分組補選，定於9月7日進行。當局初步預計需要招募大約38500名政府人員參與相關工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799313-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799313-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799313-20250407.htm)
-
----
-
-# 水務署稱將加快舊水管更換修復　分階段擴大「智管網」監測範圍
-
-![署方說，就兩宗事故進行調查，並向發展局提交報告後，實施多項措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799312_1_20250407231007.jpg&q=85)
-  
-
-水務署表示，去年深水埗荔枝角道水管爆裂引致路陷，以及東涌翔東路的水管爆裂事故導致附近屋苑停水12小時，期間訊息發布顯示協調方面不足。署方在社交網站說，就兩宗事故進行調查，並向發展局提交報告後，實施多項措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799312-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799312-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799312-20250407.htm)
-
----
-
-# 針對工地高危工序　勞工處料今年下半年利用無人機助執法
-
-![針對工地高危工序　勞工處料今年下半年利用無人機助執法](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799311_1_20250407230937.jpg&q=90)
-  
-
-勞工處在2023至24年度，就致命工業意外提出146項檢控、以及115張定罪傳票，是近三個財政年度最低，而每張傳票判處的平均罰款金額為24007元，高於對上兩個財政年度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799311-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799311-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799311-20250407.htm)
 
 ---

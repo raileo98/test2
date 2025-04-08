@@ -1,3 +1,97 @@
+# 離岸人民幣跌穿7.38水平　創2010年開啟離岸交易以來最低
+
+![離岸人民幣較早時跌穿7.38水平，低見7.3847兌1美元，急挫408點子，創2010年開啟離岸交易以來最低水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799491_1_20250408231939.jpg&q=85)
+  
+
+人民幣匯價顯著下挫，離岸人民幣較早時跌穿7.38水平，低見7.3847兌1美元，急挫408點子，跌幅近0.6%，創2010年開啟離岸交易以來最低水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799491-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799491-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799491-20250408.htm)
+
+---
+
+# 有馬來西亞進口冰凍甜點樣本大腸菌群含量超標　無流出市面
+
+![食物安全中心已知會涉事進口商有關違規事項。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799492_1_20250408232741.jpg&q=90)
+  
+
+一款馬來西亞進口冰凍甜點樣本，大腸菌群含量超出法例上限，受影響批次的產品仍存於進口商貨倉，沒有流出市面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799492-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799492-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799492-20250408.htm)
+
+---
+
+# 陳國基明早赴北京　迎接中國救援隊包括香港隊員由緬甸回國
+
+  
+
+政務司司長陳國基明日早上前赴北京，出席迎接中國救援隊隊員包括香港隊員，由緬甸回國的儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799490-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799490-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799490-20250408.htm)
+
+---
+
+# Coldplay演唱會散場後約半小時仍有觀眾於園區排隊離場
+
+  
+
+英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，晚上約10時半結束，散場後約半小時，大批觀眾仍在園區排隊離場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm)
+
+---
+
 # 兗礦能源擬斥資約140.7億元收購西北礦業51%股權
 
 ![兗礦能源計劃收購控股股東山東能源旗下的西北礦業51%股權，涉及交易總額約140.7億元。（港交所截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799488_1_20250408225917.jpg&q=90)
