@@ -1,3 +1,27 @@
+# 李強：中歐應加強溝通協調　維護自由開放貿易投資
+
+![國務院總理李強說中歐應加強溝通協調、擴大相互開放，維護自由開放的貿易投資。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799470_1_20250408191709.jpg&q=90)
+  
+
+國務院總理李強與歐盟委員會主席馮德萊恩通電話，討論貿易和中歐關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm)
+
+---
+
 # 捷克總理社交平台帳號被黑客攻擊並發布虛假資訊
 
 ![菲亞拉的社交平台帳號今早被黑客攻擊，並發布虛假資訊。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799471_1_20250408191732.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799233-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799233-20250407.htm)
-
----
-
-# 北韓再辦馬拉松　外界關注是否藉此契機擴大團體遊賺取外匯
-
-![北韓昨天再舉行平壤國際馬拉松賽。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799204_1_20250407111108.jpg&q=85)
-  
-
-北韓再舉辦平壤國際馬拉松賽，約200名海外跑手參與。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799204-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799204-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799204-20250407.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 李強：中歐應加強溝通協調　維護自由開放貿易投資
+
+![國務院總理李強說中歐應加強溝通協調、擴大相互開放，維護自由開放的貿易投資。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799470_1_20250408191709.jpg&q=90)
+  
+
+國務院總理李強與歐盟委員會主席馮德萊恩通電話，討論貿易和中歐關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm)
+
+---
+
 # 捷克總理社交平台帳號被黑客攻擊並發布虛假資訊
 
 ![菲亞拉的社交平台帳號今早被黑客攻擊，並發布虛假資訊。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799471_1_20250408191732.jpg&q=90)
@@ -68,6 +92,7 @@
 
 # 文憑試公民科開考　首次有「是否同意」題目
 
+![文憑試公民與社會發展科開考。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799468_1_20250408192115.jpg&q=90)
   
 
 文憑試公民與社會發展科開考。不少考生表示，試卷較簡單。有公民科教師估計今年達標率會與往年相若。
@@ -92,6 +117,7 @@
 # 18家銀行同意為進出口製造業彈性延長貿易融資貸款還款期
 
 ![「中小企融資專責小組」會議由金管局副總裁阮國恒（左三）及銀行公會主席禤惠儀（右二）共同主持。（金管局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799467_1_20250408191200.jpg&q=90)
+![「中小企融資專責小組」今日舉行第四次會議。（金管局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799467_2_20250408191939.jpg&q=90)
   
 
 金管局與多間銀行及商會舉行會議，銀行業界承諾繼續落實支持中小企的「9+5」措施，而「中小企融資專責小組」的18家參與銀行同意為進出口製造業，彈性延長貿易融資貸款還款期。
