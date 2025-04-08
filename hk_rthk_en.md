@@ -1,3 +1,27 @@
+# At least 66 dead in Dominican Republic roof collapse
+
+![Rescuers work at the site of the collapsed Jet Set nightclub in Santo Domingo, Dominican Republic. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799520_1_20250409073023.jpg&q=80)
+  
+
+Rescuers raced to find survivors on Tuesday among the rubble of a Dominican Republic nightclub where at least 66 people, including a Major League Baseball star, were killed when the roof collapsed.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799520-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799520-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799520-20250409.htm)
+
+---
+
 # S&P 500 ends down 1.6% as tariff angst kills rally
 
 ![US stocks have been in free fall since Trump's "Liberation Day" event announcing tariffs on major US trading partners last Wednesday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799508_1_20250409051017.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong's justice chief has stressed that educating the public on national sec
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm)
-
----
-
-# Trial looms for Boeing over 737 MAX crash in Eithiopia
-
-![Two 737 MAX aircraft are assembled at Boeing's plant in Renton, Washington. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799216_1_20250407115025.jpg&q=60)
-  
-
-Boeing is poised to face a jury trial from Monday over the fatal 2019 crash of an Ethiopian Airlines 737 MAX plane, the first civil case related to the disaster to reach court.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm)
 
 ---

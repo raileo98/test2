@@ -1,3 +1,51 @@
+# 港股ADR較本港昨日收市價普遍下跌
+
+![港股美國預託證券普遍下跌，友邦跌近4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799516_1_20250409062405.jpg&q=75)
+  
+
+港股美國預託證券(ADR)普遍下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799516-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799516-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799516-20250409.htm)
+
+---
+
+# 美元兌日圓跌1%
+
+![美元兌日圓下跌1%，至146.30日圓。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799518_1_20250409071226.jpg&q=85)
+  
+
+美元指數偏軟，較早時報102.82，跌0.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799518-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799518-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799518-20250409.htm)
+
+---
+
 # 多米尼加夜總會屋頂坍塌事故增至最少66死　仍有人被困待救
 
   
@@ -1394,53 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799449-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799449-20250408.htm)
-
----
-
-# 行會批准北環線主線鐵路方案　來往錦上路站與古洞站約12分鐘
-
-![行會批准北環綫主綫鐵路方案，來往錦上路站與古洞站約12分鐘。（路政署文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799452_1_20250408183014.jpg&q=75)
-  
-
-行政長官會同行政會議批准北環線主線的鐵路方案。當局表示，北環線主線涉及興建一條長約10.7公里的鐵路，目標在2034年完成主線工程，北環線主線將成為北部都會區的主要交通骨幹，釋放沿線一帶土地的發展潛力，接現有的屯馬綫及東鐵綫，形成一條貫通新界和九龍市區的環狀鐵路。北環線主線投入服務後，來往錦上路站和古洞站的行程，預計將由現時繁忙時段需時約60至80分鐘大幅減至約12分鐘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm)
-
----
-
-# 貿發局：新貿易走廊可降低關稅影響
-
-![范婉兒（中）表示，香港企業早已準備應對美國關稅措施，認為新貿易走廊可降低關稅影響。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799451_1_20250408183623.jpg&q=75)
-  
-
-貿發局研究總監范婉兒表示，香港企業早已準備應對美國關稅措施，2017至2024年期間，香港對美國出口下跌約9-10%，但整體出口同期增加17%，當中向東盟及中東出口分別增加39%和40%，認為新貿易走廊可降低關稅影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm)
 
 ---
