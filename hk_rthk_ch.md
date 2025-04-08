@@ -24,6 +24,7 @@
 
 # Coldplay啟德主場館演唱會開場　陳茂波及黃偉綸入場欣賞
 
+![5萬個座位全場爆滿，現場氣氛高漲。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799481_1_20250408212814.jpg&q=65)
   
 
 英國樂隊Coldplay在啟德體育園主場館舉行的首場演唱會晚上8時半開場，5萬個座位全場爆滿，當樂隊成員出場時，現場氣氛高漲，樂隊主音Chris Martin用廣東話向在場觀眾說，歡迎大家，好開心來到香港，贏得全場歡呼。
