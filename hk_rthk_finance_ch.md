@@ -45,7 +45,7 @@
 
 ---
 
-# 行會批准北環綫主綫鐵路方案　來往錦上路站與古洞站約12分鐘
+# 行會批准北環線主線鐵路方案　來往錦上路站與古洞站約12分鐘
 
   
   
@@ -233,7 +233,7 @@
 
 # 全國社保基金：近期將繼續增持國內股票
 
-![全國社保基金公布，近日已主動增持國內股票，近期將繼續增持。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799424_1_20250408152031.jpg&q=75)
+![社保基金稱始終堅持長期投資、價值投資、責任投資理念，堅定看好中國資本市場發展前景。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799424_1_20250408173924.jpg&q=90)
   
 
 全國社保基金公布，近日已主動增持國內股票，近期將繼續增持，會在積極開展股票投資的同時實現基金安全和保值增值。
@@ -348,6 +348,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm)
+
+---
+
+# 發改委召開座談會　聽取5間民企應對美方加徵關稅建議
+
+  
+
+在北京，國家發改委召開座談會，邀請滴滴出行、天合光能、中基寧波等5間民營企業參與，聽取應對美方加徵關稅的舉措及建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm)
 
 ---
 
@@ -1404,29 +1427,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799324-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799324-20250408.htm)
-
----
-
-# 歐洲三大指數下挫超過4%
-
-![德國DAX指數收報19789點，跌852點，跌幅4.13%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799318_2_20250408045730.jpg&q=90)
-  
-
-市場對美國關稅政策的憂慮持續，嚴重影響投資者情緒，歐洲三大指數延續上星期跌勢，星期一全線下挫超過4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799318-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799318-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799318-20250408.htm)
 
 ---
