@@ -1,3 +1,27 @@
+# Fans delight as Coldplay kicks off HK tour
+
+![Fans begin arriving at the Kai Tak Stadium even before the doors open to the majority of the public at 5pm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799473_1_20250408193720.jpg&q=90)
+  
+
+There's fanfare at the Kai Tak Stadium at Tuesday evening as Coldplay kicks off the first of four concerts in Hong Kong on its current world tour.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799473-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799473-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799473-20250408.htm)
+
+---
+
 # Tram fares to go up on May 12
 
 ![Tram fares for those aged 12 and above will rise by 30 cents to HK$3.30. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799459_1_20250408181035.jpg&q=85)
@@ -1411,29 +1435,5 @@ Luka Doncic scored 30 points as the Los Angeles Lakers produced a devastating di
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799203-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799203-20250407.htm)
-
----
-
-# Seoul to set presidential election for June 3: Yonhap
-
-![People attended a rally to celebrate the expulsion of South Korean President Yoon Suk Yeol in Seoul on Saturday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799191_1_20250407101114.jpg&q=90)
-  
-
-South Korea's cabinet is expected to finalise a June 3 date for a presidential election following the removal of Yoon Suk Yeol last week for his short-lived martial law declaration, Yonhap news said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Fans delight as Coldplay kicks off HK tour
+
+![Fans begin arriving at the Kai Tak Stadium even before the doors open to the majority of the public at 5pm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799473_1_20250408193720.jpg&q=90)
+  
+
+There's fanfare at the Kai Tak Stadium at Tuesday evening as Coldplay kicks off the first of four concerts in Hong Kong on its current world tour.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799473-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799473-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799473-20250408.htm)
+
+---
+
 # Tram fares to go up on May 12
 
 ![Tram fares for those aged 12 and above will rise by 30 cents to HK$3.30. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799459_1_20250408181035.jpg&q=85)
@@ -1411,29 +1435,5 @@ A 25-year-old Hong Kong man wanted by the police for his alleged involvement in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798572-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798572-20250402.htm)
-
----
-
-# Joe Chow appointed as new police commissioner
-
-![Joe Chow takes over as new police chief from his retiring predecessor Raymond Siu. Photo courtesy of the Hong Kong Police Force](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798573_1_20250402103051.jpg&q=90)
-  
-
-Beijing has named Joe Chow as the new Commissioner of Police, replacing Raymond Siu.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm)
 
 ---
