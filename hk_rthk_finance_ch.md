@@ -1,3 +1,27 @@
+# 李強：中歐應加強溝通協調　維護自由開放貿易投資
+
+![國務院總理李強說中歐應加強溝通協調、擴大相互開放，維護自由開放的貿易投資。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799470_1_20250408191709.jpg&q=90)
+  
+
+國務院總理李強與歐盟委員會主席馮德萊恩通電話，討論貿易和中歐關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm)
+
+---
+
 # 銀行公會歡迎金管局與銀行業推出針對個別行業支持措施
 
 ![銀行公會歡迎金管局與銀行業針對個別行業推出支持措施，協助中小企減輕資金壓力及升級轉型。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799464_1_20250408182755.jpg&q=90)
@@ -92,6 +116,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm)
+
+---
+
+# 當局稱正研究離境私家車徵收邊境建設費　適時再諮詢立法會
+
+![黎志華表示，當局剛展開相關研究，當有具體構思，包括如何收取、有無豁免機制等，屆時會再諮詢立法會意見。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799461_1_20250408183137.jpg&q=90)
+  
+
+財政預算案提出，研究向離境私家車徵收邊境建設費，如果每輛車收200元，政府每年可以有大約10億元收入。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm)
 
 ---
 
@@ -193,7 +241,7 @@
 
 # 貿發局：新貿易走廊可降低關稅影響
 
-![范婉兒表示，香港企業早已準備應對美國關稅措施，認為新貿易走廊可降低關稅影響。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799451_1_20250408183623.jpg&q=75)
+![范婉兒（中）表示，香港企業早已準備應對美國關稅措施，認為新貿易走廊可降低關稅影響。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799451_1_20250408183623.jpg&q=75)
   
 
 貿發局研究總監范婉兒表示，香港企業早已準備應對美國關稅措施，2017至2024年期間，香港對美國出口下跌約9-10%，但整體出口同期增加17%，當中向東盟及中東出口分別增加39%和40%，認為新貿易走廊可降低關稅影響。
@@ -212,6 +260,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm)
+
+---
+
+# 李強與馮德萊恩通話討論美國關稅措施　馮德萊恩稱避免局勢升級
+
+![針對美國關稅措施造成混亂，馮德萊恩強調歐中有責任支持建基於自由、公平的貿易體系改革，呼籲透過談判解決當前情況，避免局勢進一步升級。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799443_1_20250408170902.jpg&q=90)
+  
+
+國務院總理李強與歐盟委員會主席馮德萊恩通電話，討論貿易和中歐關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799443-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799443-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799443-20250408.htm)
 
 ---
 
@@ -453,30 +525,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm)
-
----
-
-# 曼聯時隔12年再訪港　下月30日與港隊於大球場踢表演賽
-
-![曼聯將於5月30日晚上8時，與港隊在大球場對戰。（中國香港足球總會社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799426_1_20250408153824.jpg&q=90)
-  
-
-英超球隊曼聯將於5月底訪港，與中國香港足球代表隊在香港大球場踢表演賽。主辦單位與中國香港足球總會將於星期四下午舉行記者會，公布賽事詳情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm)
 
 ---
 
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799337-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799337-20250408.htm)
-
----
-
-# 韓股初段升2%
-
-![首爾綜合指數較早時報2375點，升46點，升幅2%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799340_1_20250408080703.jpg&q=90)
-  
-
-南韓股市初段上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799340-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799340-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799340-20250408.htm)
-
----
-
-# 日股初段反彈逾4%
-
-![日經指數較早時報32552點，升1415點，升4.55%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799339_1_20250408080504.jpg&q=85)
-  
-
-東京股市初段反彈逾4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799339-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799339-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799339-20250408.htm)
 
 ---
