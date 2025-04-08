@@ -1,3 +1,26 @@
+# 白宮證對華部分貨品徵104%關稅　稱特朗普相信中方盼達成協議
+
+  
+
+美國白宮證實，美國會對中國部分貨品徵收104%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm)
+
+---
+
 # 央視玉淵譚天文章指美國關稅全球憤怒　中方被迫反制合理合情合法
 
 ![文章引述學者指中國受惠於內部經濟穩定及更强的經濟韌性，提前儲備了抗外部衝擊的能力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799504_1_20250409024456.jpg&q=90)
@@ -1420,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799441-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799441-20250408.htm)
-
----
-
-# 行會通過電車加價5月12日生效　12歲或以上票價加至3.3元
-
-![政府表示已考慮到所有相關因素，包括電車公司當前的財政狀況及未來的財政預測。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799438_1_20250408165444.jpg&q=90)
-  
-
-行政長官會同行政會議同意電車公司加價，新收費5月12日起生效，加幅6.7%至15%。12歲或以上人士票價加0.3元至3.3元；小童車費加0.1元至1.6元；65歲或以上人士加0.2元至1.5元。月票維持260元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 白宮證對華部分貨品徵104%關稅　稱特朗普相信中方盼達成協議
+
+  
+
+美國白宮證實，美國會對中國部分貨品徵收104%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm)
+
+---
+
 # 央視玉淵譚天文章指美國關稅全球憤怒　中方被迫反制合理合情合法
 
 ![文章引述學者指中國受惠於內部經濟穩定及更强的經濟韌性，提前儲備了抗外部衝擊的能力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799504_1_20250409024456.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799237-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799237-20250407.htm)
-
----
-
-# 石破茂稱盡最大努力維持企業周轉　歐盟稱對美方關稅回應應該相稱
-
-![石破茂表示為應對美國政府的關稅措施，將盡最大努力維持包括中小企業在內的資金周轉和就業。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799265_1_20250407173747.jpg&q=90)
-  
-
-日本首相石破茂表示，為應對美國政府的關稅措施，將盡最大努力維持包括中小企業在內的資金周轉和就業，並在國內對策方面做到萬無一失。他出席國會預算委員會會議時又說希望盡快訪美，向美國總統特朗普闡述日方立場，強調必須提出日方的一攬子方案，重申日本無採取不公平做法，日本對美投資為美國創造就業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799265-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799265-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799265-20250407.htm)
 
 ---

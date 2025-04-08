@@ -1,3 +1,26 @@
+# 白宮證對華部分貨品徵104%關稅　稱特朗普相信中方盼達成協議
+
+  
+
+美國白宮證實，美國會對中國部分貨品徵收104%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm)
+
+---
+
 # 央視玉淵譚天文章指美國關稅全球憤怒　中方被迫反制合理合情合法
 
 ![文章引述學者指中國受惠於內部經濟穩定及更强的經濟韌性，提前儲備了抗外部衝擊的能力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799504_1_20250409024456.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm)
-
----
-
-# 中方將16間美國實體列入出口管制管控名單
-
-![商務部將16間美國實體列入出口管制管控名單。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798954_1_20250404183809.jpg&q=75)
-  
-
-在北京，商務部表示，為維護國家安全和利益，履行防擴散等國際義務，根據《出口管制法》及《兩用物項出口管制條例》等規定，決定將高點航空技術公司等16間美國實體列入出口管制管控名單，即日起禁止向有關美國實體出口兩用物項，正在開展的相關出口活動應立即停止；特殊情況下確需出口的，出口經營者應當向商務部提出申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm)
 
 ---

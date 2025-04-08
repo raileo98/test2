@@ -1,3 +1,26 @@
+# 白宮證對華部分貨品徵104%關稅　稱特朗普相信中方盼達成協議
+
+  
+
+美國白宮證實，美國會對中國部分貨品徵收104%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm)
+
+---
+
 # 央視玉淵譚天文章指美國關稅全球憤怒　中方被迫反制合理合情合法
 
 ![文章引述學者指中國受惠於內部經濟穩定及更强的經濟韌性，提前儲備了抗外部衝擊的能力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799504_1_20250409024456.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799356-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799356-20250408.htm)
-
----
-
-# Coldplay演唱會舉行　港鐵將加強屯馬及東鐵綫列車服務
-
-![港鐵表示，如人數眾多或需分批入站，啟德及宋皇臺站會增加職員協助乘客。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799355_1_20250408094246.jpg&q=90)
-  
-
-英國樂隊Coldplay演唱會將於今晚、明晚、星期五及星期六晚在啟德主場館舉行，港鐵表示，會加強屯馬綫及東鐵綫列車服務，亦會配合相關部門的整體人群管理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799355-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799355-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799355-20250408.htm)
 
 ---
