@@ -1,3 +1,27 @@
+# 國際油價曾急挫7%或以上　創逾4年新低
+
+![國際油價曾急挫7%或以上，創逾4年新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799656_1_20250409205754.jpg&q=90)
+  
+
+中美貿易戰升級，加上早前石油輸出國組織及其盟友（OPEC+）意外增產，國際油價曾急挫7%或以上，創逾4年新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799656-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799656-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799656-20250409.htm)
+
+---
+
 # 陳國基：特區救援隊臨危受命　充分發揮中國人抗震救災精神
 
   
@@ -26,7 +50,7 @@
 ![美國財長貝森對中國84%報復性關稅，表示遺憾，呼籲中方談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799654_1_20250409203820.jpg&q=90)
   
 
-美國財長貝森對中國84%報復性關稅，表示遺憾，呼籲中方談判。
+美國財長貝森特對中國84%報復性關稅，表示遺憾，呼籲中方談判。
 
   
 
