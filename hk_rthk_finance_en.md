@@ -1,3 +1,27 @@
+# Hang Seng Index bucks downward trend
+
+![The Hang Seng Index closes up 0.68 percent on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799622_1_20250409170856.jpg&q=75)
+  
+
+Equities tumbled on Wednesday after US President Donald Trump ramped up his trade war by hitting China with tariffs of more than 100 percent.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799622-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799622-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799622-20250409.htm)
+
+---
+
 # Risk-off mode on as new US duties curb appetites
 
 ![The Hang Seng Index has been volatile amid a tit-for-tat tariffs fight that may escalate even further after Donald Trump's 50 percent levy takes effect on Wednesday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799583_1_20250409143912.jpg&q=80)
@@ -1412,29 +1436,5 @@ An expert has said that ongoing art shows and upcoming auctions will give the ma
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm)
-
----
-
-# Home prices drop to lowest level in nearly nine years
-
-![Home prices continued to decline last month. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797650_1_20250327120658.jpg&q=65)
-  
-
-Hong Kong home prices slumped for the third month in a row in February, dropping to their lowest level in almost nine years.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm)
 
 ---

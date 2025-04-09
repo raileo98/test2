@@ -1,3 +1,26 @@
+# 多米尼加夜總會屋頂倒塌　最少98人死亡
+
+  
+
+多米尼加首都聖多明各一間夜總會屋頂倒塌，最少98人死亡，過百人受傷，死者包括當地一名省長以及美國職棒大聯盟的退役球星。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799619-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799619-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799619-20250409.htm)
+
+---
+
 # 中國救援隊包括香港隊員抵達北京　國家應急部在機場迎接
 
 ![救援隊乘坐的4架中國空軍飛機，下午約4時，抵達北京首都國際機場。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799612_1_20250409164353.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799346-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799346-20250408.htm)
-
----
-
-# 美國龍捲風及暴雨等惡劣天氣於中西部和南部造成至少21死
-
-![肯塔基州創下州內連續4天降雨量最高紀錄，至少20個城鎮的供水系統受到影響。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799338_1_20250408080330.jpg&q=90)
-  
-
-美國惡劣天氣持續，龍捲風及暴雨等在中西部和南部已造成至少21人死亡，引發的嚴重洪水有可能持續數星期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799338-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799338-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799338-20250408.htm)
 
 ---

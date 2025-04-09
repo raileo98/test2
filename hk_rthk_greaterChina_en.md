@@ -1,3 +1,27 @@
+# Small parcels tariff triples in Trump escalation
+
+![Small parcels sent from Hong Kong after May 2 and before June 1 will be subject to a US$75 levy and US$150 after that. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799614_2_20250409164405.jpg&q=85)
+  
+
+The US tariff on small goods parcels sent from mainland China and Hong Kong has been tripled in the latest escalation by US President Donald Trump of the ongoing trade war between the world’s two biggest economies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799614-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799614-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799614-20250409.htm)
+
+---
+
 # China 'verifying reports of nationals held in Ukraine'
 
 ![Foreign Ministry spokesman Lin Jian urges Chinese citizens to avoid conflict zones and participating in wars. Photo: Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799609_1_20250409161617.jpg&q=90)
@@ -1415,29 +1439,5 @@ The Ta Kung Pao newspaper on Wednesday renewed its criticism of the sale by CK H
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm)
-
----
-
-# China's World Cup qualifying hopes take a big hit
-
-![The national team stayed at the bottom of the group of six, seven points behind second place Australia with two matches remaining. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797366_1_20250325213048.jpg&q=80)
-  
-
-China's hopes of directly qualifying for the 2026 World Cup took a hit after suffering a 2-0 defeat against Australia on Tuesday night.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 曼谷抵港男子行李藏約11公斤大麻花被捕　案件明日提堂
+
+![海關檢獲的懷疑大麻花。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799621_1_20250409170747.jpg&q=50)
+  
+
+海關在機場偵破一宗行李藏毒的販毒案件，檢獲約11公斤、估計市值超過240萬元的懷疑大麻花。拘捕一名由泰國到港男子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799621-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799621-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799621-20250409.htm)
+
+---
+
 # 9名非本地培訓牙醫預計本季就任　衞生署稱仍有約80個職位空缺
 
 ![許美賢透露目前仍有約80個牙醫職位空缺，佔整體編制約兩成。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799615_1_20250409165052.jpg&q=80)
@@ -1421,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm)
-
----
-
-# 行會批准北環線主線鐵路方案　來往錦上路站與古洞站約12分鐘
-
-![行會批准北環綫主綫鐵路方案，來往錦上路站與古洞站約12分鐘。（路政署文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799452_1_20250408183014.jpg&q=75)
-  
-
-行政長官會同行政會議批准北環線主線的鐵路方案。當局表示，北環線主線涉及興建一條長約10.7公里的鐵路，目標在2034年完成主線工程，北環線主線將成為北部都會區的主要交通骨幹，釋放沿線一帶土地的發展潛力，接現有的屯馬綫及東鐵綫，形成一條貫通新界和九龍市區的環狀鐵路。北環線主線投入服務後，來往錦上路站和古洞站的行程，預計將由現時繁忙時段需時約60至80分鐘大幅減至約12分鐘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm)
 
 ---

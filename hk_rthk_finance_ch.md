@@ -1,3 +1,27 @@
+# 報道：人行指導國有大行暫緩購匯　無意以貨幣大幅貶值應對關稅
+
+![外電報道，人行近日指導國有大行暫緩買入美元並加強代客購匯審查，避免加劇人民幣匯率調整壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799616_1_20250409164828.jpg&q=90)
+  
+
+外電引述消息人士說，人民銀行近日指導國有大行暫緩買入美元，並加強代客購匯審查，避免加劇人民幣匯率調整壓力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799616-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799616-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799616-20250409.htm)
+
+---
+
 # 港股先低後高　收市升136點
 
 ![恒指一度倒升逾300點，收市報20264點，升136點，升幅0.68%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799613_2_20250409163931.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799488-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799488-20250408.htm)
-
----
-
-# 行會批准北環線主線鐵路方案　議員料項目總造價或升至上千億元
-
-![行政長官會同行政會議批准北環線主線的鐵路方案。來往錦上路站和古洞站的行程，預計將由現時繁忙時段約60至80分鐘，大幅減至約12分鐘。（路政署圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799486_1_20250408224548.jpg&q=75)
-  
-
-行政長官會同行政會議批准北環線主線的鐵路方案。來往錦上路站和古洞站的行程，預計將由現時繁忙時段約60至80分鐘，大幅減至約12分鐘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799486-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799486-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799486-20250408.htm)
 
 ---

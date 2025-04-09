@@ -1,3 +1,27 @@
+# Small parcels tariff triples in Trump escalation
+
+![Small parcels sent from Hong Kong after May 2 and before June 1 will be subject to a US$75 levy and US$150 after that. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799614_2_20250409164405.jpg&q=85)
+  
+
+The US tariff on small goods parcels sent from mainland China and Hong Kong has been tripled in the latest escalation by US President Donald Trump of the ongoing trade war between the world’s two biggest economies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799614-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799614-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799614-20250409.htm)
+
+---
+
 # Revamped HK$2 subsidy scheme to take effect earlier
 
 ![Chris Sun says with changes to the HK$2 transport subsidy scheme coming earlier than expected, the government could save an extra HK$260 million. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799608_1_20250409161316.jpg&q=80)
@@ -1411,29 +1435,5 @@ Police said on Wednesday more suspects have been arrested in connection with the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798670-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798670-20250402.htm)
-
----
-
-# Mainland, SAR rescuers find quake survivor in Mandalay
-
-![A 52-year-old man has been rescued from the rubble of a hotel in Mandalay. Photo: Chris Tang's Facebook page](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798679_1_20250402204310.jpg&q=85)
-  
-
-Rescue teams from the SAR and the mainland have joined hands in finding a survivor in the quake-rattled Myanmar city of Mandalay.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm)
 
 ---
