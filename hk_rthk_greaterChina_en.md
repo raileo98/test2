@@ -1,3 +1,27 @@
+# China announces additional 50pc tariffs on US goods
+
+![China is to impose 84 percent tariffs on US goods from April 10. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799644_1_20250409193243.jpg&q=85)
+  
+
+China will increase tariffs on US goods by 50 percent, bringing it to a total of 84 percent, the finance ministry said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799644-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799644-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799644-20250409.htm)
+
+---
+
 # Rescue teams return to Beijing from quake-hit Myanmar
 
 ![The teams arrived at the Beijing Capital International Airport at about 4pm. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799620_1_20250409165725.jpg&q=90)
@@ -1415,29 +1439,5 @@ Electric vehicle giant BYD aims to double its sales outside China to more than 8
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm)
-
----
-
-# HK, Hainan to cooperate in promoting trade ties
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797500_1_20250326153447.jpg&q=85)
-  
-
-Chief Executive John Lee said on Wednesday a cooperation deal between Hong Kong and Hainan will contribute to the nation further opening up on the back of the free-trade advantages from the two regions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm)
 
 ---

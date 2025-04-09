@@ -1,3 +1,27 @@
+# China announces additional 50pc tariffs on US goods
+
+![China is to impose 84 percent tariffs on US goods from April 10. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799644_1_20250409193243.jpg&q=85)
+  
+
+China will increase tariffs on US goods by 50 percent, bringing it to a total of 84 percent, the finance ministry said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799644-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799644-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799644-20250409.htm)
+
+---
+
 # At least 20 killed in airstrike on southern Gaza
 
 ![A mother and her son are left in mourning after an Israeli strike in Khan Younis in southern Gaza. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799632_1_20250409181114.jpg&q=90)
@@ -1411,29 +1435,5 @@ China's central bank said on Tuesday it supported sovereign wealth fund Central 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm)
-
----
-
-# Beijing 'won't cave in' to 50pc Trump tariff threat
-
-![The Commerce Ministry describes threats of higher US tariffs as "a mistake on top of a mistake". File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799351_2_20250408163005.jpg&q=80)
-  
-
-China said it would never accept the "blackmail nature" of the United States after Washington escalated tariff threats against the nation, the Ministry of Commerce said on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm)
 
 ---
