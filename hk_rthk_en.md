@@ -48,7 +48,7 @@ Shai Gilgeous-Alexander scored 42 points as the Oklahoma City Thunder bounced ba
 
 # New technologies can speed up housing projects: govt
 
-![Winnie Ho says new technologies can help Hong Kong's construction sector. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799568_1_20250409120045.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799568_1_20250409120045.jpg&q=80)
   
 
 Secretary for Housing Winnie Ho said new construction technologies can speed up housing projects and that residents living in substandard subdivided flats will not go homeless amid policy changes.
