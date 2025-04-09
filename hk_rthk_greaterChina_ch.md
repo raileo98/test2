@@ -1,5 +1,6 @@
 # 國家教育部發布赴美留學預警
 
+![國家教育部發布赴美留學預警。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799662_1_20250409230648.jpg&q=90)
   
 
 國家教育部發布赴美留學預警。

@@ -1,3 +1,27 @@
+# SAR rescue team returns home from Myanmar
+
+![The government holds a welcome-home ceremony for the SAR rescue team at Chek Lap Kok airport. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799667_1_20250409230545.jpg&q=90)
+  
+
+The SAR's search and rescue team on Wednesday night returned home from Myanmar, where they supported rescue efforts following a devastating earthquake that struck the country last month.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799667-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799667-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799667-20250409.htm)
+
+---
+
 # China condemns US bill that threatens HKETOs
 
 ![Beijing says certain US politicians should stop interfering in Hong Kong affairs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799653_1_20250409201808.jpg&q=85)
@@ -1411,29 +1435,5 @@ US President Donald Trump signed an executive order on Wednesday that closes a t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm)
-
----
-
-# Govt seeks interest in ecotourism projects
-
-![The government wants to develop Pak Nai into an ecotourism destination. Photo: Development Bureau](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798669_1_20250402192137.jpg&q=80)
-  
-
-The Development Bureau announced on Wednesday that it is inviting expressions of interest for three major ecotourism projects in outlying islands and coastal areas.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798669-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798669-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798669-20250402.htm)
 
 ---

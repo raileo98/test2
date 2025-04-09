@@ -1,3 +1,27 @@
+# SAR rescue team returns home from Myanmar
+
+![The government holds a welcome-home ceremony for the SAR rescue team at Chek Lap Kok airport. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799667_1_20250409230545.jpg&q=90)
+  
+
+The SAR's search and rescue team on Wednesday night returned home from Myanmar, where they supported rescue efforts following a devastating earthquake that struck the country last month.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799667-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799667-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799667-20250409.htm)
+
+---
+
 # EU greenlights first set of tariffs hitting back at US
 
 ![Europe's response to Trump's latest tariffs salvo yet to be announced. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799659_1_20250409220122.jpg&q=85)
@@ -1411,29 +1435,5 @@ The Hang Seng Index gained 329.22 points, or 1.66 percent, to open at 20,157.52 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799371-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799371-20250408.htm)
-
----
-
-# US aid cuts a 'death sentence' for millions: UN
-
-![The Trump administration has largely gutted USAID, the main US humanitarian assistance organisation. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799361_1_20250408093958.jpg&q=90)
-  
-
-The United States has ended emergency food aid for 14 countries, endangering the lives of millions of hungry or starving people, a United Nations agency said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm)
 
 ---
