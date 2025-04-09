@@ -70,12 +70,12 @@ US President Donald Trump on Tuesday signed executive orders to "turbocharge coa
 
 ---
 
-# At least 66 dead in Dominican Republic roof collapse
+# At least 79 dead in Dominican Republic roof collapse
 
 ![Rescuers work at the site of the collapsed Jet Set nightclub in Santo Domingo, Dominican Republic. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799520_1_20250409073023.jpg&q=80)
   
 
-Rescuers raced to find survivors on Tuesday among the rubble of a Dominican Republic nightclub where at least 66 people, including a Major League Baseball star, were killed when the roof collapsed.
+Rescuers raced to find survivors on Tuesday among the rubble of a Dominican Republic nightclub where at least 79 people, including a Major League Baseball star, were killed when the roof collapsed.
 
   
 
