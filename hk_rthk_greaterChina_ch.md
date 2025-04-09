@@ -1,3 +1,27 @@
+# 河北隆化縣養老院大火至少20人死亡　負責人已被控制
+
+![河北隆化縣養老院大火至少20人死亡　負責人已被控制](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799565_1_20250409114421.jpg&q=90)
+  
+
+河北省承德市隆化縣一間養老院發生火災，至少造成20人死亡，養老院負責人已被公安機關控制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799565-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799565-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799565-20250409.htm)
+
+---
+
 # 河北隆化縣養老院大火至少20人死亡
 
 ![河北隆化縣養老院大火至少20人死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799558_1_20250409110449.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm)
-
----
-
-# 杜邦中國涉違《反壟斷法》遭立案調查
-
-![國家市場監督管理總局指杜邦中國集團有限公司涉嫌違反《反壟斷法》，依法開展立案調查。（國家市場監督管理總局網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798965_1_20250404202632.jpg&q=90)
-  
-
-國家市場監督管理總局宣布，杜邦中國集團有限公司涉嫌違反《反壟斷法》，市監局依法開展立案調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm)
 
 ---

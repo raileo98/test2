@@ -1,3 +1,51 @@
+# 內地股市半日升逾0.2%至0.6%
+
+![上證指數半日收報3152點，升7點，升幅0.24%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799563_1_20250409114027.jpg&q=90)
+  
+
+滬深股市低開高走。軍工裝備、半導體股上升；旅遊及酒店相關股份下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799563-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799563-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799563-20250409.htm)
+
+---
+
+# 河北隆化縣養老院大火至少20人死亡　負責人已被控制
+
+![河北隆化縣養老院大火至少20人死亡　負責人已被控制](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799565_1_20250409114421.jpg&q=90)
+  
+
+河北省承德市隆化縣一間養老院發生火災，至少造成20人死亡，養老院負責人已被公安機關控制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799565-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799565-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799565-20250409.htm)
+
+---
+
 # 亞開行料美國關稅將拖累今明兩年亞洲發展中國家經濟表現
 
 ![ADB表示，美國實施全面關稅可能令亞洲發展中國家今年經濟增速下跌約三分之一個百分點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799562_1_20250409113115.jpg&q=90)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799488-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799488-20250408.htm)
-
----
-
-# 馬來西亞進口冰凍甜點大腸菌群含量超標
-
-![食安中心已知會涉事進口商有關違規事項，會暫時撤銷較早前簽發予有關進口商銷售該款產品的進口准許。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799487_1_20250408230234.jpg&q=90)
-  
-
-一款馬來西亞進口冰凍甜點樣本，大腸菌群含量超出法例上限，受影響批次的產品仍存於進口商貨倉，沒有流出市面，並無流出市面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799487-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799487-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799487-20250408.htm)
-
----
-
-# 行會批准北環線主線鐵路方案　議員料項目總造價或升至上千億元
-
-![行政長官會同行政會議批准北環線主線的鐵路方案。來往錦上路站和古洞站的行程，預計將由現時繁忙時段約60至80分鐘，大幅減至約12分鐘。（路政署圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799486_1_20250408224548.jpg&q=75)
-  
-
-行政長官會同行政會議批准北環線主線的鐵路方案。來往錦上路站和古洞站的行程，預計將由現時繁忙時段約60至80分鐘，大幅減至約12分鐘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799486-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799486-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799486-20250408.htm)
 
 ---

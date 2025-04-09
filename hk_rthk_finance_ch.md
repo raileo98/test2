@@ -1,3 +1,27 @@
+# 內地股市半日升逾0.2%至0.6%
+
+![上證指數半日收報3152點，升7點，升幅0.24%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799563_1_20250409114027.jpg&q=90)
+  
+
+滬深股市低開高走。軍工裝備、半導體股上升；旅遊及酒店相關股份下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799563-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799563-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799563-20250409.htm)
+
+---
+
 # 亞開行料美國關稅將拖累今明兩年亞洲發展中國家經濟表現
 
 ![ADB表示，美國實施全面關稅可能令亞洲發展中國家今年經濟增速下跌約三分之一個百分點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799562_1_20250409113115.jpg&q=90)
@@ -1413,30 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm)
-
----
-
-# 新一批重點引進企業涉人工智能　生命健康與新能源科技行業
-
-![百度智能駕駛國際化業務總經理牛昊天表示，公司選擇來港是希望將自動駕駛技術和先導應用在香港落地。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_1_20250408165543.jpg&q=80)
-![理想汽車高級副總裁李冠華表示，公司會在香港作長期投資，總額達20億元。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_2_20250408165543.jpg&q=80)
-  
-
-引進重點企業辦公室下午舉辦重點企業夥伴簽約儀式，將公布新一批重點企業名單，當中涉及人工智能與數據科學，生命健康科技，先進製造與新能源科技等行業，不少企業來自內地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm)
 
 ---

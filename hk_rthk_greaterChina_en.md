@@ -1,3 +1,27 @@
+# Fatal fire sweeps through Hebei nursing home
+
+![Fatal fire sweeps through Hebei nursing home](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799564_1_20250409114419.jpg&q=90)
+  
+
+A fire at a nursing home in Hebei province has left 20 people dead, local authorities said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799564-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799564-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799564-20250409.htm)
+
+---
+
 # White House: 104pc China tariffs take effect on Wed
 
 ![White House press secretary Karoline Leavitt said President Trump believed China wanted to make a deal over tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799523_1_20250409074554.jpg&q=90)
@@ -1415,29 +1439,5 @@ President Donald Trump's plan to revitalise the US shipbuilding industry is like
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm)
-
----
-
-# Venezuelan oil tariffs condemned as 'illegal'
-
-![An oil tanker near the Venezuelan port of La Salina. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797246_1_20250325082707.jpg&q=90)
-  
-
-The Foreign Ministry in Beijing on Tuesday called on the United States to stop interfering in Venezuela's internal affairs and abolish the "illegal" unilateral sanctions on the South American country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Fatal fire sweeps through Hebei nursing home
+
+![Fatal fire sweeps through Hebei nursing home](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799564_1_20250409114419.jpg&q=90)
+  
+
+A fire at a nursing home in Hebei province has left 20 people dead, local authorities said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799564-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799564-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799564-20250409.htm)
+
+---
+
 # HK exporters 'furious over Trump tariffs'
 
 ![Jeffrey Lam says US tariffs move has had a great impact on cash flow at many Hong Kong companies. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799561_1_20250409111723.jpg&q=90)
@@ -1411,29 +1435,5 @@ Small-time investors in Hong Kong were left reeling on Monday as US President Do
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm)
-
----
-
-# Nurturing talent 'cornerstone of innovation and tech'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799279_1_20250407173600.jpg&q=90)
-  
-
-Nurturing talent is the "cornerstone" in innovation and technology (I&T) development, according to the city's tech chief on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799279-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799279-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799279-20250407.htm)
 
 ---
