@@ -1,3 +1,27 @@
+# 救援隊指揮官：隊員體能消耗嚴重獲特許缺勤　隊員讚揚搜救犬表現
+
+![​香港特區救援隊完成緬甸地震災區搜救任務，指揮官趙汝珏透露，今次出發前只花15分鐘就成功召集隊員。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799669_1_20250410001423.jpg&q=90)
+  
+
+​香港特區救援隊完成緬甸地震災區搜救任務，晚上返抵本港。特區救援隊指揮官趙汝珏表示，在救援期間經歷過4次餘震，要緊急撤離，又提到緬甸日間超過40度，晚間亦超過30度，導致隊員體能消耗嚴重，未能很好休息。隊員由周四起享有4天的特許缺勤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799669-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799669-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799669-20250410.htm)
+
+---
+
 # 特區救援隊返港迎接儀式　李家超：無私付出　香港驕傲
 
 ![李家超逐一與救援隊員握手致謝，歡迎他們安全回港。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799666_2_20250409232552.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm)
-
----
-
-# 馬來西亞進口冰凍甜點大腸菌群含量超標
-
-![食安中心已知會涉事進口商有關違規事項，會暫時撤銷較早前簽發予有關進口商銷售該款產品的進口准許。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799487_1_20250408230234.jpg&q=90)
-  
-
-一款馬來西亞進口冰凍甜點樣本，大腸菌群含量超出法例上限，受影響批次的產品仍存於進口商貨倉，沒有流出市面，並無流出市面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799487-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799487-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799487-20250408.htm)
 
 ---

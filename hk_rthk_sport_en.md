@@ -1,3 +1,27 @@
+# Premier League claims fifth Champions League spot
+
+![Arsenal's shock 3-0 win over 15-time European champions Real Madrid in the first leg of their quarter-final included two stunning free kicks from Declan Rice. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799668_1_20250410001250.jpg&q=80)
+  
+
+Arsenal's 3-0 win over Real Madrid means at least five Premier League teams will play in next season's Champions League, the English top flight confirmed on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799668-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799668-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799668-20250410.htm)
+
+---
+
 # Shai holds court as Lakers sink after Doncic ejection
 
 ![Oklahoma City Thunder guards shut down Pau Gasol of the Los Angeles Lakers in the midst of a shot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799573_1_20250409122147.jpg&q=90)
@@ -1422,29 +1446,5 @@ Rugby lovers from Hong Kong and beyond filled up the Kai Tak Stadium on Sunday t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm)
-
----
-
-# France, Argentina to battle in Sevens men's final
-
-![Enahemo Artaud (48) and his French teammates celebrate their dramatic victory over Fiji. Photo courtesy of World Rugby](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798111_1_20250330151645.jpg&q=85)
-  
-
-France's emphatic run at the Hong Kong Sevens continued on Sunday as they scored a dramatic, nail-biting victory over Fiji to book a place in the final where they will battle Argentina.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm)
 
 ---

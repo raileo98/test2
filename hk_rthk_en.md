@@ -1,3 +1,27 @@
+# Premier League claims fifth Champions League spot
+
+![Arsenal's shock 3-0 win over 15-time European champions Real Madrid in the first leg of their quarter-final included two stunning free kicks from Declan Rice. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799668_1_20250410001250.jpg&q=80)
+  
+
+Arsenal's 3-0 win over Real Madrid means at least five Premier League teams will play in next season's Champions League, the English top flight confirmed on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799668-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799668-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799668-20250410.htm)
+
+---
+
 # SAR rescue team returns home from Myanmar
 
 ![The government holds a welcome-home ceremony for the SAR rescue team at Chek Lap Kok airport. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799667_1_20250409230545.jpg&q=90)
@@ -1411,29 +1435,5 @@ South Korea will hold a presidential election on June 3, the country's acting pr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799377-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799377-20250408.htm)
-
----
-
-# Hong Kong stocks bounce back at opening
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799371_1_20250408103918.jpg&q=75)
-  
-
-The Hang Seng Index gained 329.22 points, or 1.66 percent, to open at 20,157.52 points on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799371-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799371-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799371-20250408.htm)
 
 ---
