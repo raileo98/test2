@@ -1,3 +1,49 @@
+# 17歲少女乙型流感併發腦病變　情況嚴重
+
+  
+
+一名17歲少女感染乙型流感併發腦病變，目前仍然留醫，情況嚴重。她有接種本年度的季節性流感疫苗，至於她就讀的學校近日沒有出現流感爆發的情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799648-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799648-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799648-20250409.htm)
+
+---
+
+# 政府稱未能估算市場何時完全消化寫字樓供應　檢討商業地擬增彈性
+
+  
+
+發展局表示，政府近年積極招商引資，落戶香港的企業會增加對寫字樓的需求。由於需求是動態和受制於很多因素，未能估算市場何時能完全消化寫字樓供應。發展局書面回覆立法會議員提問時表示，差餉物業估價署上月公布初步統計數字顯示，今年私人寫字樓的預測總落成量約為30萬9千米，明年則有11萬6千平方米。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm)
+
+---
+
 # 特區政府稱絕不代美國收所謂關稅　稍後公布暫停處理寄美郵遞安排
 
   

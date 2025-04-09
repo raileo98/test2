@@ -1,3 +1,26 @@
+# 17歲少女乙型流感併發腦病變　情況嚴重
+
+  
+
+一名17歲少女感染乙型流感併發腦病變，目前仍然留醫，情況嚴重。她有接種本年度的季節性流感疫苗，至於她就讀的學校近日沒有出現流感爆發的情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799648-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799648-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799648-20250409.htm)
+
+---
+
 # 政府稱未能估算市場何時完全消化寫字樓供應　檢討商業地擬增彈性
 
   
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799475-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799475-20250408.htm)
-
----
-
-# 新一輪「富戶政策」申報周期展開　約21萬租戶須５月底前交表
-
-![房委會已向約21萬納入新一輪「富戶政策」申報周期的公屋租戶派發「富戶政策」申報表及「居住情況申報表」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799474_1_20250408213751.jpg&q=90)
-  
-
-房委會已向約21萬納入新一輪「富戶政策」申報周期的公屋租戶派發「富戶政策」申報表及「居住情況申報表」。房委會提醒租戶必須於今年5月31日或之前填妥申報表交回房屋署。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799474-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799474-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799474-20250408.htm)
 
 ---
