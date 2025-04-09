@@ -1,3 +1,51 @@
+# 陳克勤關注人道毀滅或令野豬絶種　謝展寰稱盡量取得平衡
+
+![環境及生態局表示，本港整體野豬數目由2022年約1830頭，減少至2024年約900頭。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799627_1_20250409174452.jpg&q=80)
+  
+
+立法會特別財委會繼續審核新財政年度開支預算。環境及生態局表示，本港整體野豬數目由2022年約1830頭，減少至2024年約900頭。民建聯立法會議員陳克勤關注，當局採用人道毀滅野豬，很快令在香港的野豬絕種，建議採用較人道方式處理動物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799627-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799627-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799627-20250409.htm)
+
+---
+
+# 職員匯出約200萬港元後始知受騙　警一星期接4宗電郵詐騙案
+
+![警方提醒要對不明來歷的電郵，特別是要求提供個人資料或金錢轉賬的郵件，時刻保持警覺性。（守網者社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799626_1_20250409173739.jpg&q=90)
+  
+
+警方表示，近日有跨境匯款公司職員收到詐騙電郵，要求匯出一筆27萬美元，折合約200萬港元的款項到指定戶口，職員不虞有詐將款項匯出後才知道受騙，呼籲業界和市民提防受騙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799626-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799626-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799626-20250409.htm)
+
+---
+
 # 國防部堅決反對G7及歐盟言論　重申台灣問題不容任何外來干涉
 
 ![張曉剛說，東部戰區以雷霆之勢打擊「台獨」分裂勢力囂張氣焰，是對台海和平穩定和台灣同胞安全福祉的堅定守護。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799623_1_20250409171321.jpg&q=90)

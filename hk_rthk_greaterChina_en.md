@@ -48,7 +48,7 @@ The US tariff on small goods parcels sent from mainland China and Hong Kong has 
 
 # China 'verifying reports of nationals held in Ukraine'
 
-![Foreign Ministry spokesman Lin Jian urges Chinese citizens to avoid conflict zones and participating in wars. Photo: Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799609_1_20250409161617.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799609_1_20250409161617.jpg&q=90)
   
 
 China said on Wednesday it is verifying reports of Chinese nationals being captured in Ukraine.

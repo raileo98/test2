@@ -1,3 +1,51 @@
+# 陳克勤關注人道毀滅或令野豬絶種　謝展寰稱盡量取得平衡
+
+![環境及生態局表示，本港整體野豬數目由2022年約1830頭，減少至2024年約900頭。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799627_1_20250409174452.jpg&q=80)
+  
+
+立法會特別財委會繼續審核新財政年度開支預算。環境及生態局表示，本港整體野豬數目由2022年約1830頭，減少至2024年約900頭。民建聯立法會議員陳克勤關注，當局採用人道毀滅野豬，很快令在香港的野豬絕種，建議採用較人道方式處理動物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799627-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799627-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799627-20250409.htm)
+
+---
+
+# 職員匯出約200萬港元後始知受騙　警一星期接4宗電郵詐騙案
+
+![警方提醒要對不明來歷的電郵，特別是要求提供個人資料或金錢轉賬的郵件，時刻保持警覺性。（守網者社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799626_1_20250409173739.jpg&q=90)
+  
+
+警方表示，近日有跨境匯款公司職員收到詐騙電郵，要求匯出一筆27萬美元，折合約200萬港元的款項到指定戶口，職員不虞有詐將款項匯出後才知道受騙，呼籲業界和市民提防受騙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799626-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799626-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799626-20250409.htm)
+
+---
+
 # 曼谷抵港男子行李藏約11公斤大麻花被捕　案件明日提堂
 
 ![海關檢獲的懷疑大麻花。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799621_1_20250409170747.jpg&q=50)
@@ -310,30 +358,6 @@
 
 ---
 
-# 會計師公會：美國關稅政策會計行業有危有機
-
-![歐振興說，會計業正面臨前所未有的轉型。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799585_1_20250409135536.jpg&q=90)
-  
-
-香港會計師公會會長歐振興表示，貿易戰影響市場資金部署，短期為金融市場帶來波動，仍需視乎關稅政策後續發展及如何落實 ，但對會計行業是有危有機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm)
-
----
-
 # 文體旅局召開會議統籌黃金周預備工作　羅淑佩籲盡力接待旅客
 
 ![文化體育及旅遊局召開會議統籌內地勞動節黃金周旅客訪港預備工作，與各單位代表討論旅客訪港安排。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799584_1_20250409140945.jpg&q=85)
@@ -355,6 +379,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm)
+
+---
+
+# 會計師公會：美國關稅政策會計行業有危有機
+
+![歐振興說，會計業正面臨前所未有的轉型。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799585_1_20250409135536.jpg&q=90)
+  
+
+香港會計師公會會長歐振興表示，貿易戰影響市場資金部署，短期為金融市場帶來波動，仍需視乎關稅政策後續發展及如何落實 ，但對會計行業是有危有機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm)
 
 ---
 
@@ -1395,55 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799457-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799457-20250408.htm)
-
----
-
-# Coldplay周邊商品大部分售罄　旅客未能購心頭好感可惜
-
-![有來自深圳的旅客說，購買了具有香港元素的海報和黑膠專輯，認為商店安排和輪候時間不錯。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799455_1_20250408180509.jpg&q=85)
-![不少觀眾提早到場選購商品及「打卡」拍照。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799455_2_20250408180710.jpg&q=90)
-![有顧客表示，大部分周邊商品已售罄。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799455_3_20250408180710.jpg&q=85)
-  
-
-英國樂隊Coldplay今晚起在啟德體育園主場館舉行演唱會，下午已有不少市民和旅客到場搶購期間限定店的演唱會周邊商品。有顧客表示，大部分周邊商品已售罄，但整體氣氛良好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799455-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799455-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799455-20250408.htm)
-
----
-
-# 巴拿馬審計報告指長和港口特許經營權有多項違規
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799439_1_20250408181902.jpg&q=90)
-  
-
-巴拿馬的審計報告指，授予長和旗下子公司，經營兩座港口的特許經營權，存在多項違規行為，違反合約條款，巴拿馬當局也未收到合約列明的12億美元欠款。有當地法律專家認為，如果總審計長確認特許經營權續約有違規行為，或最高法院宣布合約違憲，特許經營權可能會被撤銷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm)
 
 ---
