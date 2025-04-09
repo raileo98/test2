@@ -1,3 +1,27 @@
+# At least 20 killed in airstrike on southern Gaza
+
+![A mother and her son are left in mourning after an Israeli strike in Khan Younis in southern Gaza. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799632_1_20250409181114.jpg&q=90)
+  
+
+Gaza's civil defence agency said an Israeli strike on a residential building in the Shujaiya area of Gaza City killed at least 20 people on Wednesday, as the military said they were looking into the attack.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799632-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799632-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799632-20250409.htm)
+
+---
+
 # Hezbollah 'ready for talks on disarmament'
 
 ![Israeli military exhibit seized Hezbollah weapons, without specifying when and where they were confiscated, near the border with Lebanon last year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799628_1_20250409180051.jpg&q=90)
@@ -1411,29 +1435,5 @@ Donald Trump's trade tariffs on close ally Australia are "not the act of a frien
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm)
-
----
-
-# Tesla sales slump as pressure piles on Musk
-
-![The number of autos delivered globally dropped by 13 percent in the first three months of 2025. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798709_1_20250403033051.jpg&q=90)
-  
-
-Tesla's worldwide sales tumbled in the first quarter, figures showed on Wednesday, piling further pressure on CEO Elon Musk who faces a growing backlash for his role overseeing US federal spending cuts under President Donald Trump.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm)
 
 ---
