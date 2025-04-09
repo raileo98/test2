@@ -1,3 +1,26 @@
+# 政府稱未能估算市場何時完全消化寫字樓供應　檢討商業地擬增彈性
+
+  
+
+發展局表示，政府近年積極招商引資，落戶香港的企業會增加對寫字樓的需求。由於需求是動態和受制於很多因素，未能估算市場何時能完全消化寫字樓供應。發展局書面回覆立法會議員提問時表示，差餉物業估價署上月公布初步統計數字顯示，今年私人寫字樓的預測總落成量約為30萬9千米，明年則有11萬6千平方米。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm)
+
+---
+
 # 特區政府稱絕不代美國收所謂關稅　稍後公布暫停處理寄美郵遞安排
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799474-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799474-20250408.htm)
-
----
-
-# 據了解警方票控及拘捕5人懷疑在啟德兜售Coldplay黃牛票
-
-![據了解便衣警截獲一男子懷疑在啟德兜售Coldplay黃牛票（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799469_1_20250408193856.jpg&q=85)
-  
-
-英國樂隊Coldplay晚上在啟德主場館舉行演唱會。據了解，警方下午在啟德體育園截獲一名香港男子涉嫌以高於原價售賣門票，警方稍後將票控該男子。另外，警方在行動中又以涉嫌違反逗留條件拘捕兩男兩女，他們持雙程證，介乎39至51歲，他們亦以高於原價放售演唱會門票，每張賺取數百元差價。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799469-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799469-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799469-20250408.htm)
 
 ---
