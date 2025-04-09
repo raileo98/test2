@@ -1,3 +1,51 @@
+# 韓股低收約2%
+
+![首爾綜合指數收市報2293點，跌40點，跌幅1.74%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799593_1_20250409144601.jpg&q=90)
+  
+
+南韓股市下跌。首爾綜合指數收市報2293點，跌40點，跌幅1.74%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799593-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799593-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799593-20250409.htm)
+
+---
+
+# 日股收市跌近4%
+
+![日經指數收市報31714點，跌1298點，跌幅3.93%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799592_1_20250409144438.jpg&q=90)
+  
+
+東京股市下跌。日經指數收市報31714點，跌1298點，跌幅3.93%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799592-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799592-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799592-20250409.htm)
+
+---
+
 # 台股收市急挫近6%
 
 ![台灣加權指數收報17391點，跌1068點，跌幅5.79%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799590_1_20250409142812.jpg&q=90)
@@ -117,7 +165,7 @@
 
 ---
 
-# 會計師公會：美國關稅政策對會計行業有危有機
+# 會計師公會：美國關稅政策會計行業有危有機
 
 ![歐振興說，會計業正面臨前所未有的轉型。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799585_1_20250409135536.jpg&q=90)
   

@@ -1,3 +1,27 @@
+# Social worker jailed over riot conviction in retrial
+
+![The District Court has also sentenced three other defendants in the same retrial. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799588_1_20250409141131.jpg&q=90)
+  
+
+Social worker Jackie Chen was on Wednesday handed a three-year, nine-month prison sentence after being convicted of rioting during the 2019 unrest in a retrial.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799588-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799588-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799588-20250409.htm)
+
+---
+
 # Risk-off mode on as new US duties curb appetites
 
 ![The Hang Seng Index has been volatile amid a tit-for-tat tariffs fight that may escalate even further after Donald Trump's 50 percent levy takes effect on Wednesday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799583_1_20250409143912.jpg&q=80)
@@ -1411,29 +1435,5 @@ A modern dance drama inspired by renowned Chinese poet Su Dongpo and innovative 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm)
-
----
-
-# Southampton sack manager Ivan Juric after relegation
-
-![Under Juric, the Saints have lost seven of their past eight league matches. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799297_1_20250407195542.jpg&q=90)
-  
-
-Southampton have sacked manager Ivan Juric following their relegation from the Premier League, the club announced on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799297-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799297-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799297-20250407.htm)
 
 ---

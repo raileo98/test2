@@ -1,3 +1,26 @@
+# 特區救援隊完成在緬甸災區搜救行動　收拾裝備準備回港
+
+  
+
+消防處表示，特區救援隊經過連日在緬甸地震災區的搜救行動，正忙於收拾裝備，準備回港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799594-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799594-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799594-20250409.htm)
+
+---
+
 # 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
 
   
@@ -45,6 +68,30 @@
 
 ---
 
+# 會計師公會：美國關稅政策會計行業有危有機
+
+![歐振興說，會計業正面臨前所未有的轉型。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799585_1_20250409135536.jpg&q=90)
+  
+
+香港會計師公會會長歐振興表示，貿易戰影響市場資金部署，短期為金融市場帶來波動，仍需視乎關稅政策後續發展及如何落實 ，但對會計行業是有危有機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm)
+
+---
+
 # 文體旅局召開會議統籌黃金周預備工作　羅淑佩籲盡力接待旅客
 
 ![文化體育及旅遊局召開會議統籌內地勞動節黃金周旅客訪港預備工作，與各單位代表討論旅客訪港安排。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799584_1_20250409140945.jpg&q=85)
@@ -66,30 +113,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm)
-
----
-
-# 會計師公會：美國關稅政策對會計行業有危有機
-
-![歐振興說，會計業正面臨前所未有的轉型。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799585_1_20250409135536.jpg&q=90)
-  
-
-香港會計師公會會長歐振興表示，貿易戰影響市場資金部署，短期為金融市場帶來波動，仍需視乎關稅政策後續發展及如何落實 ，但對會計行業是有危有機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm)
 
 ---
 
@@ -1421,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm)
-
----
-
-# 葉劉淑儀：中國已預備好應對美國關稅措施　長遠將成為贏家
-
-![葉劉淑儀表示，長遠而言，中國在貿易、技術和道德層面都會是贏家。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799429_1_20250408153932.jpg&q=80)
-  
-
-美國對包括中國在內的全球大部分國家和地區徵收對等關稅，行政會議召集人、新民黨主席葉劉淑儀表示，中國已準備好如何應對，美國總統特朗普將自由貿易和多邊體系的領導者角色讓給中國，長遠而言，中國在貿易、技術和道德層面都會是贏家。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Social worker jailed over riot conviction in retrial
+
+![The District Court has also sentenced three other defendants in the same retrial. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799588_1_20250409141131.jpg&q=90)
+  
+
+Social worker Jackie Chen was on Wednesday handed a three-year, nine-month prison sentence after being convicted of rioting during the 2019 unrest in a retrial.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799588-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799588-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799588-20250409.htm)
+
+---
+
 # MTR warns of Tung Chung-Sunny Bay service disruption
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799574_1_20250409122315.jpg&q=90)
@@ -1411,29 +1435,5 @@ The psychological well-being of Hong Kong's secondary school pupils improved sli
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798639-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798639-20250402.htm)
-
----
-
-# Roles of RTHK, information unit don't overlap: govt
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798626_1_20250402152610.jpg&q=90)
-  
-
-Commerce chief Algernon Yau on Wednesday stressed that merging the city's public broadcaster and the government's public relations office might not be the most effective way to cut expenditure, saying the two bodies do not overlap in their functions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm)
 
 ---
