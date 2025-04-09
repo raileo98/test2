@@ -1,3 +1,27 @@
+# 國防部堅決反對G7及歐盟言論　重申台灣問題不容任何外來干涉
+
+![張曉剛說，東部戰區以雷霆之勢打擊「台獨」分裂勢力囂張氣焰，是對台海和平穩定和台灣同胞安全福祉的堅定守護。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799623_1_20250409171321.jpg&q=90)
+  
+
+在北京，國防部新聞發言人張曉剛表示，中方對七國集團及歐盟的表態表示強烈不滿、堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799623-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799623-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799623-20250409.htm)
+
+---
+
 # 曼谷抵港男子行李藏約11公斤大麻花被捕　案件明日提堂
 
 ![海關檢獲的懷疑大麻花。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799621_1_20250409170747.jpg&q=50)

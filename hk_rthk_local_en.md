@@ -1,3 +1,27 @@
+# Rescue teams return to Beijing from quake-hit Myanmar
+
+![The teams have arrived at the Beijing Capital International Airport at about 4 pm. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799620_1_20250409165725.jpg&q=90)
+  
+
+Search and rescue teams from Hong Kong and the mainland returned to Beijing on Wednesday afternoon after completing their missions in quake-hit Myanmar.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799620-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799620-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799620-20250409.htm)
+
+---
+
 # Small parcels tariff triples in Trump escalation
 
 ![Small parcels sent from Hong Kong after May 2 and before June 1 will be subject to a US$75 levy and US$150 after that. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799614_2_20250409164405.jpg&q=85)
@@ -24,7 +48,7 @@ The US tariff on small goods parcels sent from mainland China and Hong Kong has 
 
 # Revamped HK$2 subsidy scheme to take effect earlier
 
-![Chris Sun says with changes to the HK$2 transport subsidy scheme coming earlier than expected, the government could save an extra HK$260 million. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799608_1_20250409161316.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799608_1_20250409161316.jpg&q=80)
   
 
 The government said changes to the HK$2 transport subsidy scheme will be in place sooner than expected.
@@ -1411,29 +1435,5 @@ The Hong Kong and Macau Affairs Office (HKMAO) on Wednesday reposted an article 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm)
-
----
-
-# More arrests in Fo Tan murder case
-
-![Superintendent Li Muk-yik said officers were able to identify the suspects through surveillance cameras. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798670_1_20250402193112.jpg&q=90)
-  
-
-Police said on Wednesday more suspects have been arrested in connection with the murder of a 52-year-old man in Fo Tan last month.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798670-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798670-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798670-20250402.htm)
 
 ---

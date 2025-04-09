@@ -1,3 +1,27 @@
+# Rescue teams return to Beijing from quake-hit Myanmar
+
+![The teams have arrived at the Beijing Capital International Airport at about 4 pm. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799620_1_20250409165725.jpg&q=90)
+  
+
+Search and rescue teams from Hong Kong and the mainland returned to Beijing on Wednesday afternoon after completing their missions in quake-hit Myanmar.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799620-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799620-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799620-20250409.htm)
+
+---
+
 # Hang Seng Index bucks downward trend
 
 ![The Hang Seng Index closes up 0.68 percent on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799622_1_20250409170856.jpg&q=75)
@@ -48,7 +72,7 @@ The US tariff on small goods parcels sent from mainland China and Hong Kong has 
 
 # Revamped HK$2 subsidy scheme to take effect earlier
 
-![Chris Sun says with changes to the HK$2 transport subsidy scheme coming earlier than expected, the government could save an extra HK$260 million. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799608_1_20250409161316.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799608_1_20250409161316.jpg&q=80)
   
 
 The government said changes to the HK$2 transport subsidy scheme will be in place sooner than expected.
@@ -1411,29 +1435,5 @@ A volcano in the central Philippines erupted early on Tuesday morning, sending a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm)
-
----
-
-# Medvedev battles past Khachanov at Monte Carlo
-
-![Daniil Medvedev advanced to the second round of the Monte Carlo Masters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799341_1_20250408081254.jpg&q=90)
-  
-
-Daniil Medvedev navigated his way into the second round of the Monte Carlo Masters on Monday, eventually seeing off former world number eight Karen Khachanov 7-5, 4-6, 6-4.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799341-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799341-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799341-20250408.htm)
 
 ---

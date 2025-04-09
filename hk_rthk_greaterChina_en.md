@@ -1,3 +1,27 @@
+# Rescue teams return to Beijing from quake-hit Myanmar
+
+![The teams have arrived at the Beijing Capital International Airport at about 4 pm. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799620_1_20250409165725.jpg&q=90)
+  
+
+Search and rescue teams from Hong Kong and the mainland returned to Beijing on Wednesday afternoon after completing their missions in quake-hit Myanmar.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799620-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799620-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799620-20250409.htm)
+
+---
+
 # Small parcels tariff triples in Trump escalation
 
 ![Small parcels sent from Hong Kong after May 2 and before June 1 will be subject to a US$75 levy and US$150 after that. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799614_2_20250409164405.jpg&q=85)
@@ -1415,29 +1439,5 @@ Chief Executive John Lee said on Wednesday a cooperation deal between Hong Kong 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm)
-
----
-
-# Ta Kung Pao issues fresh criticism of Hutchison deal
-
-![Ta Kung Pao says the sale by CK Hutchison of ports in Panama and elsewhere to BlackRock undermines China's national interests. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797495_1_20250326151647.jpg&q=80)
-  
-
-The Ta Kung Pao newspaper on Wednesday renewed its criticism of the sale by CK Hutchison of its Panama Canal ports.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm)
 
 ---
