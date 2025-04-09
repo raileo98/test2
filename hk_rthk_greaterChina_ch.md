@@ -1,6 +1,34 @@
-# 中方再反制　宣布對原產於美國所有進口產品再加徵50%關稅
+# 商務部：中方在世貿組織追加起訴美國升級對華關稅
+
+![商務部指，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799642_1_20250409191832.jpg&q=80)
+  
+
+商務部指，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。
 
   
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799642-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799642-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799642-20250409.htm)
+
+---
+
+# 中方再反制　宣布對原產於美國所有進口產品再加徵50%關稅
+
+![中方再反制　宣布對原產於美國所有進口產品再加徵50%關稅](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799640_1_20250409191410.jpg&q=90)
+  
+
+國務院關稅稅則委員會發布公告，自4月10日12時01分起，對原產於美國的進口商品，加徵關稅的稅率，由34%提高至84%。
+
   
 
 
@@ -1407,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm)
-
----
-
-# 《人民日報》再發文指中國有強大抗壓能力面對美國關稅霸凌衝擊
-
-![文章說，中國是超大規模經濟體，面對美國的關稅霸凌衝擊，具有強大的抗壓能力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799141_1_20250406215425.jpg&q=35)
-  
-
-明日出版的《人民日報》再發表評論員文章，指美國對中國商品加徵34%的關稅，加上此前加徵的關稅，將嚴重抑制雙邊貿易，短期內不可避免地對中國出口造成負面影響，加大經濟下行壓力，但中國是超大規模經濟體，面對美國的關稅霸凌衝擊，具有強大的抗壓能力，對美出口下降不會對整體經濟造成顛覆性影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm)
 
 ---

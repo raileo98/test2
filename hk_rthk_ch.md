@@ -1,5 +1,30 @@
+# 商務部：中方在世貿組織追加起訴美國升級對華關稅
+
+![商務部指，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799642_1_20250409191832.jpg&q=80)
+  
+
+商務部指，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799642-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799642-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799642-20250409.htm)
+
+---
+
 # 金融學院：金融機構目前GenA.I.著眼點並非取代部分工種
 
+![馮殷諾（左）稱金融機構目前視人工智能為提升效率、簡化工序的工具。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799641_1_20250409190933.jpg&q=90)
   
 
 金融學院轄下香港貨幣及金融研究中心，就金融服務業應用生成式人工智能（GenA.I.）發表報告顯示，金融機構積極應用GenA.I.，以提升生產力及營運效率，當中以大型機構應用率較高。
@@ -23,7 +48,11 @@
 
 # 中方再反制　宣布對原產於美國所有進口產品再加徵50%關稅
 
+![中方再反制　宣布對原產於美國所有進口產品再加徵50%關稅](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799640_1_20250409191410.jpg&q=90)
   
+
+國務院關稅稅則委員會發布公告，自4月10日12時01分起，對原產於美國的進口商品，加徵關稅的稅率，由34%提高至84%。
+
   
 
 
