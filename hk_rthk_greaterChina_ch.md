@@ -1,3 +1,27 @@
+# 中方稱美國對等關稅開錯方、吃錯藥　無助解決貿易不平衡問題
+
+![世界貿易組織召開貨物貿易理事會年度首次會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799672_1_20250410004211.jpg&q=85)
+  
+
+世界貿易組織召開貨物貿易理事會年度首次會議，中方嚴重關切美國對等關稅措施及其惡劣影響，要求美方切實遵守世貿規則，避免對全球經濟和多邊貿易體制造成負面衝擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm)
+
+---
+
 # 國家教育部發布赴美留學預警
 
 ![國家教育部發布赴美留學預警。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799662_1_20250409230648.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799247-20250407.htm)
-
----
-
-# 廣東稱要全面推進鄉村振興　辦好鄉村文藝晚會
-
-![廣東當局指，今年是「百千萬工程」的重要節點，要全面推進鄉村振興，發展文旅、辦好「廣東村晚」。（受訪者社交平台截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799224_1_20250407131336.jpg&q=85)
-  
-
-廣東省政府指，今年是「百縣千鎮萬村高質量發展工程」，簡稱「百千萬工程」的重要節點，要全面推進鄉村振興，包括辦好「廣東村晚」，即是鄉村文藝晚會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 中方稱美國對等關稅開錯方、吃錯藥　無助解決貿易不平衡問題
+
+![世界貿易組織召開貨物貿易理事會年度首次會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799672_1_20250410004211.jpg&q=85)
+  
+
+世界貿易組織召開貨物貿易理事會年度首次會議，中方嚴重關切美國對等關稅措施及其惡劣影響，要求美方切實遵守世貿規則，避免對全球經濟和多邊貿易體制造成負面衝擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm)
+
+---
+
+# 伊朗總統：德黑蘭將在有尊嚴情況下與美國間接談判
+
+![佩澤希齊揚參觀伊朗國家核工業成就展。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799671_1_20250410003924.jpg&q=90)
+  
+
+伊朗總統佩澤希齊揚表示，德黑蘭將在有尊嚴情況下，與美國進行間接談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799671-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799671-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799671-20250410.htm)
+
+---
+
 # 德國聯盟黨與社民黨公布執政協議　默茨稱歐洲需共同回應美國關稅
 
 ![默茨說，德國正迎來一個強大而有效的政府。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799670_1_20250410003022.jpg&q=90)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799384-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799384-20250408.htm)
-
----
-
-# 澤連斯基稱烏軍已進入俄羅斯別爾哥羅德州開展行動
-
-![前線烏軍近期與俄軍戰鬥激烈。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799383_2_20250408114319.jpg&q=80)
-  
-
-烏克蘭總統澤連斯基表示，烏克蘭軍隊已經進入俄羅斯別爾哥羅德州開展軍事行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799383-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799383-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799383-20250408.htm)
-
----
-
-# 美媒引述消息指馬斯克曾勸特朗普撤銷新關稅政策但不成功
-
-![據報馬斯克曾勸特朗普撤銷新關稅。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799374_1_20250408120239.jpg&q=90)
-  
-
-美國總統特朗普的顧問、富商馬斯克據報曾勸喻特朗普撤銷新關稅政策，但不成功。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm)
 
 ---

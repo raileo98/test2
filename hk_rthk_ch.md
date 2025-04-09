@@ -1,3 +1,27 @@
+# 伊朗總統：德黑蘭將在有尊嚴情況下與美國間接談判
+
+![佩澤希齊揚參觀伊朗國家核工業成就展。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799671_1_20250410003924.jpg&q=90)
+  
+
+伊朗總統佩澤希齊揚表示，德黑蘭將在有尊嚴情況下，與美國進行間接談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799671-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799671-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799671-20250410.htm)
+
+---
+
 # 德國聯盟黨與社民黨公布執政協議　默茨稱歐洲需共同回應美國關稅
 
 ![默茨說，德國正迎來一個強大而有效的政府。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799670_1_20250410003022.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799597-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799597-20250409.htm)
-
----
-
-# 滬深股市先跌後升　報道：內地高層領導人或今日召開重要會議
-
-![上證指數收報3186點，升41點，升幅1.31%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799595_1_20250409150621.jpg&q=90)
-  
-
-滬深股市低開高走，3大主要指數高收近1%或以上。軍工裝備、半導體股上升；銀行、保險、醫藥相關股份下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799595-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799595-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799595-20250409.htm)
 
 ---
