@@ -1,3 +1,27 @@
+# 中方從中午起對美加徵84%關稅　文化和旅遊部對赴美遊客發提示
+
+![商務部表示，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799673_1_20250410012424.jpg&q=75)
+  
+
+中方進一步反制美國向中國產品徵收104%的關稅措施，今日中午起對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm)
+
+---
+
 # 中方稱美國對等關稅開錯方、吃錯藥　無助解決貿易不平衡問題
 
 ![世界貿易組織召開貨物貿易理事會年度首次會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799672_1_20250410004211.jpg&q=85)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799599-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799599-20250409.htm)
-
----
-
-# 孫玉菡指大灣區青年就業計劃達預期效果　入職人數跌有很多原因
-
-![孫玉菡說，「大灣區青年就業計劃」推行至今達到預期效果。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799598_1_20250409153126.jpg&q=90)
-  
-
-政府自2023年起恆常推行「大灣區青年就業計劃」，在2023及2024年分別有278間及249間企業，提供2540個及2186個職位空缺，分別有718名及417名青年入職。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799598-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799598-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799598-20250409.htm)
 
 ---
