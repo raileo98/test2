@@ -1,3 +1,49 @@
+# 文體旅局召開會議統籌黃金周預備工作　羅淑佩籲盡力接待旅客
+
+  
+
+文化體育及旅遊局召開會議，統籌一連五日內地勞動節黃金周期間接待訪港旅客的預備工作。會議由文體旅局局長羅淑佩主持，除警務處、入境處、海關、運輸署及多區民政事務處等部門代表外，多個旅遊相關機構包括旅監局、旅發局、旅議會、西九文化區管理局、主要旅遊景點及酒店業等亦有派員出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm)
+
+---
+
+# 會計師公會：美國關稅政策對會計行業有危有機
+
+  
+
+香港會計師公會會長歐振興表示，貿易戰影響市場資金部署，短期為金融市場帶來波動，仍需視乎關稅政策後續發展及如何落實 ，但對會計行業是有危有機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm)
+
+---
+
 # 恒指下午初段跌逾2%　滬股轉跌
 
 ![恒指較早時報19620點，跌476點，跌幅2.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799580_1_20250409130614.jpg&q=80)
@@ -1397,53 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm)
-
----
-
-# 楊何蓓茵稱對公共服務有需要職位將繼續保留及招聘
-
-![楊何蓓茵不認為將所有空缺職位削減就可以節省更多開支。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799423_1_20250408154451.jpg&q=90)
-  
-
-公務員事務局局長楊何蓓茵說，有意見認為現時公務員團隊有約一成職位空缺，直接削減就可節省更多開支，她不認為將所有空缺職位削減就可以達到目的，對於公共服務有需要的職位會繼續保留和招聘，例如航空交通控制主任、消防隊長等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799423-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799423-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799423-20250408.htm)
-
----
-
-# 林健鋒稱出口及製造業將步入寒冬　中小企如暫未還款冀銀行勿催迫
-
-![林健鋒形容今次是非常難過的難關，希望政府伸出援手， 幫助港商開拓新興市場及加強國際貿易競爭力。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799422_1_20250408153723.jpg&q=80)
-  
-
-行政會議成員、立法會商界議員林健鋒表示，美國總統特朗普瘋狂加徵關稅的行為，令部分做美國生意的香港出口商和製造商首當其衝。如果關稅問題惡化，他認為，香港出口業及製造業會步入經濟寒冬，他支持行政長官李家超提出在七大方面工作加大力量，以應對美國加徵關稅，亦支持特區政府維持香港自由港的地位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm)
 
 ---

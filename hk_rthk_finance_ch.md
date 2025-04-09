@@ -1,3 +1,26 @@
+# 會計師公會：美國關稅政策對會計行業有危有機
+
+  
+
+香港會計師公會會長歐振興表示，貿易戰影響市場資金部署，短期為金融市場帶來波動，仍需視乎關稅政策後續發展及如何落實 ，但對會計行業是有危有機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm)
+
+---
+
 # 印度央行減息0.25厘　政策立場轉為寬鬆
 
 ![印度央行減息25個基點至6厘，符合市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799582_1_20250409132440.jpg&q=75)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799452-20250408.htm)
-
----
-
-# 貿發局：新貿易走廊可降低關稅影響
-
-![范婉兒（中）表示，香港企業早已準備應對美國關稅措施，認為新貿易走廊可降低關稅影響。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799451_1_20250408183623.jpg&q=75)
-  
-
-貿發局研究總監范婉兒表示，香港企業早已準備應對美國關稅措施，2017至2024年期間，香港對美國出口下跌約9-10%，但整體出口同期增加17%，當中向東盟及中東出口分別增加39%和40%，認為新貿易走廊可降低關稅影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799451-20250408.htm)
 
 ---
