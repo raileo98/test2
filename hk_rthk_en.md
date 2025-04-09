@@ -1,3 +1,27 @@
+# New technologies can speed up housing projects: govt
+
+![Winnie Ho says new technologies can help Hong Kong's construction sector. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799568_1_20250409120045.jpg&q=80)
+  
+
+Secretary for Housing Winnie Ho said new construction technologies can speed up housing projects and that residents living in substandard subdivided flats will not go homeless amid policy changes.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799568-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799568-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799568-20250409.htm)
+
+---
+
 # Fatal fire sweeps through Hebei nursing home
 
 ![Fatal fire sweeps through Hebei nursing home](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799564_1_20250409114419.jpg&q=90)
@@ -1411,29 +1435,5 @@ Britain said it could close hundreds of arms-length government agencies, as it l
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm)
-
----
-
-# HK stocks slump has retail investors seeing red
-
-![Retail investors mostly saw red on the worst day for Hong Kong stocks in nearly three decades. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799281_2_20250407180508.jpg&q=90)
-  
-
-Small-time investors in Hong Kong were left reeling on Monday as US President Donald Trump's punishing tariffs and Beijing's retaliation saw the city's stock market suffer its worst day in almost three decades.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm)
 
 ---

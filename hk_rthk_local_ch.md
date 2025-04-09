@@ -1,3 +1,26 @@
+# 下周六東涌綫來往東涌及欣澳站晚上11時收車　配合路軌改道工程
+
+  
+
+港鐵表示，東涌綫延綫項目東段工程的東涌東站附近路軌改道工程，下星期六深夜展開第二次道岔安装工序，當晚東涌綫來往東涌站至欣澳站的列車服務將於晚上11時許提早完結。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799567-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799567-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799567-20250409.htm)
+
+---
+
 # 「兩元兩折」明年4月推行　孫玉菡稱提早約5個月節省2.6億元
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799557_1_20250409111555.jpg&q=90)
@@ -1421,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799397-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799397-20250408.htm)
-
----
-
-# 李家超：美濫施關稅影響全球不同國家和地區　香港人可克服挑戰
-
-![李家超表示，美國濫施關稅影響全球不同國家和地區，破壞世界經貿秩序，為世界帶來極大風險和不穩定性。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799394_1_20250408130211.jpg&q=90)
-  
-
-行政長官李家超表示，美國濫施關稅影響全球不同國家和地區，破壞世界經貿秩序，為世界帶來極大風險和不穩定性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799394-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799394-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799394-20250408.htm)
 
 ---

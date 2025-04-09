@@ -1,3 +1,27 @@
+# New technologies can speed up housing projects: govt
+
+![Winnie Ho says new technologies can help Hong Kong's construction sector. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799568_1_20250409120045.jpg&q=80)
+  
+
+Secretary for Housing Winnie Ho said new construction technologies can speed up housing projects and that residents living in substandard subdivided flats will not go homeless amid policy changes.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799568-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799568-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799568-20250409.htm)
+
+---
+
 # HK exporters 'furious over Trump tariffs'
 
 ![Jeffrey Lam says US tariffs move has had a great impact on cash flow at many Hong Kong companies. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799561_1_20250409111723.jpg&q=90)
@@ -1411,29 +1435,5 @@ Executive Council convenor Regina Ip on Wednesday said she believes new police c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798621-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798621-20250402.htm)
-
----
-
-# National security among new police chief's priorities
-
-![Joe Chow says one of his priorities is to enhance public awareness of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798611_1_20250402141242.jpg&q=80)
-  
-
-Newly appointed Commissioner of Police Joe Chow has vowed to prioritise safeguarding national security, modernising law enforcement and consolidating team culture in the force.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm)
 
 ---

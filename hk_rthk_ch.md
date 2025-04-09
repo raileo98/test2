@@ -1,3 +1,26 @@
+# 下周六東涌綫來往東涌及欣澳站晚上11時收車　配合路軌改道工程
+
+  
+
+港鐵表示，東涌綫延綫項目東段工程的東涌東站附近路軌改道工程，下星期六深夜展開第二次道岔安装工序，當晚東涌綫來往東涌站至欣澳站的列車服務將於晚上11時許提早完結。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799567-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799567-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799567-20250409.htm)
+
+---
+
 # 緬甸大地震增至逾3600人死亡　中國公民6死13傷
 
 ![緬甸大地震增至超過3600人死亡，超過5000人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799566_1_20250409115358.jpg&q=80)
@@ -1412,31 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799490-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799490-20250408.htm)
-
----
-
-# Coldplay演唱會散場後約半小時大批觀眾於園區排隊離開
-
-![散場後約半小時，大批觀眾在園區排隊離場。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_1_20250408233935.jpg&q=85)
-![樂隊主音Chris Martin用廣東話同觀眾打招呼，他說很開心來到香港，贏得全場歡呼。（Coldplay 社交平台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_2_20250408233935.jpg&q=90)
-![本港女團COLLAR成員邱彥筒出任暖場嘉賓，同時與Coldplay在台上合唱。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_3_20250408233935.jpg&q=90)
-  
-
-英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，在晚上約10時半結束，散場後約半小時，大批觀眾在園區排隊離場，秩序大致良好。港鐵屯馬綫班次進一步加密至約2.5分鐘一班車，東鐵綫北行亦相應加密班次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm)
 
 ---
