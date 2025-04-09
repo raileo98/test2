@@ -1,3 +1,27 @@
+# 日股及台股跌幅擴至近5%至逾6%　日圓及金價升約1%
+
+![日股及台股跌幅擴大至近5%至6%以上。南韓股市跌1.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799576_1_20250409125307.jpg&q=90)
+  
+
+美國的對等關稅生效，金融市場波動加大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799576-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799576-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799576-20250409.htm)
+
+---
+
 # 恒指半日跌312點
 
 ![恒指半日收報19815點，跌312點，跌幅1.55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799571_1_20250409121028.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799444-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799444-20250408.htm)
-
----
-
-# 行會通過電車加價5月12日生效　12歲或以上票價加至3.3元
-
-![政府表示已考慮到所有相關因素，包括電車公司當前的財政狀況及未來的財政預測。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799438_1_20250408165444.jpg&q=90)
-  
-
-行政長官會同行政會議同意電車公司加價，新收費5月12日起生效，加幅6.7%至15%。12歲或以上人士票價加0.3元至3.3元；小童車費加0.1元至1.6元；65歲或以上人士加0.2元至1.5元。月票維持260元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm)
 
 ---

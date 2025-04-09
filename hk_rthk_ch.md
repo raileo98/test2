@@ -1,3 +1,27 @@
+# 日股及台股跌幅擴至近5%至逾6%　日圓及金價升約1%
+
+![日股及台股跌幅擴大至近5%至6%以上。南韓股市跌1.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799576_1_20250409125307.jpg&q=90)
+  
+
+美國的對等關稅生效，金融市場波動加大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799576-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799576-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799576-20250409.htm)
+
+---
+
 # 海關稱致力打擊堵截危害國家安全物品流入香港　X光機為重要夥伴
 
 ![X光機是海關維護國家安全工作上的重要夥伴，更象徵海關持續運用各類型高科技儀器，進行日常客運及貨運的清關工作。（保安局片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799575_1_20250409123320.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799496-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799496-20250408.htm)
-
----
-
-# Coldplay演唱會完場後約一小時　全部觀眾大致離開園區
-
-![英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，在晚上約10時半結束。(陳曉筠攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799495_1_20250409004752.jpg&q=90)
-  
-
-英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，在晚上約10時半結束，散場後約一小時，所有觀眾已大致離開園區，秩序良好。港鐵表示演唱會結束後，港鐵加密屯馬綫班次至早上繁忙時間相若水平，約2至3分鐘一班車，大部分乘客到達啟德及宋皇臺站月台後，都能登上第一班車前往目的地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm)
 
 ---
