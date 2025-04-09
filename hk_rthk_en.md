@@ -1,3 +1,27 @@
+# China condemns US bill that threatens HKETOs
+
+![Beijing says certain US politicians should stop interfering in Hong Kong affairs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799653_1_20250409201808.jpg&q=85)
+  
+
+Beijing on Wednesday denounced the reintroduction of a United States bill that threatens closures of Hong Kong's Economic and Trade Offices (ETO) in the country.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799653-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799653-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799653-20250409.htm)
+
+---
+
 # Beijing announces 50pc tariff increase on US goods
 
 ![China is to impose 84 percent tariffs on US goods from April 10. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799644_1_20250409193243.jpg&q=85)
@@ -1411,29 +1435,5 @@ Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after p
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm)
-
----
-
-# PBOC backs sovereign fund in boosting market stability
-
-![The Shanghai Composite Index plunged 7 percent on Monday in its worst day in five years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799347_1_20250408085608.jpg&q=90)
-  
-
-China's central bank said on Tuesday it supported sovereign wealth fund Central Huijin Investment increasing its holdings in stock market index funds.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799347-20250408.htm)
 
 ---
