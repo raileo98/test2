@@ -1,5 +1,76 @@
+# 運輸署稱到牌照事務處申請牌照或續牌須帶地址證明
+
+  
+
+運輸署在社交平台表示，到牌照事務處申請或續領牌照一定要帶地址證明，網上申請則毋須上載住址證明。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799553-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799553-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799553-20250409.htm)
+
+---
+
+# 全運會及立會選舉年底舉行　曾國衞稱兩項宣傳一併進行成效更顯著
+
+  
+
+第15屆全國運動會及立法會換屆選舉分別在今年11月及12月舉行，政制及內地事務局局長曾國衞表示，政府正研究將兩項宣傳工作一併進行，相信成效更為顯著。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799552-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799552-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799552-20250409.htm)
+
+---
+
+# 恒指跌幅收窄至不足200點
+
+![恒指較早時報20006點，跌120點，跌幅0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799547_1_20250409101543.jpg&q=65)
+  
+
+恒指低開逾600點後跌幅一度擴至超過860點，恒指低見19260點，失守250天牛熊分界線，其後跌幅顯著收窄，較早時報20006點，跌120點，跌幅0.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799547-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799547-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799547-20250409.htm)
+
+---
+
 # 林宣武指大幅增關稅構成很大打擊　中小企面對很大壓力
 
+![林宣武指中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799543_1_20250409102325.jpg&q=90)
   
 
 香港付貨人協會主席林宣武說面對關稅戰，特區政府已盡力協助企業，但中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產，但這個做法不知要「拖幾耐」，面對非常大的壓力。
@@ -23,7 +94,7 @@
 
 # 林健鋒稱港商面對美國徵稅感憤怒和無奈　部分企業到危急存亡之秋
 
-![林健鋒說，部分企業已到危急存亡之秋，希望銀行可以協助渡過難關。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799540_1_20250409101756.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799540_1_20250409101756.jpg&q=90)
   
 
 美國白宮證實會對中國部分貨品徵收104%關稅，行會成員、立法會商界議員林健鋒形容美國現時的做法是「大石砸死蟹」，港商非常憤怒，但亦非常無奈。面對一個如此高的稅率，即使供應鏈重組，成本都會劇增。現時不少企業面對貨品出不到，即使製造完成但都收不到錢，大大影響現金流，與美國做生意的商家是真正步入寒冬。
@@ -1372,77 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm)
-
----
-
-# 李家超：爭取機會為網紅提供可行支援　令世界各地認識香港
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799369_1_20250408104541.jpg&q=85)
-  
-
-美國網紅 IShowSpeed日前來港，行政長官李家超表示，很關注Speed來香港進行直播，對方有很多「粉絲」，可以利用任何機會去宣傳香港，他相信大家都很重視。旅發局曾經聯絡Speed的安排人，表示會提供任何支援，Speed方面事後沒有找旅發局，亦沒有要求政府做任何事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm)
-
----
-
-# 李家超：特區救援隊表現無私　期待完成任務後安全返港
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799368_1_20250408102616.jpg&q=90)
-  
-
-特區政府救援隊正在緬甸地震災區協助搜救，行政長官李家超說，對於救援隊的專業救援工作引以為傲，隊伍聯同中國救援隊成功救出受困災民感到鼓舞。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm)
-
----
-
-# 李家超：加快融入國家發展大局　與更多國家簽訂自貿協定
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799367_1_20250408102452.jpg&q=90)
-  
-
-行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm)
 
 ---

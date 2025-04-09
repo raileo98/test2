@@ -1,3 +1,27 @@
+# Chai-yan, elder daughter of CY Leung, dies at 33
+
+![Chai-yan, elder daughter of CY Leung, dies at 33](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799548_1_20250409101920.jpg&q=90)
+  
+
+Leung Chai-yan, the elder daughter of former SAR chief executive CY Leung, has died at the age of 33.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799548-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799548-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799548-20250409.htm)
+
+---
+
 # Fans delight as Coldplay kick off HK tour
 
 ![Fans begin arriving at the Kai Tak Stadium even before the doors open to the majority of the public at 5pm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799473_1_20250408193720.jpg&q=90)
@@ -1411,29 +1435,5 @@ Secretary for Housing Winnie Ho on Wednesday said authorities are rolling out ab
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798574-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798574-20250402.htm)
-
----
-
-# Fo Tan murder suspect arrested in Thailand
-
-![The 25-year-old man who was wanted by SAR police has been arrested in Pattaya. Photo courtesy of Thailand's Immigration Bureau.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798572_1_20250402103000.jpg&q=90)
-  
-
-A 25-year-old Hong Kong man wanted by the police for his alleged involvement in a murder in Fo Tan last month has been arrested in Pattaya, Thailand.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798572-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798572-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798572-20250402.htm)
 
 ---

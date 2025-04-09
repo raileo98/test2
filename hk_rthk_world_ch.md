@@ -1,3 +1,27 @@
+# 多米尼加夜總會屋頂坍塌事故增至最少79死
+
+![多米尼加首都聖多明各一間夜總會屋頂坍塌事故。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799546_1_20250409102359.jpg&q=85)
+  
+
+多米尼加首都聖多明各一間夜總會屋頂坍塌事故，增至最少79人死亡，死者包括多米尼加蒙特克里斯蒂省省長及美國職棒大聯盟退役球星，過百人送院。事故原因仍在調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799546-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799546-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799546-20250409.htm)
+
+---
+
 # 李在明辭去共同民主黨黨魁職務　料準備參選總統
 
 ![韓聯社報道，預料李在明最快會在明日宣布參選總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799542_1_20250409100124.jpg&q=90)
@@ -24,6 +48,7 @@
 
 # 林宣武指大幅增關稅構成很大打擊　中小企面對很大壓力
 
+![林宣武指中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799543_1_20250409102325.jpg&q=90)
   
 
 香港付貨人協會主席林宣武說面對關稅戰，特區政府已盡力協助企業，但中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產，但這個做法不知要「拖幾耐」，面對非常大的壓力。
@@ -47,7 +72,7 @@
 
 # 林健鋒稱港商面對美國徵稅感憤怒和無奈　部分企業到危急存亡之秋
 
-![林健鋒說，部分企業已到危急存亡之秋，希望銀行可以協助渡過難關。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799540_1_20250409101756.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799540_1_20250409101756.jpg&q=90)
   
 
 美國白宮證實會對中國部分貨品徵收104%關稅，行會成員、立法會商界議員林健鋒形容美國現時的做法是「大石砸死蟹」，港商非常憤怒，但亦非常無奈。面對一個如此高的稅率，即使供應鏈重組，成本都會劇增。現時不少企業面對貨品出不到，即使製造完成但都收不到錢，大大影響現金流，與美國做生意的商家是真正步入寒冬。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799317-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799317-20250408.htm)
-
----
-
-# 歐盟：本月15日起實施第一輪對美反制關稅
-
-![謝夫喬維奇表示，歐盟準備動用一切貿易防禦手段，應對美國關稅衝擊。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799315_1_20250408002405.jpg&q=90)
-  
-
-歐盟宣布，本月15日起實施第一輪對美反制關稅，下月15日起實施第二輪。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799315-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799315-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799315-20250408.htm)
 
 ---

@@ -1,3 +1,51 @@
+# Zverev suffers shock exit at Monte-Carlo Masters
+
+![Alexander Zverev crashed out in his opening match against Italy's Matteo Berrettini. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799545_1_20250409100453.jpg&q=90)
+  
+
+Top seed Alexander Zverev crashed out in his opening match of the Monte-Carlo Masters with Italy's Matteo Berrettini as defending champion Stefanos Tsitsipas and Britain's Jack Draper both advanced.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799545-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799545-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799545-20250409.htm)
+
+---
+
+# Late Frattesi strike gives Inter edge over Bayern
+
+![Inter Milan seized control with a dramatic 2-1 victory over Bayern Munich. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799544_1_20250409095949.jpg&q=85)
+  
+
+An 88th-minute Davide Frattesi goal took Inter Milan to a 2-1 win at Bayern Munich, giving the Italians the edge after the first leg of their Champions League quarter-final.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799544-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799544-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799544-20250409.htm)
+
+---
+
 # Arsenal stuns Real Madrid with Rice's free-kick magic
 
 ![Arsenal delivered a dominant 3-nil victory against reigning titleholders Real Madrid. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799541_1_20250409095732.jpg&q=85)
@@ -1398,53 +1446,5 @@ World number one Aryna Sabalenka powered her way to the Miami Open title on Satu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm)
-
----
-
-# Newcastle holding parade to celebrate League Cup win
-
-![The Toon Army had waited 70 years to see their beloved team lift a domestic trophy. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798039_1_20250329194334.jpg&q=70)
-  
-
-Ending a 70-year wait for a domestic trophy deserves an official party.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798039-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798039-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798039-20250329.htm)
-
----
-
-# Pistons top Cavs to secure winning season
-
-![Tim Hardaway Jr connected on seven of 11 from three-point range for Detroit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798019_1_20250329151714.jpg&q=90)
-  
-
-Tim Hardaway Jr scored 32 points to lead Detroit to a 133-122 victory over the Eastern Conference-leading Cleveland Cavaliers on Friday, a triumph that assured the Pistons of their first winning NBA season since 2016.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm)
 
 ---

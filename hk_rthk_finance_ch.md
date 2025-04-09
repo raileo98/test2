@@ -1,5 +1,54 @@
+# 新西蘭減息0.25厘　稱全球貿易壁壘為經濟帶來下行風險
+
+![新西蘭央行將指標利率下調0.25厘，降至3.5厘。（新西蘭央行圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799550_1_20250409103008.jpg&q=90)
+  
+
+新西蘭央行將指標利率下調0.25厘，降至3.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799550-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799550-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799550-20250409.htm)
+
+---
+
+# 恒指跌幅收窄至不足200點
+
+![恒指較早時報20006點，跌120點，跌幅0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799547_1_20250409101543.jpg&q=65)
+  
+
+恒指低開逾600點後跌幅一度擴至超過860點，恒指低見19260點，失守250天牛熊分界線，其後跌幅顯著收窄，較早時報20006點，跌120點，跌幅0.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799547-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799547-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799547-20250409.htm)
+
+---
+
 # 林宣武指大幅增關稅構成很大打擊　中小企面對很大壓力
 
+![林宣武指中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799543_1_20250409102325.jpg&q=90)
   
 
 香港付貨人協會主席林宣武說面對關稅戰，特區政府已盡力協助企業，但中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產，但這個做法不知要「拖幾耐」，面對非常大的壓力。
@@ -71,7 +120,7 @@
 
 # 林健鋒稱港商面對美國徵稅感憤怒和無奈　部分企業到危急存亡之秋
 
-![林健鋒說，部分企業已到危急存亡之秋，希望銀行可以協助渡過難關。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799540_1_20250409101756.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799540_1_20250409101756.jpg&q=90)
   
 
 美國白宮證實會對中國部分貨品徵收104%關稅，行會成員、立法會商界議員林健鋒形容美國現時的做法是「大石砸死蟹」，港商非常憤怒，但亦非常無奈。面對一個如此高的稅率，即使供應鏈重組，成本都會劇增。現時不少企業面對貨品出不到，即使製造完成但都收不到錢，大大影響現金流，與美國做生意的商家是真正步入寒冬。
@@ -1389,52 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm)
-
----
-
-# 發改委召開座談會　聽取5間民企應對美方加徵關稅建議
-
-  
-
-在北京，國家發改委召開座談會，邀請滴滴出行、天合光能、中基寧波等5間民營企業參與，聽取應對美方加徵關稅的舉措及建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm)
-
----
-
-# 韓股靠穩收市
-
-![首爾綜合指數收市報2334點，升6點，升幅0.26%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799414_1_20250408144219.jpg&q=90)
-  
-
-韓股靠穩收市。首爾綜合指數收市報2334點，升6點，升幅0.26%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799414-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799414-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799414-20250408.htm)
 
 ---

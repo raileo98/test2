@@ -1,3 +1,145 @@
+# 運輸署稱到牌照事務處申請牌照或續牌須帶地址證明
+
+  
+
+運輸署在社交平台表示，到牌照事務處申請或續領牌照一定要帶地址證明，網上申請則毋須上載住址證明。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799553-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799553-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799553-20250409.htm)
+
+---
+
+# 全運會及立會選舉年底舉行　曾國衞稱兩項宣傳一併進行成效更顯著
+
+  
+
+第15屆全國運動會及立法會換屆選舉分別在今年11月及12月舉行，政制及內地事務局局長曾國衞表示，政府正研究將兩項宣傳工作一併進行，相信成效更為顯著。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799552-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799552-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799552-20250409.htm)
+
+---
+
+# 多米尼加夜總會屋頂坍塌事故增至最少79死
+
+![多米尼加首都聖多明各一間夜總會屋頂坍塌事故。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799546_1_20250409102359.jpg&q=85)
+  
+
+多米尼加首都聖多明各一間夜總會屋頂坍塌事故，增至最少79人死亡，死者包括多米尼加蒙特克里斯蒂省省長及美國職棒大聯盟退役球星，過百人送院。事故原因仍在調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799546-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799546-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799546-20250409.htm)
+
+---
+
+# 新西蘭減息0.25厘　稱全球貿易壁壘為經濟帶來下行風險
+
+![新西蘭央行將指標利率下調0.25厘，降至3.5厘。（新西蘭央行圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799550_1_20250409103008.jpg&q=90)
+  
+
+新西蘭央行將指標利率下調0.25厘，降至3.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799550-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799550-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799550-20250409.htm)
+
+---
+
+# 台灣宜蘭縣發生5.8級地震　台北有明顯震感
+
+![台灣宜蘭縣發生5.8級地震　台北有明顯震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799549_1_20250409102149.jpg&q=90)
+  
+
+台灣氣象部門表示，台灣東北部宜蘭縣早上9時53分發生5.8 級地震，震源深度72.4公里，震央位於宜蘭縣蘇澳鎮，台北亦有明顯震感，暫時未有傷亡及損毀報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799549-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799549-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799549-20250409.htm)
+
+---
+
+# 恒指跌幅收窄至不足200點
+
+![恒指較早時報20006點，跌120點，跌幅0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799547_1_20250409101543.jpg&q=65)
+  
+
+恒指低開逾600點後跌幅一度擴至超過860點，恒指低見19260點，失守250天牛熊分界線，其後跌幅顯著收窄，較早時報20006點，跌120點，跌幅0.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799547-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799547-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799547-20250409.htm)
+
+---
+
 # 李在明辭去共同民主黨黨魁職務　料準備參選總統
 
 ![韓聯社報道，預料李在明最快會在明日宣布參選總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799542_1_20250409100124.jpg&q=90)
@@ -24,6 +166,7 @@
 
 # 林宣武指大幅增關稅構成很大打擊　中小企面對很大壓力
 
+![林宣武指中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799543_1_20250409102325.jpg&q=90)
   
 
 香港付貨人協會主席林宣武說面對關稅戰，特區政府已盡力協助企業，但中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產，但這個做法不知要「拖幾耐」，面對非常大的壓力。
@@ -95,7 +238,7 @@
 
 # 林健鋒稱港商面對美國徵稅感憤怒和無奈　部分企業到危急存亡之秋
 
-![林健鋒說，部分企業已到危急存亡之秋，希望銀行可以協助渡過難關。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799540_1_20250409101756.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799540_1_20250409101756.jpg&q=90)
   
 
 美國白宮證實會對中國部分貨品徵收104%關稅，行會成員、立法會商界議員林健鋒形容美國現時的做法是「大石砸死蟹」，港商非常憤怒，但亦非常無奈。面對一個如此高的稅率，即使供應鏈重組，成本都會劇增。現時不少企業面對貨品出不到，即使製造完成但都收不到錢，大大影響現金流，與美國做生意的商家是真正步入寒冬。
@@ -1293,149 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799477-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799477-20250408.htm)
-
----
-
-# 議員關注多少大廈參與「聯廈聯管」　麥美娟指關愛隊協助聯絡業主
-
-![麥美娟指本屆政府非常重視大廈管理工作，下決心希望將工作落實。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799476_1_20250408213847.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟表示，政府最快今年6月在油尖旺、深水埗、九龍城及荃灣推行為期一年的「聯廈聯管」的試驗計劃，協助「三無大廈」和舊式單幢樓宇的業主，共同聘用同一間物業管理公司聯合管理大廈。政府已預留700萬元推行試驗計劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799476-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799476-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799476-20250408.htm)
-
----
-
-# 電車5月12日起加票價　公司稱有助確保電車服務持續營運和發展
-
-![香港電車將繼續致力為全港市民提供安全、環保及便利的出行服務，同時履行保育這項重要的香港歷史文化遺產的責任。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799475_1_20250408213822.jpg&q=85)
-  
-
-行政長官會同行政會議通過電車加價，香港電車公司對此表示歡迎，並指今次票價調整將大大有助於確保電車服務能持續營運和發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799475-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799475-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799475-20250408.htm)
-
----
-
-# 新一輪「富戶政策」申報周期展開　約21萬租戶須５月底前交表
-
-![房委會已向約21萬納入新一輪「富戶政策」申報周期的公屋租戶派發「富戶政策」申報表及「居住情況申報表」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799474_1_20250408213751.jpg&q=90)
-  
-
-房委會已向約21萬納入新一輪「富戶政策」申報周期的公屋租戶派發「富戶政策」申報表及「居住情況申報表」。房委會提醒租戶必須於今年5月31日或之前填妥申報表交回房屋署。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799474-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799474-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799474-20250408.htm)
-
----
-
-# 東方海外上季總收入按年升近17%
-
-![東方海外上季總收入23.14億美元，按年增長16.8%，所有航線的收入都錄得增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799472_1_20250408192403.jpg&q=90)
-  
-
-東方海外首季總收入23.14億美元，按年增長16.8%，所有航線的收入都錄得增長，亞洲區內/澳亞航線收入升逾24%，升幅最大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799472-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799472-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799472-20250408.htm)
-
----
-
-# 李強：中歐應加強溝通協調　維護自由開放貿易投資
-
-![國務院總理李強說中歐應加強溝通協調、擴大相互開放，維護自由開放的貿易投資。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799470_1_20250408191709.jpg&q=90)
-  
-
-國務院總理李強與歐盟委員會主席馮德萊恩通電話，討論貿易和中歐關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm)
-
----
-
-# 捷克總理社交平台帳號被黑客攻擊並發布虛假資訊
-
-![菲亞拉的社交平台帳號今早被黑客攻擊，並發布虛假資訊。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799471_1_20250408191732.jpg&q=90)
-  
-
-捷克總理菲亞拉的社交平台「X」帳號被黑客攻擊，並發布虛假資訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799471-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799471-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799471-20250408.htm)
 
 ---

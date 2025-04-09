@@ -1,3 +1,27 @@
+# 台灣宜蘭縣發生5.8級地震　台北有明顯震感
+
+![台灣宜蘭縣發生5.8級地震　台北有明顯震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799549_1_20250409102149.jpg&q=90)
+  
+
+台灣氣象部門表示，台灣東北部宜蘭縣早上9時53分發生5.8 級地震，震源深度72.4公里，震央位於宜蘭縣蘇澳鎮，台北亦有明顯震感，暫時未有傷亡及損毀報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799549-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799549-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799549-20250409.htm)
+
+---
+
 # 中國駐巴拿馬使館︰中國從未干涉運河事務　美方應停止歪曲污蔑
 
 ![中國駐巴拿馬使館發言人說，中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799532_1_20250409091302.jpg&q=75)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798961-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798961-20250404.htm)
-
----
-
-# 中方暫停6家美國企業產品輸華資質
-
-![中方暫停6家美國企業產品輸華資質](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798962_1_20250404191436.jpg&q=90)
-  
-
-國家海關總署公布，暫停6家美國企業產品輸華資質。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798962-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798962-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798962-20250404.htm)
 
 ---

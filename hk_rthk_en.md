@@ -1,3 +1,75 @@
+# Chai-yan, elder daughter of CY Leung, dies at 33
+
+![Chai-yan, elder daughter of CY Leung, dies at 33](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799548_1_20250409101920.jpg&q=90)
+  
+
+Leung Chai-yan, the elder daughter of former SAR chief executive CY Leung, has died at the age of 33.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799548-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799548-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799548-20250409.htm)
+
+---
+
+# Zverev suffers shock exit at Monte-Carlo Masters
+
+![Alexander Zverev crashed out in his opening match against Italy's Matteo Berrettini. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799545_1_20250409100453.jpg&q=90)
+  
+
+Top seed Alexander Zverev crashed out in his opening match of the Monte-Carlo Masters with Italy's Matteo Berrettini as defending champion Stefanos Tsitsipas and Britain's Jack Draper both advanced.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799545-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799545-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799545-20250409.htm)
+
+---
+
+# Late Frattesi strike gives Inter edge over Bayern
+
+![Inter Milan seized control with a dramatic 2-1 victory over Bayern Munich. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799544_1_20250409095949.jpg&q=85)
+  
+
+An 88th-minute Davide Frattesi goal took Inter Milan to a 2-1 win at Bayern Munich, giving the Italians the edge after the first leg of their Champions League quarter-final.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799544-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799544-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799544-20250409.htm)
+
+---
+
 # Arsenal stuns Real Madrid with Rice's free-kick magic
 
 ![Arsenal delivered a dominant 3-nil victory against reigning titleholders Real Madrid. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799541_1_20250409095732.jpg&q=85)
@@ -1363,77 +1435,5 @@ Home affairs minister Alice Mak on Monday defended some district councillors who
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm)
-
----
-
-# Power bank ban doesn't leave some air passengers wired
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799260_1_20250407163157.jpg&q=80)
-  
-
-From Monday, airline passengers have been banned from using and charging their power banks during flights and storing portable chargers in overhead compartments.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799260-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799260-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799260-20250407.htm)
-
----
-
-# Black Monday hit for stocks on tariffs chaos
-
-![The Hang Seng Index ends 13.22 percent down at 19,828.30. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799241_4_20250407172158.jpg&q=85)
-  
-
-Asian and European equities collapsed on a black Monday for markets after China hammered the United States with its own hefty tariffs, ramping up a trade war many fear could spark a recession.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799241-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799241-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799241-20250407.htm)
-
----
-
-# 'Govt will stay vigilant over market changes'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799235_1_20250407134313.jpg&q=90)
-  
-
-Under Secretary for Financial Services and the Treasury Joseph Chan said on Monday the government will pay close attention to the stock market and ensure that the city remains financially stable.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm)
 
 ---
