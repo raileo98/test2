@@ -1,3 +1,27 @@
+# Wall Street soars on Trump tariff pause
+
+![All three major indices on Wall Street made dramatic gains after Donald Trump changed course. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799682_1_20250410051523.jpg&q=90)
+  
+
+Wall Street stocks rocketed to close solidly higher on Wednesday, with dramatic advances on all three major indexes as US President Donald Trump delayed steep new tariffs hours after they took effect.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799682-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799682-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799682-20250410.htm)
+
+---
+
 # Deaths mount in Dominican Republic nightclub disaster
 
 ![Rescue teams working at the Jet Set nightclub a day after the collapse of its roof in Santo Domingo. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799679_1_20250410034524.jpg&q=60)
@@ -1411,29 +1435,5 @@ US Health Secretary Robert F Kennedy Jr said he plans to tell the Centers for Di
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799385-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799385-20250408.htm)
-
----
-
-# World temps near record highs in March: scientists
-
-![The Copernicus Climate Change Service said Europe saw the hottest March ever recorded. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799381_1_20250408111344.jpg&q=85)
-  
-
-Global temperatures hovered at historic highs in March, Europe's climate monitor said on Tuesday, prolonging an extraordinary heat streak that has tested scientific expectations.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm)
 
 ---

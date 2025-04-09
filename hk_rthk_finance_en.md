@@ -1,3 +1,27 @@
+# Wall Street soars on Trump tariff pause
+
+![All three major indices on Wall Street made dramatic gains after Donald Trump changed course. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799682_1_20250410051523.jpg&q=90)
+  
+
+Wall Street stocks rocketed to close solidly higher on Wednesday, with dramatic advances on all three major indexes as US President Donald Trump delayed steep new tariffs hours after they took effect.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799682-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799682-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799682-20250410.htm)
+
+---
+
 # Hang Seng Index bucks downward trend
 
 ![The Hang Seng Index closes up 0.68 percent on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799622_1_20250409170856.jpg&q=75)
@@ -1412,29 +1436,5 @@ The Trade Development Council said Hong Kong exporters are well-prepared for the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm)
-
----
-
-# 'Art Basel, Art Central a barometer for art market'
-
-![Daniel Kwok, an independent art consultant, says that art fairs and auctions will give the city's art market a boost. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797660_1_20250327130541.jpg&q=90)
-  
-
-An expert has said that ongoing art shows and upcoming auctions will give the mainland and Hong Kong art scene a boost, and serve as a barometer for future market performance.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm)
 
 ---
