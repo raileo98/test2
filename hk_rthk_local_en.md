@@ -3,7 +3,7 @@
 ![The government holds a welcome-home ceremony for the SAR rescue team at Chek Lap Kok airport. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799667_1_20250409230545.jpg&q=90)
   
 
-The SAR's search and rescue team on Wednesday night returned home from Myanmar, where they supported rescue efforts following a devastating earthquake that struck the country last month.
+The SAR's search and rescue team on Wednesday night returned home from Myanmar, where they supported relief efforts following a devastating earthquake that struck the country last month.
 
   
 
