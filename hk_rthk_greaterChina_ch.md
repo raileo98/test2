@@ -1,3 +1,27 @@
+# 商務部將十多間美國企業列出口管制和不可靠實體清單
+
+![商務部公布，將12家美國實體列入出口管制管控名單，將6家涉對台軍售的美國企業列入不可靠實體清單。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799643_1_20250409192259.jpg&q=90)
+  
+
+商務部公布，將12家美國實體列入出口管制管控名單，禁止對其出口兩用物項。這些實體存在可能危害中國國家安全和利益的行為，任何出口經營者不得違反上述規定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799643-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799643-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799643-20250409.htm)
+
+---
+
 # 商務部：中方在世貿組織追加起訴美國升級對華關稅
 
 ![商務部指，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799642_1_20250409191832.jpg&q=80)
@@ -1410,30 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm)
-
----
-
-# 內地民間「村晚」盛行    發起人稱可振興鄉村文旅經濟
-
-![廣東恩平今年初舉辦了一場由當地居民及大學生籌辦的鄉村文藝晚會「村晚」。（受訪者社交平台截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799179_1_20250407085829.jpg&q=90)
-![鄭偉庭（左）說，村晚讓更多人認識他的文創作品；李勁新（中）認為可好好利用鄉村自然資源發展休閒旅遊；劉景峰（右）說，民間村晚有助加強村民凝聚力。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799179_3_20250407091014.jpg&q=90)
-  
-
-廣東當局表示，今年是廣東「百縣千鎮萬村高質量發展工程」、簡稱「百千萬工程」的重要節點，要全面推進鄉村振興，包括推廣文旅、辦好「廣東村晚」、即鄉村文藝晚會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799179-20250407.htm)
 
 ---
