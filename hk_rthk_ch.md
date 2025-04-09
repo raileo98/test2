@@ -1,3 +1,26 @@
+# 特區救援隊完成在緬甸災區搜救行動　收拾裝備準備回港
+
+  
+
+消防處表示，特區救援隊經過連日在緬甸地震災區的搜救行動，正忙於收拾裝備，準備回港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799594-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799594-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799594-20250409.htm)
+
+---
+
 # 韓股低收約2%
 
 ![首爾綜合指數收市報2293點，跌40點，跌幅1.74%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799593_1_20250409144601.jpg&q=90)
