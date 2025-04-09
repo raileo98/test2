@@ -1,3 +1,27 @@
+# 劉兆佳稱白皮書較中性沒有肆意批評美國　冀美方了解互利共贏本質
+
+![劉兆佳相信，中美貿易戰仍會持續一段時間，可能出現惡性循環。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799630_1_20250409175613.jpg&q=80)
+  
+
+國新辦發表《關於中美經貿關係若干問題的中方立場》白皮書，重申貿易戰沒有贏家，希望中美雙方通過平等對話磋商解決問題。全國港澳研究會顧問劉兆佳認為，中方希望通過白皮書，用數據及說理方式闡述中國立場，說明中美貿易實際上是相對比較平衡，表明中方無意打貿易戰，美國亦沒有理由對中國展開關稅戰，嚴重損害雙方經濟貿易，以至整體關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799630-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799630-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799630-20250409.htm)
+
+---
+
 # 國防部堅決反對G7及歐盟言論　重申台灣問題不容任何外來干涉
 
 ![張曉剛說，東部戰區以雷霆之勢打擊「台獨」分裂勢力囂張氣焰，是對台海和平穩定和台灣同胞安全福祉的堅定守護。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799623_1_20250409171321.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm)
-
----
-
-# 中國國際救援隊聯同中國救援隊及中國香港救援隊續於緬甸災區義診
-
-![央視新聞報道，中國國際救援隊聯同中國救援隊及中國香港救援隊，繼續在緬甸曼德勒市受災群眾安置點義診。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799109_1_20250406141841.jpg&q=85)
-  
-
-央視新聞報道，中國國際救援隊聯同中國救援隊及中國香港救援隊，繼續在緬甸曼德勒市受災群眾安置點義診，派出內科、外科、兒科、心理諮詢等專業醫療專家及護士超過20人，以心電圖機、可携式X光機等檢查設備，為災民量血壓及進行超聲波等檢查，並免費發放藥品，昨日共診治180多人次、輔助檢查化驗59人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799109-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799109-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799109-20250406.htm)
 
 ---

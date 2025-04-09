@@ -1,3 +1,27 @@
+# Hezbollah 'ready for talks on disarmament'
+
+![Israeli military exhibit seized Hezbollah weapons, without specifying when and where they were confiscated, near the border with Lebanon last year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799628_1_20250409180051.jpg&q=90)
+  
+
+As calls for Lebanon's Hezbollah to disarm gain momentum, a senior official from the group said it is ready to hold talks with the Lebanese president about its weapons if Israel withdraws from south Lebanon and stops its strikes.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799628-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799628-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799628-20250409.htm)
+
+---
+
 # China 'verifying reports of nationals held in Ukraine'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799609_1_20250409161617.jpg&q=90)
@@ -1411,29 +1435,5 @@ Tesla's worldwide sales tumbled in the first quarter, figures showed on Wednesda
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm)
-
----
-
-# Myanmar junta declares quake ceasefire
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798707_1_20250403032440.jpg&q=50)
-  
-
-Myanmar's junta announced a temporary ceasefire on Wednesday as the death toll from a devastating earthquake rose and desperate survivors pleaded for more help amid frantic scenes of aid distribution.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm)
 
 ---

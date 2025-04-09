@@ -1,3 +1,75 @@
+# 製造及新型工業產業經濟活動前年價值768億　增7.6%
+
+![政府表示，當中涵蓋的經濟活動，包括食品製造、晶片設計、人工智能模型開發及應用等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799631_1_20250409175858.jpg&q=80)
+  
+
+政府公布，本港「製造及新型工業產業」的經濟活動涵蓋範圍及表現，2023年有關增加價值為768億元，較前一年上升7.6%，約佔本地生產總值的2.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799631-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799631-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799631-20250409.htm)
+
+---
+
+# 在岸人民幣低收130點子　創逾17年新低
+
+![在岸人民幣跌至逾17年新低，收報7.3498兌1美元，較昨日收市跌130點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799629_1_20250409175228.jpg&q=70)
+  
+
+在岸人民幣跌至逾17年新低，收報7.3498兌1美元，較昨日收市跌130點子。中間價報7.2066兌1美元，下調28點子，連跌5日，創19個月新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799629-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799629-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799629-20250409.htm)
+
+---
+
+# 劉兆佳稱白皮書較中性沒有肆意批評美國　冀美方了解互利共贏本質
+
+![劉兆佳相信，中美貿易戰仍會持續一段時間，可能出現惡性循環。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799630_1_20250409175613.jpg&q=80)
+  
+
+國新辦發表《關於中美經貿關係若干問題的中方立場》白皮書，重申貿易戰沒有贏家，希望中美雙方通過平等對話磋商解決問題。全國港澳研究會顧問劉兆佳認為，中方希望通過白皮書，用數據及說理方式闡述中國立場，說明中美貿易實際上是相對比較平衡，表明中方無意打貿易戰，美國亦沒有理由對中國展開關稅戰，嚴重損害雙方經濟貿易，以至整體關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799630-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799630-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799630-20250409.htm)
+
+---
+
 # 陳克勤關注人道毀滅或令野豬絶種　謝展寰稱盡量取得平衡
 
 ![環境及生態局表示，本港整體野豬數目由2022年約1830頭，減少至2024年約900頭。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799627_1_20250409174452.jpg&q=80)

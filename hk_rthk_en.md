@@ -1,3 +1,27 @@
+# Hezbollah 'ready for talks on disarmament'
+
+![Israeli military exhibit seized Hezbollah weapons, without specifying when and where they were confiscated, near the border with Lebanon last year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799628_1_20250409180051.jpg&q=90)
+  
+
+As calls for Lebanon's Hezbollah to disarm gain momentum, a senior official from the group said it is ready to hold talks with the Lebanese president about its weapons if Israel withdraws from south Lebanon and stops its strikes.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799628-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799628-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799628-20250409.htm)
+
+---
+
 # Rescue teams return to Beijing from quake-hit Myanmar
 
 ![The teams arrived at the Beijing Capital International Airport at about 4pm. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799620_1_20250409165725.jpg&q=90)
@@ -1411,29 +1435,5 @@ JPMorgan Chase CEO Jamie Dimon warned on Monday that US President Donald Trump's
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799345-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799345-20250408.htm)
-
----
-
-# Philippines volcano sends ash into the air
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799343_1_20250408083655.jpg&q=90)
-  
-
-A volcano in the central Philippines erupted early on Tuesday morning, sending a plume of ash 4,000 metres into the sky and prompting calls for local school cancellations.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm)
 
 ---

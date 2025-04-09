@@ -1,3 +1,51 @@
+# 製造及新型工業產業經濟活動前年價值768億　增7.6%
+
+![政府表示，當中涵蓋的經濟活動，包括食品製造、晶片設計、人工智能模型開發及應用等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799631_1_20250409175858.jpg&q=80)
+  
+
+政府公布，本港「製造及新型工業產業」的經濟活動涵蓋範圍及表現，2023年有關增加價值為768億元，較前一年上升7.6%，約佔本地生產總值的2.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799631-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799631-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799631-20250409.htm)
+
+---
+
+# 在岸人民幣低收130點子　創逾17年新低
+
+![在岸人民幣跌至逾17年新低，收報7.3498兌1美元，較昨日收市跌130點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799629_1_20250409175228.jpg&q=70)
+  
+
+在岸人民幣跌至逾17年新低，收報7.3498兌1美元，較昨日收市跌130點子。中間價報7.2066兌1美元，下調28點子，連跌5日，創19個月新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799629-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799629-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799629-20250409.htm)
+
+---
+
 # 報道：人行指導國有大行暫緩購匯　無意以貨幣大幅貶值應對關稅
 
 ![外電報道，人行近日指導國有大行暫緩買入美元並加強代客購匯審查，避免加劇人民幣匯率調整壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799616_1_20250409164828.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm)
-
----
-
-# 離岸人民幣跌穿7.38水平　創2010年開啟離岸交易以來最低
-
-![離岸人民幣較早時跌穿7.38水平，低見7.3847兌1美元，急挫408點子，創2010年開啟離岸交易以來最低水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799491_1_20250408231939.jpg&q=85)
-  
-
-人民幣匯價顯著下挫，離岸人民幣較早時跌穿7.38水平，低見7.3847兌1美元，急挫408點子，跌幅近0.6%，創2010年開啟離岸交易以來最低水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799491-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799491-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799491-20250408.htm)
-
----
-
-# 兗礦能源擬斥資約140.7億元收購西北礦業51%股權
-
-![兗礦能源計劃收購控股股東山東能源旗下的西北礦業51%股權，涉及交易總額約140.7億元。（港交所截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799488_1_20250408225917.jpg&q=90)
-  
-
-兗礦能源公布，計劃收購控股股東山東能源旗下的西北礦業51%股權。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799488-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799488-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799488-20250408.htm)
 
 ---
