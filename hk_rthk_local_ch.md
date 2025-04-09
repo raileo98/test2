@@ -215,7 +215,7 @@
 
 # 首艘電動渡輪投入服務來往北角及紅磡　充電8小時足夠全日運作
 
-![政府資助由新渡輪試驗營運的第一艘電動渡輪「新明珠39」已投入服務，來往北角至紅磡。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799570_1_20250409123249.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799570_1_20250409123249.jpg&q=90)
   
 
 政府資助由新渡輪試驗營運的第一艘電動渡輪「新明珠39」已投入服務，來往北角至紅磡，可載客約400人。環保署助理署長方健華表示，曾乘搭電動渡輪的市民反應很好，認為較為安靜，震動較少。

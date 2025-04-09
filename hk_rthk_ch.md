@@ -1,3 +1,51 @@
+# 中央召開周邊工作會議　強調要與周邊國家鞏固戰略互信
+
+![會議指出，要以全球視野審視周邊，增強做好周邊工作的責任感使命感。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799589_1_20250409143258.jpg&q=90)
+  
+
+中央周邊工作會議昨天起一連兩天在北京舉行。中共中央總書記、國家主席、中央軍委主席習近平發表講話時強調要聚焦構建周邊命運共同體，努力開創周邊工作新局面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799589-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799589-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799589-20250409.htm)
+
+---
+
+# 美俄代表團將在伊斯坦布爾再會談
+
+![俄方代表團2月底曾在美國駐伊斯坦布爾領事官邸與美方進行會談。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799569_1_20250409124812.jpg&q=80)
+  
+
+美俄代表團將在土耳其伊斯坦布爾就雙邊關係舉行第二輪會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799569-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799569-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799569-20250409.htm)
+
+---
+
 # 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
 
   
@@ -45,30 +93,6 @@
 
 ---
 
-# 文體旅局召開會議統籌黃金周預備工作　羅淑佩籲盡力接待旅客
-
-![文化體育及旅遊局召開會議統籌內地勞動節黃金周旅客訪港預備工作，與各單位代表討論旅客訪港安排。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799584_1_20250409140945.jpg&q=85)
-  
-
-文化體育及旅遊局召開會議，統籌一連五日內地勞動節黃金周期間接待訪港旅客的預備工作。會議由文體旅局局長羅淑佩主持，除警務處、入境處、海關、運輸署及多區民政事務處等部門代表外，多個旅遊相關機構包括旅監局、旅發局、旅議會、西九文化區管理局、主要旅遊景點及酒店業等亦有派員出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm)
-
----
-
 # 會計師公會：美國關稅政策對會計行業有危有機
 
 ![歐振興說，會計業正面臨前所未有的轉型。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799585_1_20250409135536.jpg&q=90)
@@ -90,6 +114,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm)
+
+---
+
+# 文體旅局召開會議統籌黃金周預備工作　羅淑佩籲盡力接待旅客
+
+![文化體育及旅遊局召開會議統籌內地勞動節黃金周旅客訪港預備工作，與各單位代表討論旅客訪港安排。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799584_1_20250409140945.jpg&q=85)
+  
+
+文化體育及旅遊局召開會議，統籌一連五日內地勞動節黃金周期間接待訪港旅客的預備工作。會議由文體旅局局長羅淑佩主持，除警務處、入境處、海關、運輸署及多區民政事務處等部門代表外，多個旅遊相關機構包括旅監局、旅發局、旅議會、西九文化區管理局、主要旅遊景點及酒店業等亦有派員出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm)
 
 ---
 
@@ -335,7 +383,7 @@
 
 # 首艘電動渡輪投入服務來往北角及紅磡　充電8小時足夠全日運作
 
-![政府資助由新渡輪試驗營運的第一艘電動渡輪「新明珠39」已投入服務，來往北角至紅磡。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799570_1_20250409123249.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799570_1_20250409123249.jpg&q=90)
   
 
 政府資助由新渡輪試驗營運的第一艘電動渡輪「新明珠39」已投入服務，來往北角至紅磡，可載客約400人。環保署助理署長方健華表示，曾乘搭電動渡輪的市民反應很好，認為較為安靜，震動較少。

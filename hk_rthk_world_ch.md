@@ -1,3 +1,27 @@
+# 美俄代表團將在伊斯坦布爾再會談
+
+![俄方代表團2月底曾在美國駐伊斯坦布爾領事官邸與美方進行會談。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799569_1_20250409124812.jpg&q=80)
+  
+
+美俄代表團將在土耳其伊斯坦布爾就雙邊關係舉行第二輪會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799569-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799569-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799569-20250409.htm)
+
+---
+
 # 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799325-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799325-20250408.htm)
-
----
-
-# 特朗普稱不考慮暫停加關稅　若中方不撤關稅美方將再加五成
-
-![特朗普說，與中國國家主席習近平關係很好，希望一直保持這種狀態。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799324_1_20250408042611.jpg&q=90)
-  
-
-美國總統特朗普表示，不考慮暫停加徵關稅，強調希望與所有國家達成公平的協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799324-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799324-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799324-20250408.htm)
 
 ---

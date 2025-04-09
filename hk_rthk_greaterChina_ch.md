@@ -1,3 +1,27 @@
+# 中央召開周邊工作會議　強調要與周邊國家鞏固戰略互信
+
+![會議指出，要以全球視野審視周邊，增強做好周邊工作的責任感使命感。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799589_1_20250409143258.jpg&q=90)
+  
+
+中央周邊工作會議昨天起一連兩天在北京舉行。中共中央總書記、國家主席、中央軍委主席習近平發表講話時強調要聚焦構建周邊命運共同體，努力開創周邊工作新局面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799589-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799589-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799589-20250409.htm)
+
+---
+
 # 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
 
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm)
-
----
-
-# 中國出多招反制美國　包括向原產美國的進口商品加34%關稅
-
-![中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798971_1_20250404220458.jpg&q=75)
-  
-
-中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm)
 
 ---
