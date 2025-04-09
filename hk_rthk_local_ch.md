@@ -1,5 +1,78 @@
+# 「兩元兩折」明年4月推行　孫玉菡稱提早約5個月節省2.6億元
+
+![孫玉菡指兩元乘車優惠計劃「兩元兩折」方案，可於明年4月推行，較原先估計提早大約5個月，可額外節省2.6億元。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799557_1_20250409110810.jpg&q=90)
+  
+
+勞工及福利局局長孫玉菡表示，經與八達通公司及公共營辦商磋商後，兩元乘車優惠計劃「兩元兩折」方案，可於明年4月推行，較原先估計提早大約5個月，可額外節省2.6億元。至於「優惠車程設限」方案，局方預計將於「兩元兩折」方案推行約1年後實施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799557-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799557-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799557-20250409.htm)
+
+---
+
+# 何永賢冀規管簡樸房法例年底通過　過渡屋簡約公屋可助須遷出住戶
+
+![何永賢表示，期望今年底通過有關規管簡樸房的法例。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799556_1_20250409110711.jpg&q=80)
+  
+
+政府就簡樸房的規管制度建議方案上月出爐，房屋局局長何永賢表示，有部分意見認為單位內部最低樓面面積應該訂於10平方米，但如果採納，現時市面會有50%劏房不符合標準，需要改裝，她質疑社會是否承受得到，而按目前訂於8平方米，不符標準的單位有約26%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799556-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799556-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799556-20250409.htm)
+
+---
+
+# 葉劉淑儀稱如貿易戰持續或達兩年　全球或陷入衰退實體經濟萎縮
+
+![葉劉淑儀建議政府可以進一步考慮與最受打擊的行業，商討可以提供甚麼具體措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799554_1_20250409110731.jpg&q=90)
+  
+
+美國向多個貿易夥伴加徵關稅，又會對中國部分貨品徵收104%關稅。行政會議召集人，新民黨主席葉劉淑儀在一個電台節目說，很多地方的貿易在關稅戰下已暫停，大家都觀望未來發展。她又說，行政長官昨日公布會在七方面加大力量支援企業，都是政策方向，建議政府可以進一步考慮與最受打擊的行業，商討可以提供甚麼具體措施，例如出口信貸保險實際可以如何作更好安排。另外，美元轉弱，港元亦轉弱，估計有利吸引遊客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm)
+
+---
+
 # 運輸署稱到牌照事務處申請牌照或續牌須帶地址證明
 
+![署方表示，市民只須將電子帳單，加入「智方便」的「填表通」個人資料，在網上申請牌照時，「智方便」會自動以相關資料作為地址證明，毋須再上載。（運輸署社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799553_1_20250409105147.jpg&q=90)
   
 
 運輸署在社交平台表示，到牌照事務處申請或續領牌照一定要帶地址證明，網上申請則毋須上載住址證明。
@@ -23,6 +96,7 @@
 
 # 全運會及立會選舉年底舉行　曾國衞稱兩項宣傳一併進行成效更顯著
 
+![曾國衞相信兩項盛事彼此都有對方的元素，可以在關注全運會的同時，帶出立法會選舉的重要信息。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799552_1_20250409105122.jpg&q=90)
   
 
 第15屆全國運動會及立法會換屆選舉分別在今年11月及12月舉行，政制及內地事務局局長曾國衞表示，政府正研究將兩項宣傳工作一併進行，相信成效更為顯著。
@@ -1371,77 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799394-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799394-20250408.htm)
-
----
-
-# 元朗721事件原脫罪被告　重審被裁定罪成判囚7年
-
-![法官上星期裁定王志榮暴動及蓄意傷人兩項罪名成立，今早在區域法院判處監禁7年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799379_1_20250408105731.jpg&q=90)
-  
-
-2019年元朗721事件中，報稱貨車司機的60歲被告王志榮暴動及蓄意傷人罪脫，律政司不服其後提出上訴並得直，上訴庭去年發還案件予原審法官葉佐文。法官上星期裁定王志榮暴動及蓄意傷人兩項罪名成立，今早在區域法院判處監禁7年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799379-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799379-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799379-20250408.htm)
-
----
-
-# 回應長和擬售巴拿馬港口　李家超稱交易須合法合規
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799376_1_20250408112823.jpg&q=75)
-  
-
-行政長官李家超出行政會議前，再度回應長和早前計劃出售巴拿馬港口資產事件，並重申三點看法，指出社會就事件有很多議論，反映對事件的關切，而這些關切值得重視。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm)
-
----
-
-# 李家超強烈譴責美國歪理霸凌制裁　每次制裁只會更堅定當局信心
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799375_1_20250408110409.jpg&q=90)
-  
-
-美國早前宣布制裁包括律政司司長林定國等6名特區人員，行政長官李家超對於美國以歪理霸凌制裁相關官員，表示強烈譴責，嗤之以鼻，他認為，美方的行為是想恫嚇特區維護國家安全的人員，肆意干預香港事務和中國內政，屬違反國際法及國際慣例，再次顯示美國霸權主義下的野蠻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm)
 
 ---

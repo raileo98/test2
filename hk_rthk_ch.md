@@ -1,5 +1,174 @@
+# 日本央行：正仔細分析關稅如何影響經濟和物價
+
+![植田和男表示，正仔細分析關稅將如何影響日本經濟和物價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799559_1_20250409110537.jpg&q=85)
+  
+
+日本央行總裁植田和男表示，美國的汽車關稅和對等關稅，導致國內外經濟不確定加劇，正仔細分析關稅將如何影響日本經濟和物價。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799559-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799559-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799559-20250409.htm)
+
+---
+
+# 河北隆化縣養老院大火至少20人死亡
+
+![河北隆化縣養老院大火至少20人死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799558_1_20250409110449.jpg&q=90)
+  
+
+河北省承德市隆化縣一間養老院發生火災，至少造成20人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799558-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799558-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799558-20250409.htm)
+
+---
+
+# 「兩元兩折」明年4月推行　孫玉菡稱提早約5個月節省2.6億元
+
+![孫玉菡指兩元乘車優惠計劃「兩元兩折」方案，可於明年4月推行，較原先估計提早大約5個月，可額外節省2.6億元。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799557_1_20250409110810.jpg&q=90)
+  
+
+勞工及福利局局長孫玉菡表示，經與八達通公司及公共營辦商磋商後，兩元乘車優惠計劃「兩元兩折」方案，可於明年4月推行，較原先估計提早大約5個月，可額外節省2.6億元。至於「優惠車程設限」方案，局方預計將於「兩元兩折」方案推行約1年後實施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799557-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799557-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799557-20250409.htm)
+
+---
+
+# 白宮︰中國內地和香港小額包裹關稅將增至90％　下月2日生效
+
+![美國傳媒報道，總統特朗普已經簽署行政命令，將從中國出口到美國、價值低於800美元包裹的關稅稅率提高三倍。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799555_1_20250409105853.jpg&q=90)
+  
+
+美國傳媒引述白宮表示，來自中國內地和香港的小額包裹的關稅，將由30%增至90%，下月2日生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799555-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799555-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799555-20250409.htm)
+
+---
+
+# 何永賢冀規管簡樸房法例年底通過　過渡屋簡約公屋可助須遷出住戶
+
+![何永賢表示，期望今年底通過有關規管簡樸房的法例。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799556_1_20250409110711.jpg&q=80)
+  
+
+政府就簡樸房的規管制度建議方案上月出爐，房屋局局長何永賢表示，有部分意見認為單位內部最低樓面面積應該訂於10平方米，但如果採納，現時市面會有50%劏房不符合標準，需要改裝，她質疑社會是否承受得到，而按目前訂於8平方米，不符標準的單位有約26%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799556-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799556-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799556-20250409.htm)
+
+---
+
+# 葉劉淑儀稱如貿易戰持續或達兩年　全球或陷入衰退實體經濟萎縮
+
+![葉劉淑儀建議政府可以進一步考慮與最受打擊的行業，商討可以提供甚麼具體措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799554_1_20250409110731.jpg&q=90)
+  
+
+美國向多個貿易夥伴加徵關稅，又會對中國部分貨品徵收104%關稅。行政會議召集人，新民黨主席葉劉淑儀在一個電台節目說，很多地方的貿易在關稅戰下已暫停，大家都觀望未來發展。她又說，行政長官昨日公布會在七方面加大力量支援企業，都是政策方向，建議政府可以進一步考慮與最受打擊的行業，商討可以提供甚麼具體措施，例如出口信貸保險實際可以如何作更好安排。另外，美元轉弱，港元亦轉弱，估計有利吸引遊客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm)
+
+---
+
+# 日股半日跌865點
+
+![日經指數半日收報32147點，跌865點，跌幅2.62%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799551_1_20250409103352.jpg&q=90)
+  
+
+東京股市下挫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799551-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799551-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799551-20250409.htm)
+
+---
+
 # 運輸署稱到牌照事務處申請牌照或續牌須帶地址證明
 
+![署方表示，市民只須將電子帳單，加入「智方便」的「填表通」個人資料，在網上申請牌照時，「智方便」會自動以相關資料作為地址證明，毋須再上載。（運輸署社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799553_1_20250409105147.jpg&q=90)
   
 
 運輸署在社交平台表示，到牌照事務處申請或續領牌照一定要帶地址證明，網上申請則毋須上載住址證明。
@@ -23,6 +192,7 @@
 
 # 全運會及立會選舉年底舉行　曾國衞稱兩項宣傳一併進行成效更顯著
 
+![曾國衞相信兩項盛事彼此都有對方的元素，可以在關注全運會的同時，帶出立法會選舉的重要信息。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799552_1_20250409105122.jpg&q=90)
   
 
 第15屆全國運動會及立法會換屆選舉分別在今年11月及12月舉行，政制及內地事務局局長曾國衞表示，政府正研究將兩項宣傳工作一併進行，相信成效更為顯著。
@@ -68,7 +238,7 @@
 
 ---
 
-# 新西蘭減息0.25厘　稱全球貿易壁壘為經濟帶來下行風險
+# 新西蘭減息25點子　稱全球貿易壁壘為經濟帶來下行風險
 
 ![新西蘭央行將指標利率下調0.25厘，降至3.5厘。（新西蘭央行圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799550_1_20250409103008.jpg&q=90)
   
@@ -908,7 +1078,7 @@
 
 ---
 
-# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關銳
+# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關稅
 
 ![格里爾說部分國家已釋出信號，希望找到一條貿易互惠之路。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799502_1_20250409015525.jpg&q=90)
   
@@ -1268,173 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm)
-
----
-
-# 美股初段急升逾3%
-
-![紐約股市初段急升，美股3大主要指數升逾3%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799483_1_20250408213548.jpg&q=90)
-  
-
-紐約股市初段急升，美股3大主要指數升逾3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799483-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799483-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799483-20250408.htm)
-
----
-
-# 多米尼加夜總會屋頂倒塌　造成27死逾百人傷
-
-![多米尼加有夜總會的屋頂倒塌，救援人員在現場搜救。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799482_1_20250408212328.jpg&q=80)
-  
-
-加勒比海國家多米尼加有夜總會的屋頂倒塌，造成至少27人死亡、過百人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799482-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799482-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799482-20250408.htm)
-
----
-
-# Coldplay啟德主場館演唱會開場　陳茂波及黃偉綸入場欣賞
-
-![5萬個座位全場爆滿，現場氣氛高漲。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799481_1_20250408212814.jpg&q=65)
-  
-
-英國樂隊Coldplay在啟德體育園主場館舉行的首場演唱會晚上8時半開場，5萬個座位全場爆滿，當樂隊成員出場時，現場氣氛高漲，樂隊主音Chris Martin用廣東話向在場觀眾說，歡迎大家，好開心來到香港，贏得全場歡呼。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799481-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799481-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799481-20250408.htm)
-
----
-
-# 網上有人聲稱提供跨境私家車來往內地與啟德站　運輸署轉介警方
-
-![運輸署提醒過境旅客，如需要乘搭跨境出租汽車，應先查看有關車輛是否貼有識別標誌，或到署方網上查詢系統輸入車牌號碼以核實。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799480_1_20250408215101.jpg&q=90)
-  
-
-運輸署表示，留意到社交媒體有人聲稱可提供跨境私家車服務來往內地及港鐵啟德站。署方重申，跨境私家車必須領有有效的出租汽車許可證，才可用作出租或取酬載客用途。領有許可證的跨境出租汽車會在擋風玻璃左邊和車尾張貼印有「Cross Boundary Hire Car」和「過境出租車」的識別標誌，以及獲配予的車輛編號。運輸署會將懷疑非法個案轉交警方跟進調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799480-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799480-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799480-20250408.htm)
-
----
-
-# 董軍晤巴基斯坦空軍參謀長　稱願加強中巴戰略溝通協作
-
-![董軍表示，中方願與巴方不斷加強戰略溝通協作，共同維護國際和地區安全穩定。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799479_1_20250408204046.jpg&q=90)
-  
-
-國防部長董軍在北京會見巴基斯坦空軍參謀長巴伯爾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799479-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799479-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799479-20250408.htm)
-
----
-
-# 李強指中國完全能對沖外部不利影響
-
-![國務院總理李強指中方反制美國關稅措施，捍衛國際公平正義，完全能夠對沖外部不利影響。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799478_1_20250408203650.jpg&q=90)
-  
-
-國務院總理李強與歐盟委員會主席馮德萊恩通電話，討論貿易和中歐關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799478-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799478-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799478-20250408.htm)
-
----
-
-# 陳國基：特區政府在維護國安和推展愛國主義教育取得豐碩成果
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799477_1_20250408203840.jpg&q=90)
-  
-
-勞工及福利局、社署和香港社福界心連心大行動聯合舉辦香港社福界維護國家安全研討會，進一步提升香港社福界主動維護國家安全的意識。超過8000位香港社福界人士以線上線下的方式參與。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799477-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799477-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799477-20250408.htm)
 
 ---

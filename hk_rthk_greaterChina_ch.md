@@ -1,3 +1,27 @@
+# 河北隆化縣養老院大火至少20人死亡
+
+![河北隆化縣養老院大火至少20人死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799558_1_20250409110449.jpg&q=90)
+  
+
+河北省承德市隆化縣一間養老院發生火災，至少造成20人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799558-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799558-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799558-20250409.htm)
+
+---
+
 # 台灣宜蘭縣發生5.8級地震　台北有明顯震感
 
 ![台灣宜蘭縣發生5.8級地震　台北有明顯震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799549_1_20250409102149.jpg&q=90)
@@ -94,7 +118,7 @@
 
 ---
 
-# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關銳
+# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關稅
 
 ![格里爾說部分國家已釋出信號，希望找到一條貿易互惠之路。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799502_1_20250409015525.jpg&q=90)
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm)
-
----
-
-# 商務部對原產於美國、印度進口CT球管展開反傾銷調查
-
-![商務部對原產於美國、印度進口CT球管展開反傾銷調查。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798961_1_20250404190018.jpg&q=75)
-  
-
-在北京，商務部宣布對原產於美國、印度的進口相關醫用CT球管發起反傾銷立案調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798961-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798961-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798961-20250404.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 白宮︰中國內地和香港小額包裹關稅將增至90％　下月2日生效
+
+![美國傳媒報道，總統特朗普已經簽署行政命令，將從中國出口到美國、價值低於800美元包裹的關稅稅率提高三倍。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799555_1_20250409105853.jpg&q=90)
+  
+
+美國傳媒引述白宮表示，來自中國內地和香港的小額包裹的關稅，將由30%增至90%，下月2日生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799555-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799555-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799555-20250409.htm)
+
+---
+
+# 葉劉淑儀稱如貿易戰持續或達兩年　全球或陷入衰退實體經濟萎縮
+
+![葉劉淑儀建議政府可以進一步考慮與最受打擊的行業，商討可以提供甚麼具體措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799554_1_20250409110731.jpg&q=90)
+  
+
+美國向多個貿易夥伴加徵關稅，又會對中國部分貨品徵收104%關稅。行政會議召集人，新民黨主席葉劉淑儀在一個電台節目說，很多地方的貿易在關稅戰下已暫停，大家都觀望未來發展。她又說，行政長官昨日公布會在七方面加大力量支援企業，都是政策方向，建議政府可以進一步考慮與最受打擊的行業，商討可以提供甚麼具體措施，例如出口信貸保險實際可以如何作更好安排。另外，美元轉弱，港元亦轉弱，估計有利吸引遊客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm)
+
+---
+
 # 多米尼加夜總會屋頂坍塌事故增至最少79死
 
 ![多米尼加首都聖多明各一間夜總會屋頂坍塌事故。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799546_1_20250409102359.jpg&q=85)
@@ -334,7 +382,7 @@
 
 ---
 
-# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關銳
+# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關稅
 
 ![格里爾說部分國家已釋出信號，希望找到一條貿易互惠之路。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799502_1_20250409015525.jpg&q=90)
   
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799321-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799321-20250408.htm)
-
----
-
-# 埃及據報提出加沙停火新提議　涉停火40至70日及釋放被扣人員
-
-![以色列持續攻擊加沙，有建築物冒煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799319_1_20250408012911.jpg&q=85)
-  
-
-以色列官員表示，以方了解埃及正就加沙停火問題作出新提議，但以方尚未收到相關內容。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799319-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799319-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799319-20250408.htm)
-
----
-
-# 埃法總統會談　反對主張巴勒斯坦人離開自己土地的言論
-
-![塞西在開羅與馬克龍會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799317_1_20250408005508.jpg&q=90)
-  
-
-埃及總統塞西與到訪的法國總統馬克龍會談，兩人都反對任何主張巴勒斯坦人離開自己土地的言論。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799317-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799317-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799317-20250408.htm)
 
 ---

@@ -1,4 +1,100 @@
-# 新西蘭減息0.25厘　稱全球貿易壁壘為經濟帶來下行風險
+# 日本央行：正仔細分析關稅如何影響經濟和物價
+
+![植田和男表示，正仔細分析關稅將如何影響日本經濟和物價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799559_1_20250409110537.jpg&q=85)
+  
+
+日本央行總裁植田和男表示，美國的汽車關稅和對等關稅，導致國內外經濟不確定加劇，正仔細分析關稅將如何影響日本經濟和物價。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799559-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799559-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799559-20250409.htm)
+
+---
+
+# 「兩元兩折」明年4月推行　孫玉菡稱提早約5個月節省2.6億元
+
+![孫玉菡指兩元乘車優惠計劃「兩元兩折」方案，可於明年4月推行，較原先估計提早大約5個月，可額外節省2.6億元。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799557_1_20250409110810.jpg&q=90)
+  
+
+勞工及福利局局長孫玉菡表示，經與八達通公司及公共營辦商磋商後，兩元乘車優惠計劃「兩元兩折」方案，可於明年4月推行，較原先估計提早大約5個月，可額外節省2.6億元。至於「優惠車程設限」方案，局方預計將於「兩元兩折」方案推行約1年後實施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799557-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799557-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799557-20250409.htm)
+
+---
+
+# 葉劉淑儀稱如貿易戰持續或達兩年　全球或陷入衰退實體經濟萎縮
+
+![葉劉淑儀建議政府可以進一步考慮與最受打擊的行業，商討可以提供甚麼具體措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799554_1_20250409110731.jpg&q=90)
+  
+
+美國向多個貿易夥伴加徵關稅，又會對中國部分貨品徵收104%關稅。行政會議召集人，新民黨主席葉劉淑儀在一個電台節目說，很多地方的貿易在關稅戰下已暫停，大家都觀望未來發展。她又說，行政長官昨日公布會在七方面加大力量支援企業，都是政策方向，建議政府可以進一步考慮與最受打擊的行業，商討可以提供甚麼具體措施，例如出口信貸保險實際可以如何作更好安排。另外，美元轉弱，港元亦轉弱，估計有利吸引遊客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm)
+
+---
+
+# 日股半日跌865點
+
+![日經指數半日收報32147點，跌865點，跌幅2.62%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799551_1_20250409103352.jpg&q=90)
+  
+
+東京股市下挫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799551-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799551-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799551-20250409.htm)
+
+---
+
+# 新西蘭減息25點子　稱全球貿易壁壘為經濟帶來下行風險
 
 ![新西蘭央行將指標利率下調0.25厘，降至3.5厘。（新西蘭央行圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799550_1_20250409103008.jpg&q=90)
   
@@ -646,7 +742,7 @@
 
 ---
 
-# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關銳
+# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關稅
 
 ![格里爾說部分國家已釋出信號，希望找到一條貿易互惠之路。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799502_1_20250409015525.jpg&q=90)
   
@@ -1342,101 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm)
-
----
-
-# 內地股市反彈近1%或以上
-
-![上證指數重上3100點，收報3145點，升48點，升幅1.58%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799419_2_20250408150616.jpg&q=90)
-  
-
-內地股市3大指數反彈近1%或以上，零售、農業股上升，但貿易、汽車產業鏈等相關股份下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799419-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799419-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799419-20250408.htm)
-
----
-
-# 回應美國籲阿根廷終止與中國本幣互換合作　外交部批美挑撥離間
-
-![林劍表示，中方一貫在平等互利基礎上與阿根廷合作，兩國本幣互換合作為阿根廷維護經濟金融穩定，發揮重要作用。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799427_1_20250408152519.jpg&q=90)
-  
-
-美國國務院拉美問題特使卡羅內近日呼籲阿根廷終止與中國的本幣互換合作，並形容這是中國對阿根廷的「勒索機制」。在北京，外交部發言人林劍表示，中國同有關國家雙邊合作從不針對第三方，也不應受到第三方干擾。到底是誰在勒索脅迫、無事生非，公道自在人心。中方奉勸美方擺正心態，與其花時間挑撥離間，不如為拉美和加勒比國家發展多做點實實在在的事情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm)
-
----
-
-# 林健鋒稱出口及製造業將步入寒冬　中小企如暫未還款冀銀行勿催迫
-
-![林健鋒形容今次是非常難過的難關，希望政府伸出援手， 幫助港商開拓新興市場及加強國際貿易競爭力。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799422_1_20250408153723.jpg&q=80)
-  
-
-行政會議成員、立法會商界議員林健鋒表示，美國總統特朗普瘋狂加徵關稅的行為，令部分做美國生意的香港出口商和製造商首當其衝。如果關稅問題惡化，他認為，香港出口業及製造業會步入經濟寒冬，他支持行政長官李家超提出在七大方面工作加大力量，以應對美國加徵關稅，亦支持特區政府維持香港自由港的地位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm)
-
----
-
-# 阮國恒稱中小企融資專責小組參與行同意彈性延長貿易融資還款期
-
-![阮國恒稱「中小企融資專責小組」18家參與銀行同意為進出口製造業彈性延長貿易融資貸款還款期。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799421_1_20250408151217.jpg&q=80)
-  
-
-金管局副總裁阮國恒表示，金管局今早與銀行及各大商會舉行兩場會議，銀行業界承諾繼續落實支持中小企的「9+5」措施，包括會以「還息不還本」計劃的原則和理念，繼續以包容態度支持中小企流動性需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm)
 
 ---

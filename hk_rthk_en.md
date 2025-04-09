@@ -70,7 +70,7 @@ An 88th-minute Davide Frattesi goal took Inter Milan to a 2-1 win at Bayern Muni
 
 ---
 
-# Arsenal stuns Real Madrid with Rice's free-kick magic
+# Arsenal stun Real Madrid with Rice's free-kick magic
 
 ![Arsenal delivered a dominant 3-nil victory against reigning titleholders Real Madrid. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799541_1_20250409095732.jpg&q=85)
   
