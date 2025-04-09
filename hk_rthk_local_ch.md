@@ -1,3 +1,26 @@
+# 政府提醒市民切勿誤信以人工智能偽造特首推介投資計劃短片
+
+  
+
+政府表示，有人在網上以以人工智能偽造行政長官推介投資計劃的短片，提醒市民切勿誤信，並強烈譴責不法分子發放虛假投資信息，事件已轉交警方跟進調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799639-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799639-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799639-20250409.htm)
+
+---
+
 # 「兩蚊兩折」提早明年4月實施　有議員稱難接受
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799617_1_20250409185244.jpg&q=90)
@@ -1413,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799468-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799468-20250408.htm)
-
----
-
-# 18家銀行同意為進出口製造業彈性延長貿易融資貸款還款期
-
-![「中小企融資專責小組」會議由金管局副總裁阮國恒（左三）及銀行公會主席禤惠儀（右二）共同主持。（金管局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799467_1_20250408191200.jpg&q=90)
-![「中小企融資專責小組」今日舉行第四次會議。（金管局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799467_2_20250408191939.jpg&q=90)
-  
-
-金管局與多間銀行及商會舉行會議，銀行業界承諾繼續落實支持中小企的「9+5」措施，而「中小企融資專責小組」的18家參與銀行同意為進出口製造業，彈性延長貿易融資貸款還款期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm)
 
 ---

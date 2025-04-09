@@ -1,3 +1,26 @@
+# 政府提醒市民切勿誤信以人工智能偽造特首推介投資計劃短片
+
+  
+
+政府表示，有人在網上以以人工智能偽造行政長官推介投資計劃的短片，提醒市民切勿誤信，並強烈譴責不法分子發放虛假投資信息，事件已轉交警方跟進調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799639-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799639-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799639-20250409.htm)
+
+---
+
 # 「兩蚊兩折」提早明年4月實施　有議員稱難接受
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799617_1_20250409185244.jpg&q=90)
