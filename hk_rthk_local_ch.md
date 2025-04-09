@@ -1,5 +1,52 @@
+# 林宣武指大幅增關稅構成很大打擊　中小企面對很大壓力
+
+  
+
+香港付貨人協會主席林宣武說面對關稅戰，特區政府已盡力協助企業，但中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產，但這個做法不知要「拖幾耐」，面對非常大的壓力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799543-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799543-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799543-20250409.htm)
+
+---
+
+# 林健鋒稱港商面對美國徵稅感憤怒和無奈　部分企業到危急存亡之秋
+
+  
+
+美國白宮證實會對中國部分貨品徵收104%關稅，行會成員、立法會商界議員林健鋒形容美國現時的做法是「大石砸死蟹」，港商非常憤怒，但亦非常無奈。面對一個如此高的稅率，即使供應鏈重組，成本都會劇增。現時不少企業面對貨品出不到，即使製造完成但都收不到錢，大大影響現金流，與美國做生意的商家是真正步入寒冬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm)
+
+---
+
 # 前特首梁振英女兒梁齊昕離世　終年33歲
 
+![前特首梁振英女兒梁齊昕離世　終年33歲](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799530_1_20250409095931.jpg&q=90)
   
 
 全國政協副主席、前行政長官梁振英表示，女兒梁齊昕離世。
@@ -1396,53 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm)
-
----
-
-# 陳國基稱將引導市民特別是年輕一代深入認識香港抗戰歷史
-
-![陳國基昨日下午聯同「愛國主義教育工作小組」成員到沙頭角烏蛟騰，實地考察其中一條沙頭角抗戰文物徑。（陳國基社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799366_1_20250408102413.jpg&q=40)
-  
-
-今年是抗戰勝利80周年，特區政府將舉辦一系列紀念活動。政務司司長陳國基昨日下午聯同「愛國主義教育工作小組」成員到沙頭角烏蛟騰，實地考察其中一條沙頭角抗戰文物徑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799366-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799366-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799366-20250408.htm)
-
----
-
-# 李家超：美國霸凌行為濫施關稅　破壞世界經貿秩序
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799365_1_20250408102325.jpg&q=90)
-  
-
-行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，其中向香港產品加徵三成四關稅，連同早前宣布的兩成關稅、累計徵收五成四關稅。李家超說，香港除了面對全球風險，在轉口貿易和物流業會面對壓力，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm)
 
 ---

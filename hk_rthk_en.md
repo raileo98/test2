@@ -1,3 +1,27 @@
+# Hong Kong stocks plunge more than 3pc at open
+
+![Hong Kong stocks dropped further, after recovering just over one percent the previous day, following Monday's 13.2 percent dive. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799529_1_20250409085033.jpg&q=75)
+  
+
+Mainland and Hong Kong shares fell at the open on Wednesday as the US trade war escalated, following Washington's decision to impose 104 percent tariffs on Chinese goods, starting around noon, Hong Kong time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799529-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799529-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799529-20250409.htm)
+
+---
+
 # Universal to build first Europe theme park in UK: PM
 
 ![Britain's Prime Minister Keir Starmer (right) welcomes President of the Comcast Corporation Mike Cavanagh to Downing Street, London. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799527_1_20250409081130.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump warned foreign governments they would have to pay "a l
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799234-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799234-20250407.htm)
-
----
-
-# Djokovic not setting sights high for Monte Carlo
-
-![Novak Djokovic says his eye infection began during the recent Miami Open semi-finals. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799230_1_20250407125952.jpg&q=90)
-  
-
-World No 5 Novak Djokovic, a finalist at the recent Miami Masters, said he did not have high expectations for the Monte Carlo Masters as he was suffering from the effects of an eye infection.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799230-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799230-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799230-20250407.htm)
 
 ---

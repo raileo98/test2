@@ -1,3 +1,121 @@
+# 李在明辭去共同民主黨黨魁職務　料準備參選總統
+
+![韓聯社報道，預料李在明最快會在明日宣布參選總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799542_1_20250409100124.jpg&q=90)
+  
+
+南韓最大在野黨共同民主黨黨魁李在明宣布辭去黨主席職務，被視作為全力參選總統做準備。韓聯社預料李在明最快會在明日宣布參選。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799542-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799542-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799542-20250409.htm)
+
+---
+
+# 林宣武指大幅增關稅構成很大打擊　中小企面對很大壓力
+
+  
+
+香港付貨人協會主席林宣武說面對關稅戰，特區政府已盡力協助企業，但中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產，但這個做法不知要「拖幾耐」，面對非常大的壓力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799543-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799543-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799543-20250409.htm)
+
+---
+
+# 林健鋒稱港商面對美國徵稅感憤怒和無奈　部分企業到危急存亡之秋
+
+  
+
+美國白宮證實會對中國部分貨品徵收104%關稅，行會成員、立法會商界議員林健鋒形容美國現時的做法是「大石砸死蟹」，港商非常憤怒，但亦非常無奈。面對一個如此高的稅率，即使供應鏈重組，成本都會劇增。現時不少企業面對貨品出不到，即使製造完成但都收不到錢，大大影響現金流，與美國做生意的商家是真正步入寒冬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm)
+
+---
+
+# 中國救援隊伍完成緬甸地震救援任務　啟程回國
+
+![緬甸曼德勒中國救援隊伍營地，緬甸領導人敏昂萊（前右二）日前慰問中國救援隊伍。（新華社資料圖片）。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799537_1_20250409094300.jpg&q=90)
+  
+
+到緬甸開展地震救援的中國救援隊、中國國際救援隊和中國香港特區救援隊完成國際救援任務，乘坐4架中國空軍飛機從內比都啟程回國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799537-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799537-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799537-20250409.htm)
+
+---
+
+# 中國駐巴拿馬使館︰中國從未干涉運河事務　美方應停止歪曲污蔑
+
+![中國駐巴拿馬使館發言人說，中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799532_1_20250409091302.jpg&q=75)
+  
+
+中國駐巴拿馬使館對美國國防部長赫格塞思訪問巴拿馬期間，就中國和中巴關係的言論發表聲明，指出中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務，敦促美方應停止對中國歪曲污蔑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799532-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799532-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799532-20250409.htm)
+
+---
+
 # 《環看天下》：平壤馬拉松相隔六年復辦　北韓或擴大向外國人開放
 
 ![北韓相隔6年復辦平壤國際馬拉松賽，並容許外國人參與。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799533_1_20250409091038.jpg&q=90)
@@ -1315,125 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799315-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799315-20250408.htm)
-
----
-
-# 特朗普：若中國不撤回34%反制關稅　美方周三起額外徵五成關稅
-
-![特朗普警告或再對中國額外加徵50%關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799314_1_20250408001200.jpg&q=90)
-  
-
-美國總統特朗普警告，如果中國不在星期二前撤銷對美國徵收34%的反制關稅，美方從星期三起會對中國再額外加徵50%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799314-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799314-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799314-20250407.htm)
-
----
-
-# 特朗普批評中國無視切勿報復警告　歐盟提出互免工業品關稅
-
-![美國總統特朗普批評中國無視切勿報復的警告。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799309_1_20250407224720.jpg&q=90)
-  
-
-美國總統特朗普批評中國無視切勿報復的警告，向美國產品徵收34%關稅，又說除非解決對華貿易逆差，否則中美不會達成協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799309-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799309-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799309-20250407.htm)
-
----
-
-# 馮德萊恩提出歐美互免工業貨品關稅
-
-![歐盟委員會主席馮德萊恩表示，已提出歐美互免工業品關稅，避免爆發全面貿易戰。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799301_1_20250407223044.jpg&q=90)
-  
-
-歐盟委員會主席馮德萊恩表示，已向美國提出，互相豁免工業貨品關稅，避免爆發全面貿易戰。 她又重申，歐盟隨時準備好與美國談，亦準備好反制，將加強單一市場以應對美國關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799301-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799301-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799301-20250407.htm)
-
----
-
-# 美日視像會議　石破茂指雙方同意任命官員跟進關稅
-
-![日本首相石破茂表示，美日同意任命官員負責討論關稅問題。法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799300_1_20250407223407.jpg&q=90)
-  
-
-日本首相石破茂晚上與美國總統特朗普舉行視像會議。石破茂表示，會上向特朗普表明日本連續5年在美國大額投資，要求美方審視關稅措施，雙方同意任命官員負責討論關稅問題。石破茂又表示，考慮適當時候與特朗普面對面會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799300-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799300-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799300-20250407.htm)
-
----
-
-# 特朗普批中國無視切勿報復的警告
-
-![特朗普批評中國無視切勿報復的警告，向美國產品徵收34%關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799298_1_20250407200913.jpg&q=90)
-  
-
-美國總統特朗普批評中國無視切勿報復的警告，向美國產品徵收34%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799298-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799298-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799298-20250407.htm)
 
 ---

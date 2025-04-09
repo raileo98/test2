@@ -1,3 +1,27 @@
+# 中國駐巴拿馬使館︰中國從未干涉運河事務　美方應停止歪曲污蔑
+
+![中國駐巴拿馬使館發言人說，中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799532_1_20250409091302.jpg&q=75)
+  
+
+中國駐巴拿馬使館對美國國防部長赫格塞思訪問巴拿馬期間，就中國和中巴關係的言論發表聲明，指出中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務，敦促美方應停止對中國歪曲污蔑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799532-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799532-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799532-20250409.htm)
+
+---
+
 # 白宮證對華部分貨品徵104%關稅　稱特朗普相信中方盼達成協議
 
 ![萊維特強調任何協議的焦點，都在於是否對美國工人有利。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799507_1_20250409033148.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798962-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798962-20250404.htm)
-
----
-
-# 中方在世貿組織起訴美國對等關稅措施
-
-![商務部發言人表示，美方徵收所謂「對等關稅」，嚴重違反世貿組織規則，嚴重損害世貿組織成員正當合法權益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798956_1_20250404183848.jpg&q=75)
-  
-
-在北京，商務部表示，中方已在世貿組織爭端解決機制起訴美國「對等關稅」措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm)
 
 ---

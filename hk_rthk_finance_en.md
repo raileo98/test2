@@ -1,3 +1,27 @@
+# Hong Kong stocks plunge more than 3pc at open
+
+![Hong Kong stocks dropped further, after recovering just over one percent the previous day, following Monday's 13.2 percent dive. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799529_1_20250409085033.jpg&q=75)
+  
+
+Mainland and Hong Kong shares fell at the open on Wednesday as the US trade war escalated, following Washington's decision to impose 104 percent tariffs on Chinese goods, starting around noon, Hong Kong time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799529-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799529-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799529-20250409.htm)
+
+---
+
 # S&P 500 ends down 1.6% as tariff angst kills rally
 
 ![US stocks have been in free fall since Trump's "Liberation Day" event announcing tariffs on major US trading partners last Wednesday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799508_1_20250409051017.jpg&q=90)
@@ -1412,29 +1436,5 @@ Asian shares mostly skidded with Wall Street on Thursday while the dollar hovere
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm)
-
----
-
-# Canada PM dubs US auto tariffs 'direct attack'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797616_1_20250327083849.jpg&q=90)
-  
-
-Canadian Prime Minister Mark Carney reacted with anger on Wednesday to US President Donald Trump's imposition of import tariffs on cars, branding it a "direct attack" on his country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm)
 
 ---

@@ -1,3 +1,241 @@
+# 李在明辭去共同民主黨黨魁職務　料準備參選總統
+
+![韓聯社報道，預料李在明最快會在明日宣布參選總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799542_1_20250409100124.jpg&q=90)
+  
+
+南韓最大在野黨共同民主黨黨魁李在明宣布辭去黨主席職務，被視作為全力參選總統做準備。韓聯社預料李在明最快會在明日宣布參選。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799542-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799542-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799542-20250409.htm)
+
+---
+
+# 林宣武指大幅增關稅構成很大打擊　中小企面對很大壓力
+
+  
+
+香港付貨人協會主席林宣武說面對關稅戰，特區政府已盡力協助企業，但中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產，但這個做法不知要「拖幾耐」，面對非常大的壓力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799543-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799543-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799543-20250409.htm)
+
+---
+
+# 美國國債孳息率曲線創2022年2月以來最斜水平
+
+![美國國債孳息率曲線創2022年2月以來最斜水平，較長年期國債孶息率因預期需求疲弱而跳升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799534_1_20250409091639.jpg&q=85)
+  
+
+美國國債孳息率曲線創2022年2月以來最斜水平，較長年期國債孶息率因預期需求疲弱而跳升。中美貿易戰升溫亦引發投資者對經濟增長放緩的憂慮，較短年期債券孳息率下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799534-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799534-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799534-20250409.htm)
+
+---
+
+# 人行逆回購1189億元人民幣
+
+![人行開展1189億元人民幣7日期逆回購操作，利率維持1.5厘。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799539_1_20250409094407.jpg&q=75)
+  
+
+人民銀行公開市場今日進行1189億元人民幣7日期逆回購操作，利率維持1.5厘，對沖今日到期量後，單日淨回籠1110億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799539-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799539-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799539-20250409.htm)
+
+---
+
+# 林健鋒稱港商面對美國徵稅感憤怒和無奈　部分企業到危急存亡之秋
+
+  
+
+美國白宮證實會對中國部分貨品徵收104%關稅，行會成員、立法會商界議員林健鋒形容美國現時的做法是「大石砸死蟹」，港商非常憤怒，但亦非常無奈。面對一個如此高的稅率，即使供應鏈重組，成本都會劇增。現時不少企業面對貨品出不到，即使製造完成但都收不到錢，大大影響現金流，與美國做生意的商家是真正步入寒冬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm)
+
+---
+
+# 中國救援隊伍完成緬甸地震救援任務　啟程回國
+
+![緬甸曼德勒中國救援隊伍營地，緬甸領導人敏昂萊（前右二）日前慰問中國救援隊伍。（新華社資料圖片）。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799537_1_20250409094300.jpg&q=90)
+  
+
+到緬甸開展地震救援的中國救援隊、中國國際救援隊和中國香港特區救援隊完成國際救援任務，乘坐4架中國空軍飛機從內比都啟程回國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799537-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799537-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799537-20250409.htm)
+
+---
+
+# 內地股市初段跌逾1%至2%以上　滬股再失3100點
+
+![上證指數較早時報3092點，跌52點，跌幅1.68%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799538_1_20250409093518.jpg&q=90)
+  
+
+內地股市初段跌逾1%至2%以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799538-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799538-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799538-20250409.htm)
+
+---
+
+# 中國駐巴拿馬使館︰中國從未干涉運河事務　美方應停止歪曲污蔑
+
+![中國駐巴拿馬使館發言人說，中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799532_1_20250409091302.jpg&q=75)
+  
+
+中國駐巴拿馬使館對美國國防部長赫格塞思訪問巴拿馬期間，就中國和中巴關係的言論發表聲明，指出中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務，敦促美方應停止對中國歪曲污蔑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799532-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799532-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799532-20250409.htm)
+
+---
+
+# 恒指低開632點　科指跌逾4%
+
+![恒指在競價時段報19494點，跌632點，跌幅3.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799536_1_20250409092328.jpg&q=65)
+  
+
+貿易戰陰霾繼續拖累市場表現，美國白宮表示將對中國部分貨品徵收104%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799536-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799536-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799536-20250409.htm)
+
+---
+
+# 人民幣中間價微跌
+
+![人民幣中間價報7.2066兌1美元，較上日中間價下調28點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799535_1_20250409091834.jpg&q=85)
+  
+
+人民幣中間價報7.2066兌1美元，較上日中間價下調28點子，創2023年9月11日以來最低，與外電預測偏離近1300點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799535-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799535-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799535-20250409.htm)
+
+---
+
 # 《環看天下》：平壤馬拉松相隔六年復辦　北韓或擴大向外國人開放
 
 ![北韓相隔6年復辦平壤國際馬拉松賽，並容許外國人參與。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799533_1_20250409091038.jpg&q=90)
@@ -48,6 +286,7 @@
 
 # 前特首梁振英女兒梁齊昕離世　終年33歲
 
+![前特首梁振英女兒梁齊昕離世　終年33歲](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799530_1_20250409095931.jpg&q=90)
   
 
 全國政協副主席、前行政長官梁振英表示，女兒梁齊昕離世。
@@ -1197,249 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799471-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799471-20250408.htm)
-
----
-
-# 據了解警方票控及拘捕5人懷疑在啟德兜售Coldplay黃牛票
-
-![據了解便衣警截獲一男子懷疑在啟德兜售Coldplay黃牛票（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799469_1_20250408193856.jpg&q=85)
-  
-
-英國樂隊Coldplay晚上在啟德主場館舉行演唱會。據了解，警方下午在啟德體育園截獲一名香港男子涉嫌以高於原價售賣門票，警方稍後將票控該男子。另外，警方在行動中又以涉嫌違反逗留條件拘捕兩男兩女，他們持雙程證，介乎39至51歲，他們亦以高於原價放售演唱會門票，每張賺取數百元差價。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799469-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799469-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799469-20250408.htm)
-
----
-
-# 銀行公會歡迎金管局與銀行業推出針對個別行業支持措施
-
-![銀行公會歡迎金管局與銀行業針對個別行業推出支持措施，協助中小企減輕資金壓力及升級轉型。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799464_1_20250408182755.jpg&q=90)
-  
-
-銀行公會表示，歡迎金管局與銀行業推出針對個別行業的支持措施，協助更多中小企減輕資金流動性壓力及升級轉型。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799464-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799464-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799464-20250408.htm)
-
----
-
-# 文憑試公民科開考　首次有「是否同意」題目
-
-![文憑試公民與社會發展科開考。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799468_1_20250408192115.jpg&q=90)
-  
-
-文憑試公民與社會發展科開考。不少考生表示，試卷較簡單。有公民科教師估計今年達標率會與往年相若。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799468-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799468-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799468-20250408.htm)
-
----
-
-# 18家銀行同意為進出口製造業彈性延長貿易融資貸款還款期
-
-![「中小企融資專責小組」會議由金管局副總裁阮國恒（左三）及銀行公會主席禤惠儀（右二）共同主持。（金管局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799467_1_20250408191200.jpg&q=90)
-![「中小企融資專責小組」今日舉行第四次會議。（金管局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799467_2_20250408191939.jpg&q=90)
-  
-
-金管局與多間銀行及商會舉行會議，銀行業界承諾繼續落實支持中小企的「9+5」措施，而「中小企融資專責小組」的18家參與銀行同意為進出口製造業，彈性延長貿易融資貸款還款期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm)
-
----
-
-# Coldplay啟德演唱會即將舉行　有觀眾中午已到場排隊
-
-![場館外有人手持寫有「求票」的紙牌。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799466_1_20250408191742.jpg&q=90)
-![有市民形容氣氛很好，演唱會未開始，在場外都感受到氣氛（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799466_2_20250408191742.jpg&q=85)
-![觀眾可攜帶容量不超過600毫升的膠水瓶或杯進場，但不能有蓋，亦不能載有飲品，不少人要即場飲完才進場。（陳曉筠攝）.JPG](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799466_3_20250408191742.jpg&q=85)
-![為爭取有利位置，有購了企位票的觀眾中午已到場排隊。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799466_4_20250408191742.jpg&q=75)
-  
-
-英國樂隊Coldplay在啟德體育園主場館的演唱會，即將舉行，有觀眾中午已到場排隊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799466-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799466-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799466-20250408.htm)
-
----
-
-# 世邦魏理仕下調今年甲級寫字樓新租務成交至下跌5%
-
-![世邦魏理仕下調部分商業房地產市道表現預測。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799440_1_20250408164554.jpg&q=85)
-  
-
-物業顧問世邦魏理仕表示，因應近日美國對多個貿易夥伴徵收對等關稅，以及環球股市急跌，調低今年部分商業房地產市道表現預測。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799440-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799440-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799440-20250408.htm)
-
----
-
-# 串謀讓囚犯管有手機及香煙　懲教人員及囚犯分囚18及24個月
-
-![法官判刑時斥責被告蔑視監獄制度，沒有悔意。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799465_1_20250408182804.jpg&q=80)
-  
-
-兩名懲教助理縱容一名囚犯在塘福懲教所管有及使用手提電話，並為囚犯將未經授權香煙帶進監獄，兩人連同另外兩名涉案釋囚，被控串謀觸犯公職人員行為不當等罪。其中兩人認罪判囚，餘下三名被告經審訊後被裁定罪成，47歲一級懲教助理被判監禁18個月，32歲囚犯主腦監禁24個月，協助傳訊的釋囚則判囚9個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799465-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799465-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799465-20250408.htm)
-
----
-
-# 人形機器人周日北京參加「半馬」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799435_1_20250408182633.jpg&q=90)
-  
-
-多個人形機器人周日將在北京亦莊參加「半馬」賽事，將與3萬多名人類選手共同出賽，是全球首次「人機共跑馬拉松」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799435-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799435-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799435-20250408.htm)
-
----
-
-# 工總稱銀行彈性延長貿易融資貸款還款期　對中小企是很大幫忙
-
-![莊子雄說業界面對很大困難，特別是資金周轉，現金流亦受影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799462_1_20250408183155.jpg&q=80)
-  
-
-香港工業總會主席莊子雄表示，關稅戰對製造業、進出口業、物流等都帶來挑戰，不只香港的出口商，有不少美國進口商亦不知道如何應對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm)
-
----
-
-# 當局稱正研究離境私家車徵收邊境建設費　適時再諮詢立法會
-
-![黎志華表示，當局剛展開相關研究，當有具體構思，包括如何收取、有無豁免機制等，屆時會再諮詢立法會意見。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799461_1_20250408183137.jpg&q=90)
-  
-
-財政預算案提出，研究向離境私家車徵收邊境建設費，如果每輛車收200元，政府每年可以有大約10億元收入。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm)
 
 ---
