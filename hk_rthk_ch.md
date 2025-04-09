@@ -1,3 +1,27 @@
+# 特許經營權被指違規　巴拿馬港口公司稱不符事實
+
+![特許經營權被指違規，巴拿馬港口公司稱不符事實。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799663_1_20250409223909.jpg&q=85)
+  
+
+巴拿馬的審計報告指，授予長和旗下子公司經營兩座港口的特許經營權，存在多項違規行為，違反合約條款。長和旗下的巴拿馬港口公司發表聲明反駁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799663-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799663-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799663-20250409.htm)
+
+---
+
 # 國家教育部發布赴美留學預警
 
   
@@ -23,6 +47,7 @@
 
 # 消息指警方再發現有人兜售Coldplay黃牛票將票控一男子
 
+![據了解，警方再發現有人懷疑兜售Coldplay演唱會「黃牛票」，將作票控。（資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799661_1_20250409224036.jpg&q=85)
   
 
 英國樂隊Coldplay第二晚在啟德體育園主場館舉行演唱會。據了解，警方再發現有人懷疑兜售「黃牛票」，將作票控。
@@ -46,6 +71,7 @@
 
 # 國家文化和旅遊部提示中國遊客充分評估赴美旅遊風險　籲謹慎前往
 
+![國家文化和旅遊部對赴美中國遊客發布風險提示。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799660_1_20250409224238.jpg&q=75)
   
 
 國家文化和旅遊部對赴美中國遊客發布風險提示。
