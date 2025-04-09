@@ -1,3 +1,72 @@
+# TikTok「不賣就禁」再延75天　商務部反對強取豪奪
+
+  
+
+美國總統特朗普日前宣布，延長中國字節跳動出售旗下短片分享平台TikTok在美業務的限期75日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm)
+
+---
+
+# 葉劉淑儀建議政府與最受關稅打擊行業商討具體支援措施
+
+  
+
+針對美國新一輪加徵關稅措施，行政會議召集人葉劉淑儀建議，政府與最受打擊行業，商討具體支援措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799635-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799635-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799635-20250409.htm)
+
+---
+
+# 港股倒升逾100點收市　分析料後市關注寬鬆貨幣政策何時推出
+
+  
+
+港股先低後高，恒生指數跌逾800點後，最終倒升逾100點收市，跟隨內地股市升反彈。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm)
+
+---
+
 # 外交部：若美方執意打貿易戰將奉陪到底
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799625_1_20250409182350.jpg&q=85)
@@ -264,6 +333,7 @@
 
 # 多米尼加夜總會屋頂倒塌　最少98人死亡
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799619_1_20250409183356.jpg&q=70)
   
 
 多米尼加首都聖多明各一間夜總會屋頂倒塌，最少98人死亡，過百人受傷，死者包括當地一名省長以及美國職棒大聯盟的退役球星。

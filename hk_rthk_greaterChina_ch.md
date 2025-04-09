@@ -1,3 +1,26 @@
+# TikTok「不賣就禁」再延75天　商務部反對強取豪奪
+
+  
+
+美國總統特朗普日前宣布，延長中國字節跳動出售旗下短片分享平台TikTok在美業務的限期75日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm)
+
+---
+
 # 外交部：若美方執意打貿易戰將奉陪到底
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799625_1_20250409182350.jpg&q=85)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm)
-
----
-
-# 敏昂萊慰問中國救援隊伍　感謝震後到緬全力救援
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799134_1_20250406200019.jpg&q=90)
-  
-
-緬甸大地震至今造成近3500人死亡，超過4000人受傷，另有214人失蹤。部分災區自周末起降雨，參與救援工作的聯合國人員擔心，會令救援工作複雜化，並增加爆發霍亂等疾病的風險，又說當地需要更多帳篷安置無家可歸的災民。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm)
 
 ---

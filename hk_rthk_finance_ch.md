@@ -1,3 +1,26 @@
+# 港股倒升逾100點收市　分析料後市關注寬鬆貨幣政策何時推出
+
+  
+
+港股先低後高，恒生指數跌逾800點後，最終倒升逾100點收市，跟隨內地股市升反彈。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm)
+
+---
+
 # 美國對等關稅生效　對華貨品關稅增至104%
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799624_1_20250409181624.jpg&q=90)
@@ -1411,30 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm)
-
----
-
-# 有樂迷稱啟德主場館音響佳　有觀眾指不能帶有蓋水瓶不方便
-
-![Coldplay在啟德主場館舉行首場演唱會。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799499_2_20250409010349.jpg&q=90)
-![有觀眾認為，演唱會整體有驚喜，氣氛一流。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799499_1_20250409004913.jpg&q=90)
-  
-
-英國樂隊Coldplay在啟德主場館舉行演唱會，昨晚大約10時半結束。完場後約一小時，所有觀眾已大致離開園區，秩序大致良好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm)
 
 ---

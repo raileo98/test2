@@ -1,3 +1,26 @@
+# TikTok「不賣就禁」再延75天　商務部反對強取豪奪
+
+  
+
+美國總統特朗普日前宣布，延長中國字節跳動出售旗下短片分享平台TikTok在美業務的限期75日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm)
+
+---
+
 # 美國對等關稅生效　對華貨品關稅增至104%
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799624_1_20250409181624.jpg&q=90)
@@ -72,6 +95,7 @@
 
 # 多米尼加夜總會屋頂倒塌　最少98人死亡
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799619_1_20250409183356.jpg&q=70)
   
 
 多米尼加首都聖多明各一間夜總會屋頂倒塌，最少98人死亡，過百人受傷，死者包括當地一名省長以及美國職棒大聯盟的退役球星。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm)
-
----
-
-# 李家超：美國霸凌行為濫施關稅　破壞世界經貿秩序
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799365_1_20250408102325.jpg&q=90)
-  
-
-行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，其中向香港產品加徵三成四關稅，連同早前宣布的兩成關稅、累計徵收五成四關稅。李家超說，香港除了面對全球風險，在轉口貿易和物流業會面對壓力，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm)
 
 ---

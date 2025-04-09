@@ -1,3 +1,49 @@
+# 葉劉淑儀建議政府與最受關稅打擊行業商討具體支援措施
+
+  
+
+針對美國新一輪加徵關稅措施，行政會議召集人葉劉淑儀建議，政府與最受打擊行業，商討具體支援措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799635-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799635-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799635-20250409.htm)
+
+---
+
+# 港股倒升逾100點收市　分析料後市關注寬鬆貨幣政策何時推出
+
+  
+
+港股先低後高，恒生指數跌逾800點後，最終倒升逾100點收市，跟隨內地股市升反彈。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm)
+
+---
+
 # 國家應急管理部向中國救援人員致以崇高敬意　為近年出動人數最多
 
 ![國家應急管理部指出，中國香港特區救援隊繼土耳其地震救援後，再次與內地救援隊伍在同一面國旗下開展國際救援行動。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799633_1_20250409181609.jpg&q=90)
@@ -1395,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799440-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799440-20250408.htm)
-
----
-
-# 串謀讓囚犯管有手機及香煙　懲教人員及囚犯分囚18及24個月
-
-![法官判刑時斥責被告蔑視監獄制度，沒有悔意。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799465_1_20250408182804.jpg&q=80)
-  
-
-兩名懲教助理縱容一名囚犯在塘福懲教所管有及使用手提電話，並為囚犯將未經授權香煙帶進監獄，兩人連同另外兩名涉案釋囚，被控串謀觸犯公職人員行為不當等罪。其中兩人認罪判囚，餘下三名被告經審訊後被裁定罪成，47歲一級懲教助理被判監禁18個月，32歲囚犯主腦監禁24個月，協助傳訊的釋囚則判囚9個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799465-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799465-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799465-20250408.htm)
-
----
-
-# 工總稱銀行彈性延長貿易融資貸款還款期　對中小企是很大幫忙
-
-![莊子雄說業界面對很大困難，特別是資金周轉，現金流亦受影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799462_1_20250408183155.jpg&q=80)
-  
-
-香港工業總會主席莊子雄表示，關稅戰對製造業、進出口業、物流等都帶來挑戰，不只香港的出口商，有不少美國進口商亦不知道如何應對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm)
 
 ---
