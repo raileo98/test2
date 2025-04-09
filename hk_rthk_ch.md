@@ -1,3 +1,46 @@
+# 金融學院：金融機構目前GenA.I.著眼點並非取代部分工種
+
+  
+
+金融學院轄下香港貨幣及金融研究中心，就金融服務業應用生成式人工智能（GenA.I.）發表報告顯示，金融機構積極應用GenA.I.，以提升生產力及營運效率，當中以大型機構應用率較高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799641-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799641-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799641-20250409.htm)
+
+---
+
+# 中方再反制　宣布對原產於美國所有進口產品再加徵50%關稅
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799640-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799640-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799640-20250409.htm)
+
+---
+
 # 政府提醒市民切勿誤信以人工智能偽造特首推介投資計劃短片
 
   
@@ -141,6 +184,7 @@
 
 # 港股倒升逾100點收市　分析料後市關注寬鬆貨幣政策何時推出
 
+![港股先低後高，恒生指數跌逾800點後，最終倒升逾100點收市。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799634_1_20250409185636.jpg&q=90)
   
 
 港股先低後高，恒生指數跌逾800點後，最終倒升逾100點收市，跟隨內地股市升反彈。

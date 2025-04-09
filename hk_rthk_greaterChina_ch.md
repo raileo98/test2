@@ -1,3 +1,23 @@
+# 中方再反制　宣布對原產於美國所有進口產品再加徵50%關稅
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799640-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799640-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799640-20250409.htm)
+
+---
+
 # TikTok「不賣就禁」再延75天　商務部反對強取豪奪
 
   
@@ -1411,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799141-20250406.htm)
-
----
-
-# 清明假期內地全社會跨區域人員流動量創新高
-
-![清明假期，鐵路客運量預計超過5377萬人次，比去年同期增長8.2%。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799136_1_20250406215132.jpg&q=85)
-  
-
-交通運輸部數據顯示，清明假期三天，預計全社會跨區域人員流動量約7億9千萬人次，創清明假期出行量新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799136-20250406.htm)
 
 ---
