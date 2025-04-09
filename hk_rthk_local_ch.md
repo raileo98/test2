@@ -1,3 +1,26 @@
+# 政府稱將研究加強西貢東壩小巴服務
+
+  
+
+政府表示，將研究加強西貢萬宜水庫東壩的小巴服務。在立法會財委會特別會議上，選委界議員陸瀚民指出，政府推動生態旅遊，但近日萬宜水庫東壩出現交通亂象問題，包括有「黑的」亂收車資、有旅客要從東壩乘搭快艇到西貢碼頭離開等，詢問當局有何措施應對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799649-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799649-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799649-20250409.htm)
+
+---
+
 # 17歲少女乙型流感併發腦病變　情況嚴重
 
   
@@ -47,6 +70,9 @@
 # 特區政府稱絕不代美國收所謂關稅　稍後公布暫停處理寄美郵遞安排
 
   
+
+特區政府強烈反對和不滿美國向香港產品進一步加徵所謂對等關稅，以及由5月2日起取消香港產品的小額免稅待遇，並調高付運美國而內載貨品的郵件需繳納的關稅。
+
   
 
 
@@ -1407,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799476-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799476-20250408.htm)
-
----
-
-# 電車5月12日起加票價　公司稱有助確保電車服務持續營運和發展
-
-![香港電車將繼續致力為全港市民提供安全、環保及便利的出行服務，同時履行保育這項重要的香港歷史文化遺產的責任。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799475_1_20250408213822.jpg&q=85)
-  
-
-行政長官會同行政會議通過電車加價，香港電車公司對此表示歡迎，並指今次票價調整將大大有助於確保電車服務能持續營運和發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799475-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799475-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799475-20250408.htm)
 
 ---
