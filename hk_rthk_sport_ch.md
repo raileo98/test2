@@ -1,3 +1,27 @@
+# 歐聯八強首回合　巴塞羅那4:0多蒙特　聖日耳門就3:0維拉
+
+![巴塞羅那今仗有利雲度夫斯基（右二）連續攻入兩球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799692_1_20250410073427.jpg&q=90)
+  
+
+歐聯八強首回合，巴塞羅那4:0大勝多蒙特，巴黎聖日耳門就3:1反勝阿士東維拉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799692-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799692-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799692-20250410.htm)
+
+---
+
 # 歐聯8強首回合　阿仙奴主場3:0皇馬　拜仁作客1:2國際米蘭
 
 ![迪格蘭賴斯射入兩個自由球，協助阿仙奴取勝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799517_1_20250409072257.jpg&q=90)
@@ -1434,30 +1458,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797731-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797731-20250327.htm)
-
----
-
-# 網球未來兩年續成精英運動A級項目　黃澤林稱感謝政府及網球總會
-
-![黃澤林說，感謝團隊背後的一直支持，亦要多謝所有香港支持自己的人。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797611_1_20250327072355.jpg&q=90)
-![創下本港網球手在ATP-1000分賽最佳成績的黃澤林昨晚返抵香港，他表示，美國邁阿密網球公開賽很累但很開心打得不錯，但始終不是參加很多大滿貫或ATP-1000分賽，自己仍未習慣，需要時間適應和學習。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797611_2_20250327175057.jpg&q=90)
-  
-
-創下本港網球手在ATP-1000分賽最佳成績的黃澤林昨晚返抵香港，他表示，美國邁阿密網球公開賽很累但很開心打得不錯，但始終不是參加很多大滿貫或ATP-1000分賽，自己仍未習慣，需要時間適應和學習。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm)
 
 ---

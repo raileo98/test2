@@ -1,3 +1,27 @@
+# 歐聯八強首回合　巴塞羅那4:0多蒙特　聖日耳門就3:0維拉
+
+![巴塞羅那今仗有利雲度夫斯基（右二）連續攻入兩球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799692_1_20250410073427.jpg&q=90)
+  
+
+歐聯八強首回合，巴塞羅那4:0大勝多蒙特，巴黎聖日耳門就3:1反勝阿士東維拉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799692-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799692-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799692-20250410.htm)
+
+---
+
 # 美元兌日圓和瑞士法郎反彈逾1%
 
 ![美元兌日圓和瑞士法郎等，美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799690_1_20250410071102.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799621-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799621-20250409.htm)
-
----
-
-# 馬來西亞：習近平下周二起訪問大馬
-
-![馬來西亞政府公布，國家主席習近平下周二起，訪問當地三日。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799618_1_20250409165512.jpg&q=90)
-  
-
-馬來西亞政府公布，國家主席習近平下周二起，訪問當地三日。中方未有正式公布。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799618-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799618-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799618-20250409.htm)
 
 ---
