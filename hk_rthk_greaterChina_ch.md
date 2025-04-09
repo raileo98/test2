@@ -1,9 +1,104 @@
-# 外交部堅決反對美防長抹黑中國與巴拿馬合作言論
+# 中國救援隊包括香港隊員抵達北京　國家應急部在機場迎接
 
-![外交部發言人林劍表示，美國高級官員抹黑破壞中巴合作，再次暴露美國霸道霸凌的面目。(外交部網頁)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799597_1_20250409151552.jpg&q=90)
   
 
-在北京，外交部堅決反對美國國防部長赫格塞思訪問巴拿馬期間，發表關於中國和中巴關係的言論。發言人林劍表示，美國的高級官員惡意攻擊中國，抹黑破壞中巴合作，再次暴露了美國霸道霸凌的面目。中方敦促美方停止造謠生事，停止在運河問題上惡意關聯中國，為自己控制運河找藉口。他又指妥協退讓換不來主權與尊重，只會讓霸凌的氣炎更加囂張。
+到緬甸參與地震救援行動的中國救援隊、中國國際救援隊和中國香港特區救援隊完成任務回國，他們乘坐的4架中國空軍飛機，下午約4時，抵達北京首都國際機場，國家應急部在機場舉行迎接儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm)
+
+---
+
+# 回應美防長訪日言論　國防部促不要把亞太地區當成地緣博弈狩獵場
+
+![張曉剛反問，美方有人只顧著為日本軍國主義塗脂抹粉，又如何告慰那些為抗擊法西斯英勇犧牲的戰士?](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799603_1_20250409154846.jpg&q=90)
+  
+
+在北京，國防部回應美國國防部長赫格塞思訪問日本時言論，敦促有關國家停止散播錯誤言論，不要把亞太地區當成地緣博弈的「狩獵場」，不要挑動集團政治和軍事對抗，損害地區人民的安全福祉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799603-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799603-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799603-20250409.htm)
+
+---
+
+# 烏克蘭稱俘獲2名中國士兵　外交部：正核實情況
+
+![烏克蘭俘獲2名中國士兵，中方指正核實情況。（澤連斯基社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799601_1_20250409153859.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，烏軍在東部頓涅茨克，俘虜2名為俄軍作戰的中國公民。在北京，外交部表示，中方正向烏克蘭核實有關的情況。發言人林劍表示，中國政府始終要求公民遠離武裝衝突區域，避免以任何形式，捲入武裝衝突，尤其應應避免參加任何一方的軍事行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm)
+
+---
+
+# 外交部指絕不接受美國以關稅極限施壓
+
+![外交部發言人林劍表示，美方對中國濫施關稅，一味地進行極限施壓，對這種霸道霸凌行徑，中方堅決反對，絕不接受。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799599_1_20250409152858.jpg&q=90)
+  
+
+美國總統特朗普對華加徵104%關稅生效。在北京，外交部發言人林劍表示，美方對中國濫施關稅，一味地進行極限施壓，對這種霸道霸凌行徑，中方堅決反對，絕不接受。美方如果真的想通過對話談判解決問題，就應該拿出平等、尊重、互惠的態度。如果美方置兩國和國際社會的利益於不顧，執意打關稅戰、貿易戰，中方必將奉陪到底。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799599-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799599-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799599-20250409.htm)
+
+---
+
+# 外交部堅決反對美防長抹黑中國與巴拿馬合作言論
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799597_1_20250409151552.jpg&q=90)
+  
+
+在北京，外交部堅決反對美國國防部長赫格塞思訪問巴拿馬期間，發表關於中國和中巴關係的言論。發言人林劍表示，美國的高級官員惡意攻擊中國，抹黑破壞中巴合作，再次暴露了美國霸道霸凌的面目。中方敦促美方停止造謠生事，停止在運河問題上惡意關聯中國，為自己控制運河找藉口。他又指妥協退讓換不來主權與尊重，只會讓霸凌的氣焰更加囂張。
 
   
 
@@ -98,6 +193,7 @@
 
 # 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
 
+![發言人指美國個別政客公然詆毁抹黑香港經貿辦，不僅干擾破壞港美正常交流合作，更暴露出其看不得香港安、見不得香港好的險惡用心。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799587_1_20250409154956.jpg&q=85)
   
 
 針對美國個别政客再次推動有關法案，詆毁香港自治和法治，叫囂取消香港駐美經貿辦事處有關待遇甚至關閉辦事處，外交部駐港公署發言人表示強烈譴責和堅決反對。
@@ -1339,101 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799058-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799058-20250405.htm)
-
----
-
-# 外交部：中國政府強烈譴責美國濫施關稅　將採措施維護利益
-
-![中國強烈譴責和堅決反對美國濫施關稅，指施壓和威脅不是同中方打交道的正確方式。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799055_1_20250405191815.jpg&q=80)
-  
-
-中國強烈譴責和堅決反對美國濫施關稅，指施壓和威脅不是同中方打交道的正確方式。中方將採取堅決措施，維護自身主權安全發展利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799055-20250405.htm)
-
----
-
-# 柬埔寨雲壤海軍基地正式啟用　中柬派員維持正常運轉
-
-![柬埔寨首相洪瑪奈（前左）和中共中央軍委聯合參謀部副參謀長曹青鋒（前右）共同主持雲壤海軍基地啟用儀式。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799035_1_20250405154619.jpg&q=90)
-  
-
-由中國援助升級改造的柬埔寨雲壤海軍基地及訓練中心正式啟用，中國和柬埔寨將派駐必要人員共同維持中心正常運轉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799035-20250405.htm)
-
----
-
-# 人民日報評論指美國所謂「對等關稅」將反噬美國經濟
-
-![人民日報發表評論文章，批評美國不知所云的所謂「對等關稅」，將反噬美國經濟。（人民網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799033_1_20250405151637.jpg&q=90)
-  
-
-美國今日起對所有出口到美國的商品徵收至少10%對等關稅，當中中國的關稅是34%。人民日報發表評論文章，批評美國不知所云的所謂「對等關稅」，是赤裸裸的單邊貿易保護主義政策，不僅將反噬美國經濟，更將嚴重破壞多邊貿易體制，衝擊全球產業鏈供應鏈，加劇國際貿易緊張和全球經濟分裂。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm)
-
----
-
-# 國家統計局：今年1至2月份中國消費市場運行平穩向好
-
-![國家統計局數據顯示，今年1月至2月份中國消費市場運行平穩向好。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799029_1_20250405134002.jpg&q=85)
-  
-
-國家統計局數據顯示，今年1月至2月份中國消費市場運行平穩向好，當中社會消費品零售按年增長4.0%，總額83731億元，增長速度較去年全年加快0.5個百分點。其中商品零售額增長3.9%，加快0.7個百分點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799029-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799029-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799029-20250405.htm)
 
 ---

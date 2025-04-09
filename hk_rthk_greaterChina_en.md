@@ -1,3 +1,99 @@
+# China 'verifying reports of nationals held in Ukraine'
+
+![Foreign Ministry spokesman Lin Jian urges Chinese citizens to avoid conflict zones and participating in wars. Photo: Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799609_1_20250409161617.jpg&q=90)
+  
+
+China said on Wednesday it is verifying reports of Chinese nationals being captured in Ukraine.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799609-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799609-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799609-20250409.htm)
+
+---
+
+# 'China has firm will to take countermeasures'
+
+![A Commerce Ministry official says China hopes the US will immediately remove its unilateral imposition of tariffs. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799607_1_20250409160409.jpg&q=80)
+  
+
+The Commerce Ministry said China will resolutely take countermeasures and fight till the end if the United States insists on further escalating economic and trade restrictive measures, with firm will and abundant means.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799607-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799607-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799607-20250409.htm)
+
+---
+
+# Xi: Strengthen ties with neighbouring countries
+
+![President Xi Jinping has addressed the central conference on work related to neighbouring countries. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799604_1_20250409155300.jpg&q=90)
+  
+
+President Xi Jinping has made a key speech at a government meeting in Beijing, where he stressed the importance of neighbouring countries and the need to deepen all-round cooperation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799604-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799604-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799604-20250409.htm)
+
+---
+
+# China-US trade ties mutually beneficial: white paper
+
+![The white paper says the world anticipates China-US cooperation to generate more development opportunities. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799602_1_20250409154105.jpg&q=90)
+  
+
+China-US economic and trade relations are mutually beneficial and win-win in nature, and cooperation benefits both sides while confrontation harms both, said a white paper released by the State Council Information Office on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799602-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799602-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799602-20250409.htm)
+
+---
+
 # Fatal fire sweeps through Hebei nursing home
 
 ![Fatal fire sweeps through Hebei nursing home](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799564_1_20250409114419.jpg&q=90)
@@ -1343,101 +1439,5 @@ China's hopes of directly qualifying for the 2026 World Cup took a hit after suf
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm)
-
----
-
-# Boao forum offers upbeat forecast on Asia growth
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797323_1_20250325164614.jpg&q=80)
-  
-
-Asia's economy is likely to continue its robust growth this year despite challenges, according to a report by the Boao Forum for Asia.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm)
-
----
-
-# Beijing looking to boost ties with Lisbon: Wang Yi
-
-![Wang Yi says China is willing to work with Portugal to promote China and Europe to become strategic partners with mutual trust. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797311_1_20250325152545.jpg&q=90)
-  
-
-Beijing is willing to work with Portugal to build a more stable, fruitful and dynamic relationship, Foreign Minister Wang Yi told his Portuguese counterpart in Beijing on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797311-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797311-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797311-20250325.htm)
-
----
-
-# Chinese staff of US due diligence firm freed
-
-![Mintz Group's office in Beijing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797274_1_20250325111046.jpg&q=90)
-  
-
-Chinese authorities have released all employees of a US corporate due diligence firm detained in Beijing two years ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm)
-
----
-
-# 'Trump's fees on Chinese ships will backfire'
-
-![A container ship sails beneath the Golden Gate Bridge as it makes its way into port in San Francisco. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797249_1_20250325083906.jpg&q=90)
-  
-
-President Donald Trump's plan to revitalise the US shipbuilding industry is likely to backfire because it relies on proposed fees on China-linked vessels that will hurt domestic ship operators, seaports, exporters and jobs, industry executives said at US Trade Representative (USTR) hearings on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm)
 
 ---

@@ -1,3 +1,99 @@
+# China 'verifying reports of nationals held in Ukraine'
+
+![Foreign Ministry spokesman Lin Jian urges Chinese citizens to avoid conflict zones and participating in wars. Photo: Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799609_1_20250409161617.jpg&q=90)
+  
+
+China said on Wednesday it is verifying reports of Chinese nationals being captured in Ukraine.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799609-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799609-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799609-20250409.htm)
+
+---
+
+# 'China has firm will to take countermeasures'
+
+![A Commerce Ministry official says China hopes the US will immediately remove its unilateral imposition of tariffs. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799607_1_20250409160409.jpg&q=80)
+  
+
+The Commerce Ministry said China will resolutely take countermeasures and fight till the end if the United States insists on further escalating economic and trade restrictive measures, with firm will and abundant means.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799607-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799607-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799607-20250409.htm)
+
+---
+
+# Xi: Strengthen ties with neighbouring countries
+
+![President Xi Jinping has addressed the central conference on work related to neighbouring countries. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799604_1_20250409155300.jpg&q=90)
+  
+
+President Xi Jinping has made a key speech at a government meeting in Beijing, where he stressed the importance of neighbouring countries and the need to deepen all-round cooperation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799604-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799604-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799604-20250409.htm)
+
+---
+
+# China-US trade ties mutually beneficial: white paper
+
+![The white paper says the world anticipates China-US cooperation to generate more development opportunities. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799602_1_20250409154105.jpg&q=90)
+  
+
+China-US economic and trade relations are mutually beneficial and win-win in nature, and cooperation benefits both sides while confrontation harms both, said a white paper released by the State Council Information Office on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799602-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799602-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799602-20250409.htm)
+
+---
+
 # Social worker jailed over riot conviction in retrial
 
 ![The District Court has also sentenced three other defendants in the same retrial. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799588_1_20250409141131.jpg&q=90)
@@ -1339,101 +1435,5 @@ The US Supreme Court handed Donald Trump a victory on Monday by letting him use 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm)
-
----
-
-# Wall Street closes mostly lower but no big sell-off
-
-![The Dow Jones and the S&P 500 both closed less than a percentage lower, while the Nasdaq rose slightly. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799327_1_20250408051648.jpg&q=90)
-  
-
-Wall Street stocks finished mostly lower on Monday following a volatile session amid rising recession worries due to US President Donald Trump's trade wars.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799327-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799327-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799327-20250408.htm)
-
----
-
-# Trump threatens further 50pc tariffs on China
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799320_1_20250408012952.jpg&q=90)
-  
-
-US President Donald Trump on Monday threatened huge additional tariffs on imports from China, raising the possibility of further escalation in a trade war that has already wiped trillions of dollars from global markets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm)
-
----
-
-# Wild swings on Wall Street amid tariff fears
-
-![All three major US indices were at more than one-year lows in early trading on Monday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799307_1_20250407222802.jpg&q=85)
-  
-
-Wall Street stocks opened sharply lower on Monday amid worries that a trade war induced by US President Donald Trump's tariffs will spark a global economic slowdown.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799307-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799307-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799307-20250407.htm)
-
----
-
-# Chinese culture festival 'modernises tradition'
-
-!["Dongpo: Life in Poems" will be performed by the China Oriental Performing Arts Group. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799291_1_20250407215236.jpg&q=90)
-  
-
-A modern dance drama inspired by renowned Chinese poet Su Dongpo and innovative works relating to tea are some of the highlights of an upcoming Chinese Culture Festival organised by the Leisure and Cultural Services Department (LCSD).
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm)
 
 ---

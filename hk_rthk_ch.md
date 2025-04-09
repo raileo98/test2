@@ -1,3 +1,242 @@
+# 港股先低後高　收市升136點
+
+![恒指一度倒升逾300點，收市報20264點，升136點，升幅0.68%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799613_2_20250409163931.jpg&q=80)
+  
+
+港股先低後高，恒指低開逾600點後，最多跌逾800點，低見19260點，其後有傳內地高層領導人或今日召開重要會議，討論提振經濟及穩定資本市場措施，恒指跟隨內地股市收復全部失地，一度倒升逾300點，收市報20264點，升136點，升幅0.68%。主板總成交金額近4124億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799613-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799613-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799613-20250409.htm)
+
+---
+
+# 中國救援隊包括香港隊員抵達北京　國家應急部在機場迎接
+
+  
+
+到緬甸參與地震救援行動的中國救援隊、中國國際救援隊和中國香港特區救援隊完成任務回國，他們乘坐的4架中國空軍飛機，下午約4時，抵達北京首都國際機場，國家應急部在機場舉行迎接儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm)
+
+---
+
+# 物流業形容美國加徵關稅帶來毀滅性影響　可趁機開發不同地區市場
+
+![劉浩然表示，業界相信，未來數個月，公司營運上不容樂觀，但不會坐以待斃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799611_1_20250409163218.jpg&q=80)
+  
+
+美國對來自中國內地和香港的小額包裹關稅將增至90%，下月2日生效。香港貨運物流業協會主席劉浩然說，今次美國的做法，對所有電商平台出貨，可說是帶來毀滅性影響，涉及所有供應鏈及產品，小至手機殻，大至大型家電，甚至食品及其他民生日用品都會受影響。他說，業界相信，未來數個月，公司營運上不容樂觀，但不會坐以待斃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799611-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799611-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799611-20250409.htm)
+
+---
+
+# 3名非本地培訓牙醫上月就任　分別在內地及海外獲取資格
+
+![3人分別在內地及海外院校獲得牙醫專業資格後，曾於內地、英國及澳洲執業，熟諳粵語，署方已為他們提供一星期入職培訓。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799610_1_20250409162258.jpg&q=90)
+  
+
+首批非本地培訓牙醫已加入衞生署，其中3人已於上月10日就任，為公眾提供牙科服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799610-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799610-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799610-20250409.htm)
+
+---
+
+# 海關檢約120萬元冒牌貨物　拘捕64歲貨車司機
+
+![海關檢獲的懷疑冒牌貨物。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799606_1_20250409161232.jpg&q=85)
+  
+
+海關早前在港珠澳大橋香港口岸檢獲約6600件懷疑冒牌貨物，估計市值約120萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799606-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799606-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799606-20250409.htm)
+
+---
+
+# 港股升逾200點　科指升逾3%
+
+![恒指曾經升逾300點，較早時報20366點，升238點，升幅1.19%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799605_1_20250409162303.jpg&q=75)
+  
+
+港股掉頭上升，恒生指數曾經升逾300點，較早時報20366點，升238點，升幅1.19%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799605-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799605-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799605-20250409.htm)
+
+---
+
+# 回應美防長訪日言論　國防部促不要把亞太地區當成地緣博弈狩獵場
+
+![張曉剛反問，美方有人只顧著為日本軍國主義塗脂抹粉，又如何告慰那些為抗擊法西斯英勇犧牲的戰士?](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799603_1_20250409154846.jpg&q=90)
+  
+
+在北京，國防部回應美國國防部長赫格塞思訪問日本時言論，敦促有關國家停止散播錯誤言論，不要把亞太地區當成地緣博弈的「狩獵場」，不要挑動集團政治和軍事對抗，損害地區人民的安全福祉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799603-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799603-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799603-20250409.htm)
+
+---
+
+# 烏克蘭稱俘獲2名中國士兵　外交部：正核實情況
+
+![烏克蘭俘獲2名中國士兵，中方指正核實情況。（澤連斯基社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799601_1_20250409153859.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，烏軍在東部頓涅茨克，俘虜2名為俄軍作戰的中國公民。在北京，外交部表示，中方正向烏克蘭核實有關的情況。發言人林劍表示，中國政府始終要求公民遠離武裝衝突區域，避免以任何形式，捲入武裝衝突，尤其應應避免參加任何一方的軍事行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm)
+
+---
+
+# 金融學院料金融服務界應用Gen.A.I.於3至5年內達87%
+
+![金融學院轄下香港貨幣及金融研究中心發表報告，料金融服務界應用生成式人工智能（Gen.A.I.）於3至5年內達87%。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799600_1_20250409162338.jpg&q=90)
+  
+
+金融學院轄下香港貨幣及金融研究中心，就金融服務業應用生成式人工智能（GenA.I.）現狀、發展路向、風險管理、人才發展策略發表報告，指出75%受訪金融機構已推出至少一個GenA.I.用例，或正進行試行計劃和設計用例，探索具潛質的投資領域。預計相關比率未來3-5年會上升至87%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799600-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799600-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799600-20250409.htm)
+
+---
+
+# 外交部指絕不接受美國以關稅極限施壓
+
+![外交部發言人林劍表示，美方對中國濫施關稅，一味地進行極限施壓，對這種霸道霸凌行徑，中方堅決反對，絕不接受。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799599_1_20250409152858.jpg&q=90)
+  
+
+美國總統特朗普對華加徵104%關稅生效。在北京，外交部發言人林劍表示，美方對中國濫施關稅，一味地進行極限施壓，對這種霸道霸凌行徑，中方堅決反對，絕不接受。美方如果真的想通過對話談判解決問題，就應該拿出平等、尊重、互惠的態度。如果美方置兩國和國際社會的利益於不顧，執意打關稅戰、貿易戰，中方必將奉陪到底。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799599-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799599-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799599-20250409.htm)
+
+---
+
 # 孫玉菡指大灣區青年就業計劃達預期效果　入職人數跌有很多原因
 
 ![孫玉菡說，「大灣區青年就業計劃」推行至今達到預期效果。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799598_1_20250409153126.jpg&q=90)
@@ -24,10 +263,10 @@
 
 # 外交部堅決反對美防長抹黑中國與巴拿馬合作言論
 
-![外交部發言人林劍表示，美國高級官員抹黑破壞中巴合作，再次暴露美國霸道霸凌的面目。(外交部網頁)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799597_1_20250409151552.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799597_1_20250409151552.jpg&q=90)
   
 
-在北京，外交部堅決反對美國國防部長赫格塞思訪問巴拿馬期間，發表關於中國和中巴關係的言論。發言人林劍表示，美國的高級官員惡意攻擊中國，抹黑破壞中巴合作，再次暴露了美國霸道霸凌的面目。中方敦促美方停止造謠生事，停止在運河問題上惡意關聯中國，為自己控制運河找藉口。他又指妥協退讓換不來主權與尊重，只會讓霸凌的氣炎更加囂張。
+在北京，外交部堅決反對美國國防部長赫格塞思訪問巴拿馬期間，發表關於中國和中巴關係的言論。發言人林劍表示，美國的高級官員惡意攻擊中國，抹黑破壞中巴合作，再次暴露了美國霸道霸凌的面目。中方敦促美方停止造謠生事，停止在運河問題上惡意關聯中國，為自己控制運河找藉口。他又指妥協退讓換不來主權與尊重，只會讓霸凌的氣焰更加囂張。
 
   
 
@@ -46,7 +285,7 @@
 
 ---
 
-# 滬深股市高開低走　報道：內地高層領導人或今日召開重要會議
+# 滬深股市先跌後升　報道：內地高層領導人或今日召開重要會議
 
 ![上證指數收報3186點，升41點，升幅1.31%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799595_1_20250409150621.jpg&q=90)
   
@@ -242,6 +481,7 @@
 
 # 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
 
+![發言人指美國個別政客公然詆毁抹黑香港經貿辦，不僅干擾破壞港美正常交流合作，更暴露出其看不得香港安、見不得香港好的險惡用心。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799587_1_20250409154956.jpg&q=85)
   
 
 針對美國個别政客再次推動有關法案，詆毁香港自治和法治，叫囂取消香港駐美經貿辦事處有關待遇甚至關閉辦事處，外交部駐港公署發言人表示強烈譴責和堅決反對。

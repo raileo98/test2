@@ -1,3 +1,51 @@
+# China 'verifying reports of nationals held in Ukraine'
+
+![Foreign Ministry spokesman Lin Jian urges Chinese citizens to avoid conflict zones and participating in wars. Photo: Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799609_1_20250409161617.jpg&q=90)
+  
+
+China said on Wednesday it is verifying reports of Chinese nationals being captured in Ukraine.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799609-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799609-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799609-20250409.htm)
+
+---
+
+# China-US trade ties mutually beneficial: white paper
+
+![The white paper says the world anticipates China-US cooperation to generate more development opportunities. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799602_1_20250409154105.jpg&q=90)
+  
+
+China-US economic and trade relations are mutually beneficial and win-win in nature, and cooperation benefits both sides while confrontation harms both, said a white paper released by the State Council Information Office on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799602-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799602-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799602-20250409.htm)
+
+---
+
 # Universal to build first Europe theme park in UK: PM
 
 ![Britain's Prime Minister Keir Starmer (right) welcomes President of the Comcast Corporation Mike Cavanagh to Downing Street, London. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799527_1_20250409081130.jpg&q=90)
@@ -1387,53 +1435,5 @@ Myanmar's junta announced a temporary ceasefire on Wednesday as the death toll f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm)
-
----
-
-# Trump unveils sweeping global tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798719_1_20250403055136.jpg&q=90)
-  
-
-US President Donald Trump on Wednesday unveiled a raft of punishing tariffs targeting countries around the world including some of its closest trading partners, in a move that risks sparking a ruinous trade war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm)
-
----
-
-# Israel to seize 'large areas' of Gaza
-
-![Israel carries out deadly air strikes in southern and central Gaza. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798686_1_20250402213633.jpg&q=90)
-  
-
-Israel said on Wednesday it would expand its military operations and seize "large areas" of the Gaza Strip where rescuers said 34 people were killed in Israeli strikes, including on a United Nations building.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm)
 
 ---
