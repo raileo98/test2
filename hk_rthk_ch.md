@@ -1,5 +1,77 @@
+# 《環看天下》：平壤馬拉松相隔六年復辦　北韓或擴大向外國人開放
+
+![北韓相隔6年復辦平壤國際馬拉松賽，並容許外國人參與。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799533_1_20250409091038.jpg&q=90)
+  
+
+北韓日前舉辦平壤國際馬拉松賽，除了北韓跑手外，據報有大約200名外國跑手參加。北韓傳媒報道，職業全馬和半馬賽事男女子組，都由北韓跑手贏得金牌。有多名香港跑手在業餘組賽事揚威。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799533-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799533-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799533-20250409.htm)
+
+---
+
+# 台股初段跌逾1%
+
+![台灣加權指數較早時報18239點，跌220點，跌幅1.19%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799531_1_20250409090609.jpg&q=90)
+  
+
+台灣股市初段延續跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799531-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799531-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799531-20250409.htm)
+
+---
+
+# 前特首梁振英女兒梁齊昕離世　終年33歲
+
+  
+
+全國政協副主席、前行政長官梁振英表示，女兒梁齊昕離世。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799530-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799530-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799530-20250409.htm)
+
+---
+
 # 金與正稱北韓無核化是妄想　擁核國地位不因任何人否認而動搖
 
+![金與正強烈譴責美日韓外長日前重申致力在北韓徹底無核化，是最嚴重的敵對行為。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799528_1_20250409084451.jpg&q=90)
   
 
 北韓《朝中社》報道，勞動黨中央委員會副部長金與正強調北韓無核化是不可實現的妄想，強烈譴責美日韓外長日前重申致力在北韓徹底無核化，是最嚴重的敵對行為。
@@ -1369,77 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm)
-
----
-
-# 考評局稱公民與社會發展科試場運作暢順約九成考生使用「報到易」
-
-![考評局表示，有約48000名考生於約450個一般試場及逾740個特別試場應考。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799458_1_20250408183117.jpg&q=80)
-  
-
-文憑試公民與社會發展科今日開考。考評局表示，有約48000名考生於約450個一般試場及逾740個特別試場應考，各試場學校的整體運作暢順。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799458-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799458-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799458-20250408.htm)
-
----
-
-# 涉販運懷疑大麻花及大麻產品　20歲男子明日提堂
-
-![海關檢獲的懷疑毒品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799457_1_20250408183041.jpg&q=85)
-  
-
-海關在大埔檢獲一批懷疑大麻花及大麻產品等，估計市值約100萬元，拘捕一名20歲男子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799457-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799457-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799457-20250408.htm)
-
----
-
-# 中海油控股股東擬斥資最多40億元增持AH股
-
-![中國海油集團計劃未來1年內，增持中海油A股及港股股份，最多涉及40億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799456_1_20250408174749.jpg&q=90)
-  
-
-中海油公布，控股股東中國海油集團計劃未來1年內，動用自有資金增持中海油A股及港股股份，涉及金額介乎20億至40億元人民幣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799456-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799456-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799456-20250408.htm)
 
 ---

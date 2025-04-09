@@ -1,5 +1,30 @@
+# 《環看天下》：平壤馬拉松相隔六年復辦　北韓或擴大向外國人開放
+
+![北韓相隔6年復辦平壤國際馬拉松賽，並容許外國人參與。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799533_1_20250409091038.jpg&q=90)
+  
+
+北韓日前舉辦平壤國際馬拉松賽，除了北韓跑手外，據報有大約200名外國跑手參加。北韓傳媒報道，職業全馬和半馬賽事男女子組，都由北韓跑手贏得金牌。有多名香港跑手在業餘組賽事揚威。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799533-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799533-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799533-20250409.htm)
+
+---
+
 # 金與正稱北韓無核化是妄想　擁核國地位不因任何人否認而動搖
 
+![金與正強烈譴責美日韓外長日前重申致力在北韓徹底無核化，是最嚴重的敵對行為。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799528_1_20250409084451.jpg&q=90)
   
 
 北韓《朝中社》報道，勞動黨中央委員會副部長金與正強調北韓無核化是不可實現的妄想，強烈譴責美日韓外長日前重申致力在北韓徹底無核化，是最嚴重的敵對行為。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799298-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799298-20250407.htm)
-
----
-
-# 兩名中國人於南韓空軍基地附近拍攝　遭刑事立案禁止離境
-
-![兩名中國人於南韓空軍基地附近拍攝　遭刑事立案禁止離境](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799274_1_20250407172049.jpg&q=90)
-  
-
-兩名中國人在南韓水原空軍基地附近拍攝戰機，被警方刑事立案，禁止離境。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799274-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799274-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799274-20250407.htm)
 
 ---

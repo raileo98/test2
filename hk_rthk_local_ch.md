@@ -1,3 +1,26 @@
+# 前特首梁振英女兒梁齊昕離世　終年33歲
+
+  
+
+全國政協副主席、前行政長官梁振英表示，女兒梁齊昕離世。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799530-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799530-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799530-20250409.htm)
+
+---
+
 # 孫東稱國際創科營商周將向世界展示香港創科實力與獨特優勢
 
 ![孫東表示「國際創科營商周」將匯聚來自29個國家和地區的創科界別菁英及超過2800家展商。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799503_1_20250409024205.jpg&q=90)
@@ -1421,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799365-20250408.htm)
-
----
-
-# 崔定邦稱Coldplay有助帶動旅客訪港　交通安排應無問題
-
-![崔定邦說，今次Coldplay演唱會，絕對有助帶動不同地區的旅客訪港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799363_1_20250408102153.jpg&q=80)
-  
-
-啟德體育園主場館首次舉辦大型商業演唱會，英國樂隊Coldplay今晚首場演出。旅遊業促進會總幹事崔定邦說，從七欖賽事成功舉辦，到今次Coldplay的表演，都反映本港舉辦大型盛事活動，絕對有助帶動不同地區的旅客訪港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799363-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799363-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799363-20250408.htm)
 
 ---

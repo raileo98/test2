@@ -1,3 +1,27 @@
+# 台股初段跌逾1%
+
+![台灣加權指數較早時報18239點，跌220點，跌幅1.19%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799531_1_20250409090609.jpg&q=90)
+  
+
+台灣股市初段延續跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799531-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799531-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799531-20250409.htm)
+
+---
+
 # 韓股初段偏軟
 
 ![首爾綜合指數較早時報2330點，跌3點，跌幅0.16%。（法新社資料圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799526_2_20250409080623.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799380-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799380-20250408.htm)
-
----
-
-# 回應長和擬售巴拿馬港口　李家超稱交易須合法合規
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799376_1_20250408112823.jpg&q=75)
-  
-
-行政長官李家超出行政會議前，再度回應長和早前計劃出售巴拿馬港口資產事件，並重申三點看法，指出社會就事件有很多議論，反映對事件的關切，而這些關切值得重視。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm)
 
 ---
