@@ -1,3 +1,26 @@
+# 東江水被指大腸桿菌含量超標　發展局指內容以偏概全
+
+  
+
+發展局反駁有網上媒體報道聲稱東江水大腸桿菌含量超標，認為有關內容以偏概全，強調香港接收的東江水水質完全符合國家就有關飲用水訂定的最高標準，水務署一直嚴密監察香港的食水水質，監測結果顯示食水樣本完全符合香港食水標準。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799665-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799665-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799665-20250409.htm)
+
+---
+
 # 美國2月批發庫存按月增長0.3%合乎預期
 
 ![美國2月批發銷售轉升2.4%，扭轉1月的下跌0.9%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799664_1_20250409224524.jpg&q=80)

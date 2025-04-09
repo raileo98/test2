@@ -1,3 +1,26 @@
+# 東江水被指大腸桿菌含量超標　發展局指內容以偏概全
+
+  
+
+發展局反駁有網上媒體報道聲稱東江水大腸桿菌含量超標，認為有關內容以偏概全，強調香港接收的東江水水質完全符合國家就有關飲用水訂定的最高標準，水務署一直嚴密監察香港的食水水質，監測結果顯示食水樣本完全符合香港食水標準。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799665-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799665-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799665-20250409.htm)
+
+---
+
 # 特許經營權被指違規　巴拿馬港口公司稱不符事實
 
 ![特許經營權被指違規，巴拿馬港口公司稱不符事實。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799663_1_20250409223909.jpg&q=85)
@@ -740,30 +763,6 @@
 
 ---
 
-# 文體旅局召開會議統籌黃金周預備工作　羅淑佩籲盡力接待旅客
-
-![文化體育及旅遊局召開會議統籌內地勞動節黃金周旅客訪港預備工作，與各單位代表討論旅客訪港安排。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799584_1_20250409140945.jpg&q=85)
-  
-
-文化體育及旅遊局召開會議，統籌一連五日內地勞動節黃金周期間接待訪港旅客的預備工作。會議由文體旅局局長羅淑佩主持，除警務處、入境處、海關、運輸署及多區民政事務處等部門代表外，多個旅遊相關機構包括旅監局、旅發局、旅議會、西九文化區管理局、主要旅遊景點及酒店業等亦有派員出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm)
-
----
-
 # 會計師公會：美國關稅政策會計行業有危有機
 
 ![歐振興說，會計業正面臨前所未有的轉型。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799585_1_20250409135536.jpg&q=90)
@@ -785,6 +784,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm)
+
+---
+
+# 文體旅局召開會議統籌黃金周預備工作　羅淑佩籲盡力接待旅客
+
+![文化體育及旅遊局召開會議統籌內地勞動節黃金周旅客訪港預備工作，與各單位代表討論旅客訪港安排。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799584_1_20250409140945.jpg&q=85)
+  
+
+文化體育及旅遊局召開會議，統籌一連五日內地勞動節黃金周期間接待訪港旅客的預備工作。會議由文體旅局局長羅淑佩主持，除警務處、入境處、海關、運輸署及多區民政事務處等部門代表外，多個旅遊相關機構包括旅監局、旅發局、旅議會、西九文化區管理局、主要旅遊景點及酒店業等亦有派員出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm)
 
 ---
 
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm)
-
----
-
-# Coldplay啟德主場館演唱會開場　陳茂波及黃偉綸入場欣賞
-
-![5萬個座位全場爆滿，現場氣氛高漲。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799481_1_20250408212814.jpg&q=65)
-  
-
-英國樂隊Coldplay在啟德體育園主場館舉行的首場演唱會晚上8時半開場，5萬個座位全場爆滿，當樂隊成員出場時，現場氣氛高漲，樂隊主音Chris Martin用廣東話向在場觀眾說，歡迎大家，好開心來到香港，贏得全場歡呼。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799481-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799481-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799481-20250408.htm)
 
 ---
