@@ -1,3 +1,27 @@
+# 緬甸大地震增至逾3600人死亡　中國公民6死13傷
+
+![緬甸大地震增至超過3600人死亡，超過5000人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799566_1_20250409115358.jpg&q=80)
+  
+
+緬甸大地震增至超過3600人死亡，超過5000人受傷，仍有100多人失蹤。中國駐緬甸大使館確認，地震至今造成中國公民6死13傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799566-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799566-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799566-20250409.htm)
+
+---
+
 # 白宮︰中國內地和香港小額包裹關稅將增至90％　下月2日生效
 
 ![美國傳媒報道，總統特朗普已經簽署行政命令，將從中國出口到美國、價值低於800美元包裹的關稅稅率提高三倍。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799555_1_20250409105853.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799322-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799322-20250408.htm)
-
----
-
-# 日揆對美國關稅深感失望　加總理稱關稅令美經濟衰退可能性大增
-
-![石破茂對美國向日本徵收對等關稅深感失望，促請對方重新考慮。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799321_1_20250408024239.jpg&q=90)
-  
-
-日本首相石破茂與美國總統特朗普通電話，石破茂對美國向日本徵收對等關稅深感失望，促請對方重新考慮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799321-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799321-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799321-20250408.htm)
 
 ---
