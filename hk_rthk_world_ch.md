@@ -1,3 +1,27 @@
+# 英王查理斯三世與王后卡米拉到梵蒂岡與教宗會晤
+
+![查理斯三世與卡米拉到訪意大利。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799678_1_20250410034010.jpg&q=90)
+  
+
+出訪意大利的英王查理斯三世與王后卡米拉突然前往梵蒂岡，與教宗方濟各會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799678-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799678-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799678-20250410.htm)
+
+---
+
 # 澤連斯基：155名中國公民為俄軍作戰
 
 ![澤連斯基說，烏方正試圖評估這些被招募人員是否接受來自北京的指示。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799677_1_20250410033738.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm)
-
----
-
-# 菲律賓的坎拉翁火山今日清晨劇烈噴發
-
-![菲律賓的坎拉翁火山今日清晨劇烈噴發。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799409_1_20250408142619.jpg&q=90)
-  
-
-菲律賓中部的坎拉翁火山今日清晨近六時發生劇烈噴發。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799409-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799409-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799409-20250408.htm)
 
 ---

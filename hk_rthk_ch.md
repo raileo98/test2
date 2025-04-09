@@ -1,3 +1,27 @@
+# 英王查理斯三世與王后卡米拉到梵蒂岡與教宗會晤
+
+![查理斯三世與卡米拉到訪意大利。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799678_1_20250410034010.jpg&q=90)
+  
+
+出訪意大利的英王查理斯三世與王后卡米拉突然前往梵蒂岡，與教宗方濟各會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799678-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799678-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799678-20250410.htm)
+
+---
+
 # 澤連斯基：155名中國公民為俄軍作戰
 
 ![澤連斯基說，烏方正試圖評估這些被招募人員是否接受來自北京的指示。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799677_1_20250410033738.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799605-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799605-20250409.htm)
-
----
-
-# 回應美防長訪日言論　國防部促不要把亞太地區當成地緣博弈狩獵場
-
-![張曉剛反問，美方有人只顧著為日本軍國主義塗脂抹粉，又如何告慰那些為抗擊法西斯英勇犧牲的戰士?](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799603_1_20250409154846.jpg&q=90)
-  
-
-在北京，國防部回應美國國防部長赫格塞思訪問日本時言論，敦促有關國家停止散播錯誤言論，不要把亞太地區當成地緣博弈的「狩獵場」，不要挑動集團政治和軍事對抗，損害地區人民的安全福祉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799603-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799603-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799603-20250409.htm)
 
 ---
