@@ -1,5 +1,30 @@
+# 陳國基：特區救援隊臨危受命　充分發揮中國人抗震救災精神
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799655_1_20250409212024.jpg&q=90)
+  
+
+特區救援隊完成緬甸地震災區搜救任務返港，特區政府今晚在香港機場為隊員舉行迎接儀式。行政長官李家超、政務司司長陳國基及保安局局長鄧炳強等將會出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799655-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799655-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799655-20250409.htm)
+
+---
+
 # 衞生署：過去5年共接種逾800萬劑流感疫苗　沒有相關死亡個案
 
+![徐樂堅說，傳統的滅活疫苗已沿用數十年，疫苗經過反覆試驗及品質檢測，證實非常安全可靠。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799651_1_20250409212340.jpg&q=80)
   
 
 衞生署表示，香港現時使用的流感疫苗，包括滅活流感疫苗、重組流感疫苗和減活流感疫苗，都是安全和有效，過去5年本港共接種超過800萬劑流感疫苗，沒有接獲因接種流感疫苗後的死亡個案。
@@ -23,6 +48,7 @@
 
 # 政府稱將研究加強西貢東壩小巴服務
 
+![政府稱，將審視情況看看如何能加強東霸小巴交通服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799649_1_20250409213158.jpg&q=80)
   
 
 政府表示，將研究加強西貢萬宜水庫東壩的小巴服務。在立法會財委會特別會議上，選委界議員陸瀚民指出，政府推動生態旅遊，但近日萬宜水庫東壩出現交通亂象問題，包括有「黑的」亂收車資、有旅客要從東壩乘搭快艇到西貢碼頭離開等，詢問當局有何措施應對。
@@ -46,6 +72,7 @@
 
 # 17歲少女乙型流感併發腦病變　情況嚴重
 
+![衞生防護中心指出，感染乙流感的少女有接種本年度的季節性流感疫苗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799648_1_20250409212830.jpg&q=80)
   
 
 一名17歲少女感染乙型流感併發腦病變，目前仍然留醫，情況嚴重。她有接種本年度的季節性流感疫苗，至於她就讀的學校近日沒有出現流感爆發的情況。
@@ -69,6 +96,7 @@
 
 # 政府稱未能估算市場何時完全消化寫字樓供應　檢討商業地擬增彈性
 
+![發展局考慮將部分商業用地改劃作住宅用途，檢視位置包括洪水橋/厦村、東涌東新市鎮擴展區、沙田石門及九龍東等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799647_1_20250409213916.jpg&q=65)
   
 
 發展局表示，政府近年積極招商引資，落戶香港的企業會增加對寫字樓的需求。由於需求是動態和受制於很多因素，未能估算市場何時能完全消化寫字樓供應。發展局書面回覆立法會議員提問時表示，差餉物業估價署上月公布初步統計數字顯示，今年私人寫字樓的預測總落成量約為30萬9千米，明年則有11萬6千平方米。
@@ -664,30 +692,6 @@
 
 ---
 
-# 會計師公會：美國關稅政策會計行業有危有機
-
-![歐振興說，會計業正面臨前所未有的轉型。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799585_1_20250409135536.jpg&q=90)
-  
-
-香港會計師公會會長歐振興表示，貿易戰影響市場資金部署，短期為金融市場帶來波動，仍需視乎關稅政策後續發展及如何落實 ，但對會計行業是有危有機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm)
-
----
-
 # 文體旅局召開會議統籌黃金周預備工作　羅淑佩籲盡力接待旅客
 
 ![文化體育及旅遊局召開會議統籌內地勞動節黃金周旅客訪港預備工作，與各單位代表討論旅客訪港安排。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799584_1_20250409140945.jpg&q=85)
@@ -709,6 +713,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm)
+
+---
+
+# 會計師公會：美國關稅政策會計行業有危有機
+
+![歐振興說，會計業正面臨前所未有的轉型。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799585_1_20250409135536.jpg&q=90)
+  
+
+香港會計師公會會長歐振興表示，貿易戰影響市場資金部署，短期為金融市場帶來波動，仍需視乎關稅政策後續發展及如何落實 ，但對會計行業是有危有機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm)
 
 ---
 
@@ -1409,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799477-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799477-20250408.htm)
-
----
-
-# 議員關注多少大廈參與「聯廈聯管」　麥美娟指關愛隊協助聯絡業主
-
-![麥美娟指本屆政府非常重視大廈管理工作，下決心希望將工作落實。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799476_1_20250408213847.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟表示，政府最快今年6月在油尖旺、深水埗、九龍城及荃灣推行為期一年的「聯廈聯管」的試驗計劃，協助「三無大廈」和舊式單幢樓宇的業主，共同聘用同一間物業管理公司聯合管理大廈。政府已預留700萬元推行試驗計劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799476-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799476-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799476-20250408.htm)
 
 ---
