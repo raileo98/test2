@@ -1,9 +1,55 @@
+# 海關稱致力打擊堵截危害國家安全物品流入香港　X光機為重要夥伴
+
+  
+
+本月15日是全民國家安全教育日，保安局在社交平台繼續「開箱」國安物品，邀請海關介紹 X光機的作用。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799575-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799575-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799575-20250409.htm)
+
+---
+
+# 陳虹秀暴動罪成判囚3年9個月　同案3被告各囚2年5個月
+
+  
+
+社工陳虹秀在灣仔暴動案重審被裁定罪成，在區域法院被判囚3年9個月，同案3名被告各判囚2年5個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799572-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799572-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799572-20250409.htm)
+
+---
+
 # 恒指半日跌312點
 
 ![恒指半日收報19815點，跌312點，跌幅1.55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799571_1_20250409121028.jpg&q=90)
   
 
-貿戰戰陰霾下，港股下挫，但收復早段大部分跌勢。
+貿易戰陰霾下，港股下挫，但收復早段大部分跌勢。
 
   
 
@@ -1397,53 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799407-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799407-20250408.htm)
-
----
-
-# 入境處稱特區護照可為港人提供海外利益安全保障
-
-![入境處職員稱，出外旅行攜帶印有國徽的特區護照，可為港人提供海外利益安全保障。（保安局片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799403_1_20250408153549.jpg&q=90)
-  
-
-今年4月15日是「全民國家安全教育日」十周年，六支紀律部隊和兩個輔助隊伍先後發布影片，介紹部門具意義的國家安全物品。今日由入境處職員介紹特區護照，指出外旅行攜帶印有國徽的特區護照，可為港人提供海外利益安全保障。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799403-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799403-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799403-20250408.htm)
-
----
-
-# 劉達邦指美國再加徵關稅衝擊巨大　預期很多港廠都難以支撐
-
-![劉達邦指出，無可能將全部加徵的稅款轉嫁消費者，無可奈何就是另找其他地方採購。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799402_1_20250408153501.jpg&q=80)
-  
-
-行政長官李家超說，美國對多個貿易夥伴徵收所謂對等關稅，做法霸凌野蠻，香港除了面對全球風險，在轉口貿易和物流業會面對壓力，對外貿易的企業尤其是中小企以及跨境電商，短期內無可避免受到影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm)
 
 ---

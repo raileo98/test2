@@ -1,9 +1,55 @@
+# 海關稱致力打擊堵截危害國家安全物品流入香港　X光機為重要夥伴
+
+  
+
+本月15日是全民國家安全教育日，保安局在社交平台繼續「開箱」國安物品，邀請海關介紹 X光機的作用。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799575-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799575-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799575-20250409.htm)
+
+---
+
+# 陳虹秀暴動罪成判囚3年9個月　同案3被告各囚2年5個月
+
+  
+
+社工陳虹秀在灣仔暴動案重審被裁定罪成，在區域法院被判囚3年9個月，同案3名被告各判囚2年5個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799572-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799572-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799572-20250409.htm)
+
+---
+
 # 恒指半日跌312點
 
 ![恒指半日收報19815點，跌312點，跌幅1.55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799571_1_20250409121028.jpg&q=90)
   
 
-貿戰戰陰霾下，港股下挫，但收復早段大部分跌勢。
+貿易戰陰霾下，港股下挫，但收復早段大部分跌勢。
 
   
 
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm)
-
----
-
-# 特朗普與韓悳洙通電話　討論安全及關稅等議題
-
-![韓悳洙與美方討論加強韓美同盟關係等議題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799494_1_20250408234536.jpg&q=90)
-  
-
-美國總統特朗普與代理南韓總統職務的總理韓悳洙通電話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799494-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799494-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799494-20250408.htm)
-
----
-
-# 離岸人民幣跌穿7.38水平　創2010年開啟離岸交易以來最低
-
-![離岸人民幣較早時跌穿7.38水平，低見7.3847兌1美元，急挫408點子，創2010年開啟離岸交易以來最低水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799491_1_20250408231939.jpg&q=85)
-  
-
-人民幣匯價顯著下挫，離岸人民幣較早時跌穿7.38水平，低見7.3847兌1美元，急挫408點子，跌幅近0.6%，創2010年開啟離岸交易以來最低水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799491-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799491-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799491-20250408.htm)
 
 ---

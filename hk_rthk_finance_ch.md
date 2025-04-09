@@ -3,7 +3,7 @@
 ![恒指半日收報19815點，跌312點，跌幅1.55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799571_1_20250409121028.jpg&q=90)
   
 
-貿戰戰陰霾下，港股下挫，但收復早段大部分跌勢。
+貿易戰陰霾下，港股下挫，但收復早段大部分跌勢。
 
   
 

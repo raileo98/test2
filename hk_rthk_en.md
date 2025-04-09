@@ -1,3 +1,27 @@
+# Shai holds court as Lakers sink after Doncic ejection
+
+![Oklahoma City Thunder guards shut down Pau Gasol of the Los Angeles Lakers in the midst of a shot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799573_1_20250409122147.jpg&q=90)
+  
+
+Shai Gilgeous-Alexander scored 42 points as the Oklahoma City Thunder bounced back to defeat the Los Angeles Lakers 136-120 in a hard-fought battle that saw Luka Doncic controversially ejected in the fourth quarter.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799573-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799573-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799573-20250409.htm)
+
+---
+
 # New technologies can speed up housing projects: govt
 
 ![Winnie Ho says new technologies can help Hong Kong's construction sector. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799568_1_20250409120045.jpg&q=80)
@@ -286,7 +310,7 @@ US President Donald Trump on Tuesday signed executive orders to "turbocharge coa
 
 ---
 
-# At least 79 dead in Dominican Republic roof collapse
+# At least 98 dead in Dominican Republic roof collapse
 
 ![Rescuers work at the site of the collapsed Jet Set nightclub in Santo Domingo, Dominican Republic. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799520_1_20250409073023.jpg&q=80)
   
@@ -1411,29 +1435,5 @@ A level of methane high enough to potentially ignite a fire was detected at the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799288-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799288-20250407.htm)
-
----
-
-# Britain may close hundreds of quangos to cut costs
-
-![Quangos, or quasi-autonomous non-governmental organizations, will be reviewed with a view to closing or merging them or bringing their functions back into government departments. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799284_1_20250407182022.jpg&q=75)
-  
-
-Britain said it could close hundreds of arms-length government agencies, as it looks to reform the state to cut costs and improve productivity in what it called "a new era of global instability".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm)
 
 ---

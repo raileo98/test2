@@ -1,3 +1,27 @@
+# Shai holds court as Lakers sink after Doncic ejection
+
+![Oklahoma City Thunder guards shut down Pau Gasol of the Los Angeles Lakers in the midst of a shot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799573_1_20250409122147.jpg&q=90)
+  
+
+Shai Gilgeous-Alexander scored 42 points as the Oklahoma City Thunder bounced back to defeat the Los Angeles Lakers 136-120 in a hard-fought battle that saw Luka Doncic controversially ejected in the fourth quarter.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799573-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799573-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799573-20250409.htm)
+
+---
+
 # Zverev suffers shock exit at Monte-Carlo Masters
 
 ![Alexander Zverev crashed out in his opening match against Italy's Matteo Berrettini. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799545_1_20250409100453.jpg&q=90)
@@ -1422,29 +1446,5 @@ France's emphatic run at the Hong Kong Sevens continued on Sunday as they scored
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm)
-
----
-
-# Sabalenka beats Pegula to take Miami Open
-
-![The title was the Belarusian's first at Miami. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798090_1_20250330101920.jpg&q=90)
-  
-
-World number one Aryna Sabalenka powered her way to the Miami Open title on Saturday, beating American Jessica Pegula 7-5 6-2 in the WTA 1000 event at Hard Rock Stadium.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm)
 
 ---
