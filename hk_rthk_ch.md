@@ -1,3 +1,27 @@
+# 亞開行料美國關稅將拖累今明兩年亞洲發展中國家經濟表現
+
+![ADB表示，美國實施全面關稅可能令亞洲發展中國家今年經濟增速下跌約三分之一個百分點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799562_1_20250409113115.jpg&q=90)
+  
+
+亞洲開發銀行(ADB)表示，美國實施全面關稅可能令亞洲發展中國家今年經濟增速減少約三分之一個百分點，明年減少1個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799562-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799562-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799562-20250409.htm)
+
+---
+
 # 日本央行：正仔細分析關稅如何影響經濟和物價
 
 ![植田和男表示，正仔細分析關稅將如何影響日本經濟和物價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799559_1_20250409110537.jpg&q=85)
@@ -94,7 +118,7 @@
 
 ---
 
-# 何永賢冀規管簡樸房法例年底通過　過渡屋簡約公屋可助須遷出住戶
+# 何永賢稱如簡樸房最低面積10平方米一半不合標　社會是否可承受
 
 ![何永賢表示，期望今年底通過有關規管簡樸房的法例。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799556_1_20250409110711.jpg&q=80)
   
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799486-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799486-20250408.htm)
-
----
-
-# 配合啟德演唱會　港鐵屯馬綫班次加密至約2.5分鐘一班車
-
-![港鐵屯馬綫班次會進一步加密至約2.5分鐘一班車，東鐵綫北行亦會相應加密班次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799485_1_20250408224823.jpg&q=90)
-  
-
-英國樂隊Coldplay晚上在啟德體育園主場館舉行首場演唱會。運輸署呼籲離場人士盡量乘搭港鐵，署方一直督導公共運輸服務安排，整體交通至今大致暢順。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm)
 
 ---

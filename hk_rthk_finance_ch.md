@@ -1,3 +1,27 @@
+# 亞開行料美國關稅將拖累今明兩年亞洲發展中國家經濟表現
+
+![ADB表示，美國實施全面關稅可能令亞洲發展中國家今年經濟增速下跌約三分之一個百分點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799562_1_20250409113115.jpg&q=90)
+  
+
+亞洲開發銀行(ADB)表示，美國實施全面關稅可能令亞洲發展中國家今年經濟增速減少約三分之一個百分點，明年減少1個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799562-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799562-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799562-20250409.htm)
+
+---
+
 # 日本央行：正仔細分析關稅如何影響經濟和物價
 
 ![植田和男表示，正仔細分析關稅將如何影響日本經濟和物價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799559_1_20250409110537.jpg&q=85)
@@ -43,6 +67,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799557-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799557-20250409.htm)
+
+---
+
+# 何永賢稱如簡樸房最低面積10平方米一半不合標　社會是否可承受
+
+![何永賢表示，期望今年底通過有關規管簡樸房的法例。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799556_1_20250409110711.jpg&q=80)
+  
+
+政府就簡樸房的規管制度建議方案上月出爐，房屋局局長何永賢表示，有部分意見認為單位內部最低樓面面積應該訂於10平方米，但如果採納，現時市面會有50%劏房不符合標準，需要改裝，她質疑社會是否承受得到，而按目前訂於8平方米，不符標準的單位有約26%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799556-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799556-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799556-20250409.htm)
 
 ---
 
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm)
-
----
-
-# 全國社保基金：近期將繼續增持國內股票
-
-![社保基金稱始終堅持長期投資、價值投資、責任投資理念，堅定看好中國資本市場發展前景。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799424_1_20250408173924.jpg&q=90)
-  
-
-全國社保基金公布，近日已主動增持國內股票，近期將繼續增持，會在積極開展股票投資的同時實現基金安全和保值增值。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799424-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799424-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799424-20250408.htm)
-
----
-
-# 葉劉淑儀：中國已預備好應對美國關稅措施　長遠將成為贏家
-
-![葉劉淑儀表示，長遠而言，中國在貿易、技術和道德層面都會是贏家。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799429_1_20250408153932.jpg&q=80)
-  
-
-美國對包括中國在內的全球大部分國家和地區徵收對等關稅，行政會議召集人、新民黨主席葉劉淑儀表示，中國已準備好如何應對，美國總統特朗普將自由貿易和多邊體系的領導者角色讓給中國，長遠而言，中國在貿易、技術和道德層面都會是贏家。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm)
 
 ---

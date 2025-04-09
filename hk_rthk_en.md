@@ -1,4 +1,28 @@
-# 'HK well prepared to face any trade disruptions'
+# HK exporters 'furious over Trump tariffs'
+
+![Jeffrey Lam says US tariffs move has had a great impact on cash flow at many Hong Kong companies. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799561_1_20250409111723.jpg&q=90)
+  
+
+A commercial-sector lawmaker said on Wednesday US President Donald Trump's tariffs on China are an act of bullying.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799561-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799561-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799561-20250409.htm)
+
+---
+
+# 'HK well-prepared to face any trade disruptions'
 
 ![HKTDC's Irina Fan says Hong Kong's diversified trade links will help it withstand any pressure from new US tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799560_1_20250409111312.jpg&q=75)
   
@@ -1411,29 +1435,5 @@ Nurturing talent is the "cornerstone" in innovation and technology (I&T) develop
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799279-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799279-20250407.htm)
-
----
-
-# US tariffs 'amount to unilateralism and bullying'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799275_1_20250407172101.jpg&q=90)
-  
-
-China on Monday accused the US of unilateralism, protectionism and economic bullying with tariffs, while calling on representatives of American companies including Tesla to “take concrete actions” to resolve the tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799275-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799275-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799275-20250407.htm)
 
 ---

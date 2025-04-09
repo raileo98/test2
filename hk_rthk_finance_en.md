@@ -1,4 +1,4 @@
-# 'HK well prepared to face any trade disruptions'
+# 'HK well-prepared to face any trade disruptions'
 
 ![HKTDC's Irina Fan says Hong Kong's diversified trade links will help it withstand any pressure from new US tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799560_1_20250409111312.jpg&q=75)
   
