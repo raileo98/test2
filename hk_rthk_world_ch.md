@@ -1,3 +1,27 @@
+# 美財長對中國84%報復性關稅表示遺憾　籲中方談判
+
+![美國財長貝森對中國84%報復性關稅，表示遺憾，呼籲中方談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799654_1_20250409203820.jpg&q=90)
+  
+
+美國財長貝森對中國84%報復性關稅，表示遺憾，呼籲中方談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm)
+
+---
+
 # 海警局：菲律賓船隻經允許下向仁愛礁軍艦補及
 
 ![海警局：菲律賓船隻經允許下向仁愛礁軍艦補及](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799650_1_20250409200254.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm)
-
----
-
-# 李家超：特區救援隊表現無私　期待完成任務後安全返港
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799368_1_20250408102616.jpg&q=90)
-  
-
-特區政府救援隊正在緬甸地震災區協助搜救，行政長官李家超說，對於救援隊的專業救援工作引以為傲，隊伍聯同中國救援隊成功救出受困災民感到鼓舞。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm)
 
 ---

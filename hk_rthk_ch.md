@@ -1,3 +1,50 @@
+# 陳國基：特區救援隊臨危受命　充分發揮中國人抗震救災精神
+
+  
+
+特區救援隊完成緬甸地震災區搜救任務返港，特區政府今晚在香港機場為隊員舉行迎接儀式。行政長官李家超、政務司司長陳國基及保安局局長鄧炳強等將會出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799655-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799655-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799655-20250409.htm)
+
+---
+
+# 美財長對中國84%報復性關稅表示遺憾　籲中方談判
+
+![美國財長貝森對中國84%報復性關稅，表示遺憾，呼籲中方談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799654_1_20250409203820.jpg&q=90)
+  
+
+美國財長貝森對中國84%報復性關稅，表示遺憾，呼籲中方談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm)
+
+---
+
 # 李強指已充分估計外部衝擊　做好各種應對準備
 
 ![李強指外部衝擊對國家經濟平穩運作造成一定壓力，對此已經作了充分估計，並做好應對各種不確定因素的準備。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799652_1_20250409201619.jpg&q=90)
@@ -140,6 +187,7 @@
 
 # 特區政府稱絕不代美國收所謂關稅　稍後公布暫停處理寄美郵遞安排
 
+![特區政府發言人批評，美國不再奉行自由貿易，肆意破壞國際共同建立的世貿組織規則。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799646_1_20250409205506.jpg&q=90)
   
 
 特區政府強烈反對和不滿美國向香港產品進一步加徵所謂對等關稅，以及由5月2日起取消香港產品的小額免稅待遇，並調高付運美國而內載貨品的郵件需繳納的關稅。
