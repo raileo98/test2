@@ -576,6 +576,7 @@
 
 # 政府提醒市民切勿誤信以人工智能偽造特首推介投資計劃短片
 
+![政府表示，有人在網上以以人工智能偽造行政長官推介投資計劃的短片，提醒市民切勿誤信。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799639_1_20250409234029.jpg&q=90)
   
 
 政府表示，有人在網上以以人工智能偽造行政長官推介投資計劃的短片，提醒市民切勿誤信，並強烈譴責不法分子發放虛假投資信息，事件已轉交警方跟進調查。
@@ -880,6 +881,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799630-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799630-20250409.htm)
+
+---
+
+# 陳克勤關注會否改變即捕即殺野豬　漁護署稱市民安全為首要考慮
+
+![環境及生態局表示，本港整體野豬數目由2022年約1830頭，減少至2024年約900頭。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799627_1_20250409174452.jpg&q=80)
+  
+
+環境及生態局回覆立法會議員提問時指出，本港整體野豬數目由2022年約1830頭，減少至2024年約900頭。在立法會特別財委會會議，民建聯主席陳克勤關注，野豬傷人數字已下降，野豬數目兩年間減少一半，漁護署會否改變現時「即捕即殺」處理野豬，改為以絕育等較人道的手法處理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799627-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799627-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799627-20250409.htm)
 
 ---
 
