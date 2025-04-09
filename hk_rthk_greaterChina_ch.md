@@ -1,3 +1,48 @@
+# 外交部堅決反對美防長抹黑中國與巴拿馬合作言論
+
+![外交部發言人林劍表示，美國高級官員抹黑破壞中巴合作，再次暴露美國霸道霸凌的面目。(外交部網頁)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799597_1_20250409151552.jpg&q=90)
+  
+
+在北京，外交部堅決反對美國國防部長赫格塞思訪問巴拿馬期間，發表關於中國和中巴關係的言論。發言人林劍表示，美國的高級官員惡意攻擊中國，抹黑破壞中巴合作，再次暴露了美國霸道霸凌的面目。中方敦促美方停止造謠生事，停止在運河問題上惡意關聯中國，為自己控制運河找藉口。他又指妥協退讓換不來主權與尊重，只會讓霸凌的氣炎更加囂張。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799597-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799597-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799597-20250409.htm)
+
+---
+
+# 國務院發表中美經貿關係白皮書　重申貿易戰沒贏家保護主義沒出路
+
+![白皮書表示，中方始終認為，中美經貿關係的本質是互利共贏。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799596_1_20250409152142.jpg&q=85)
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799596-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799596-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799596-20250409.htm)
+
+---
+
 # 特區救援隊完成在緬甸災區搜救行動　收拾裝備準備回港
 
 ![特區救援隊經過連日在緬甸地震災區的搜救行動，正準備回港。（消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799594_1_20250409150210.jpg&q=85)
@@ -1385,56 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799029-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799029-20250405.htm)
-
----
-
-# 內地商會促美方糾正損人不利己單邊霸凌
-
-![內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799020_1_20250405132447.jpg&q=75)
-  
-
-內地多個商會就美國徵收所謂對等關稅，發布嚴正聲明。中國醫藥保健品進出口商會表示，全球民眾健康權益不應受到不公平貿易措施侵害，堅決反對美方單邊貿易霸凌行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799020-20250405.htm)
-
----
-
-# 內地賞花熱潮帶動經濟　西藏林芝「桃花第一村」花海改善村民生活
-
-![西藏巴宜區嘎拉村被譽為「桃花第一村」，種植超過1250棵野生桃樹。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_1_20250405092358.jpg&q=15)
-![不少北京居民及遊客到訪玉淵潭公園打卡留念。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_2_20250405092358.jpg&q=35)
-![玉淵潭公園是北京著名賞櫻勝地，目前正值櫻花盛開季節。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_3_20250405092358.jpg&q=55)
-![園區商店售賣多款以櫻花為主題的文創產品，包括磁石貼及公仔等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_4_20250405122742.jpg&q=90)
-  
-
-踏入春季，全國多個城市正值花期，各地推動賞花經濟。在北京，賞櫻熱點之一的玉淵潭公園，吸引不少民眾及遊客賞花打卡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799006-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799006-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799006-20250405.htm)
 
 ---

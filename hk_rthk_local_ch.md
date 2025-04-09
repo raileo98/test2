@@ -1,3 +1,26 @@
+# 孫玉菡指大灣區青年就業計劃達預期效果　入職人數跌有很多原因
+
+  
+
+政府自2023年起恆常推行「大灣區青年就業計劃」，在2023及2024年分別有278間及249間企業，提供2540個及2186個職位空缺，分別有718名及417名青年入職。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799598-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799598-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799598-20250409.htm)
+
+---
+
 # 特區救援隊完成在緬甸災區搜救行動　收拾裝備準備回港
 
 ![特區救援隊經過連日在緬甸地震災區的搜救行動，正準備回港。（消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799594_1_20250409150210.jpg&q=85)
@@ -1420,30 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm)
-
----
-
-# 新一批重點引進企業涉人工智能　生命健康與新能源科技行業
-
-![百度智能駕駛國際化業務總經理牛昊天表示，公司選擇來港是希望將自動駕駛技術和先導應用在香港落地。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_1_20250408165543.jpg&q=80)
-![理想汽車高級副總裁李冠華表示，公司會在香港作長期投資，總額達20億元。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799431_2_20250408165543.jpg&q=80)
-  
-
-引進重點企業辦公室下午舉辦重點企業夥伴簽約儀式，將公布新一批重點企業名單，當中涉及人工智能與數據科學，生命健康科技，先進製造與新能源科技等行業，不少企業來自內地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799431-20250408.htm)
 
 ---

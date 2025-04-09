@@ -1,3 +1,27 @@
+# 滬深股市高開低走　報道：內地高層領導人或今日召開重要會議
+
+![上證指數收報3186點，升41點，升幅1.31%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799595_1_20250409150621.jpg&q=90)
+  
+
+滬深股市低開高走，3大主要指數高收近1%或以上。軍工裝備、半導體股上升；銀行、保險、醫藥相關股份下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799595-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799595-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799595-20250409.htm)
+
+---
+
 # 韓股低收約2%
 
 ![首爾綜合指數收市報2293點，跌40點，跌幅1.74%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799593_1_20250409144601.jpg&q=90)
@@ -51,7 +75,7 @@
 ![台灣加權指數收報17391點，跌1068點，跌幅5.79%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799590_1_20250409142812.jpg&q=90)
   
 
-台股收市急挫近6%。
+台股連續3日下挫，收市急挫近6%。
 
   
 
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm)
-
----
-
-# 當局稱正研究離境私家車徵收邊境建設費　適時再諮詢立法會
-
-![黎志華表示，當局剛展開相關研究，當有具體構思，包括如何收取、有無豁免機制等，屆時會再諮詢立法會意見。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799461_1_20250408183137.jpg&q=90)
-  
-
-財政預算案提出，研究向離境私家車徵收邊境建設費，如果每輛車收200元，政府每年可以有大約10億元收入。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm)
 
 ---
