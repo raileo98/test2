@@ -1,3 +1,27 @@
+# 印度央行減息0.25厘　政策立場轉為寬鬆
+
+![印度央行減息25個基點至6厘，符合市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799582_1_20250409132440.jpg&q=75)
+  
+
+印度央行連續兩次會議減息，委員會一致決定將關鍵回購利率下調25個基點至6厘，符合市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799582-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799582-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799582-20250409.htm)
+
+---
+
 # 日本財金部門下午舉行會議討論金融市況
 
 ![日本央行、財務省、金融廳下午舉行會議，討論國際金融市場情況。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799581_1_20250409131403.jpg&q=75)
