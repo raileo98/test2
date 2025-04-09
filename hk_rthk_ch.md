@@ -1,3 +1,27 @@
+# 商務部將十多間美國企業列出口管制和不可靠實體清單
+
+![商務部公布，將12家美國實體列入出口管制管控名單，將6家涉對台軍售的美國企業列入不可靠實體清單。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799643_1_20250409192259.jpg&q=90)
+  
+
+商務部公布，將12家美國實體列入出口管制管控名單，禁止對其出口兩用物項。這些實體存在可能危害中國國家安全和利益的行為，任何出口經營者不得違反上述規定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799643-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799643-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799643-20250409.htm)
+
+---
+
 # 商務部：中方在世貿組織追加起訴美國升級對華關稅
 
 ![商務部指，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799642_1_20250409191832.jpg&q=80)
@@ -48,7 +72,7 @@
 
 # 中方再反制　宣布對原產於美國所有進口產品再加徵50%關稅
 
-![中方再反制　宣布對原產於美國所有進口產品再加徵50%關稅](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799640_1_20250409191410.jpg&q=90)
+![公告說，美方升級對華關稅的做法是錯上加錯，嚴重侵犯中國正當權益，嚴重損害以規則為基礎的多邊貿易體制。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799640_1_20250409191410.jpg&q=90)
   
 
 國務院關稅稅則委員會發布公告，自4月10日12時01分起，對原產於美國的進口商品，加徵關稅的稅率，由34%提高至84%。

@@ -48,7 +48,7 @@
 
 # 中方再反制　宣布對原產於美國所有進口產品再加徵50%關稅
 
-![中方再反制　宣布對原產於美國所有進口產品再加徵50%關稅](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799640_1_20250409191410.jpg&q=90)
+![公告說，美方升級對華關稅的做法是錯上加錯，嚴重侵犯中國正當權益，嚴重損害以規則為基礎的多邊貿易體制。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799640_1_20250409191410.jpg&q=90)
   
 
 國務院關稅稅則委員會發布公告，自4月10日12時01分起，對原產於美國的進口商品，加徵關稅的稅率，由34%提高至84%。
