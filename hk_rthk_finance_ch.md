@@ -1,3 +1,27 @@
+# 美國對等關稅生效　對華貨品關稅增至104%
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799624_1_20250409181624.jpg&q=90)
+  
+
+美國對多個貿易夥伴開徵的對等關稅周三生效，總統特朗普表示，因應中國實施報復性關稅，決定對部分中國進口貨品額外徵收50%的關稅，累計加徵稅率達到104%；特朗普同時簽署行政命令，將中國內地及香港進口小額包裹關稅增至90%，下月2日起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799624-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799624-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799624-20250409.htm)
+
+---
+
 # 製造及新型工業產業經濟活動前年價值768億　增7.6%
 
 ![政府表示，當中涵蓋的經濟活動，包括食品製造、晶片設計、人工智能模型開發及應用等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799631_1_20250409175858.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm)
-
----
-
-# Coldplay演唱會完場後約一小時　全部觀眾大致離開園區
-
-![英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，在晚上約10時半結束。(陳曉筠攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799495_1_20250409004752.jpg&q=90)
-  
-
-英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，在晚上約10時半結束，散場後約一小時，所有觀眾已大致離開園區，秩序良好。港鐵表示演唱會結束後，港鐵加密屯馬綫班次至早上繁忙時間相若水平，約2至3分鐘一班車，大部分乘客到達啟德及宋皇臺站月台後，都能登上第一班車前往目的地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799495-20250408.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 國家應急管理部向中國救援人員致以崇高敬意　為近年出動人數最多
+
+![國家應急管理部指出，中國香港特區救援隊繼土耳其地震救援後，再次與內地救援隊伍在同一面國旗下開展國際救援行動。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799633_1_20250409181609.jpg&q=90)
+  
+
+到緬甸參與地震救援行動的中國救援隊、中國國際救援隊，以及中國香港特區救援隊完成任務回國，國家應急管理部在北京首都國際機場停機坪舉行迎接儀式，救援隊隊員接受獻花。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799633-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799633-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799633-20250409.htm)
+
+---
+
 # 製造及新型工業產業經濟活動前年價值768億　增7.6%
 
 ![政府表示，當中涵蓋的經濟活動，包括食品製造、晶片設計、人工智能模型開發及應用等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799631_1_20250409175858.jpg&q=80)
@@ -168,7 +192,7 @@
 
 # 中國救援隊包括香港隊員抵達北京　國家應急部在機場迎接
 
-![救援隊乘坐的4架中國空軍飛機，下午約4時，抵達北京首都國際機場。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799612_1_20250409164353.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799612_1_20250409164353.jpg&q=90)
   
 
 到緬甸參與地震救援行動的中國救援隊、中國國際救援隊和中國香港特區救援隊完成任務回國，他們乘坐的4架中國空軍飛機，下午約4時，抵達北京首都國際機場，國家應急部在機場舉行迎接儀式。
@@ -1419,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799462-20250408.htm)
-
----
-
-# 當局稱正研究離境私家車徵收邊境建設費　適時再諮詢立法會
-
-![黎志華表示，當局剛展開相關研究，當有具體構思，包括如何收取、有無豁免機制等，屆時會再諮詢立法會意見。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799461_1_20250408183137.jpg&q=90)
-  
-
-財政預算案提出，研究向離境私家車徵收邊境建設費，如果每輛車收200元，政府每年可以有大約10億元收入。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799461-20250408.htm)
 
 ---

@@ -1,3 +1,75 @@
+# 外交部：若美方執意打貿易戰將奉陪到底
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799625_1_20250409182350.jpg&q=85)
+  
+
+在北京，外交部發言人回應美國再對中國進口貨品加徵關稅時表示，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底，強調會繼續採取堅決有力措施，維護自身的正當權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799625-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799625-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799625-20250409.htm)
+
+---
+
+# 美國對等關稅生效　對華貨品關稅增至104%
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799624_1_20250409181624.jpg&q=90)
+  
+
+美國對多個貿易夥伴開徵的對等關稅周三生效，總統特朗普表示，因應中國實施報復性關稅，決定對部分中國進口貨品額外徵收50%的關稅，累計加徵稅率達到104%；特朗普同時簽署行政命令，將中國內地及香港進口小額包裹關稅增至90%，下月2日起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799624-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799624-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799624-20250409.htm)
+
+---
+
+# 國家應急管理部向中國救援人員致以崇高敬意　為近年出動人數最多
+
+![國家應急管理部指出，中國香港特區救援隊繼土耳其地震救援後，再次與內地救援隊伍在同一面國旗下開展國際救援行動。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799633_1_20250409181609.jpg&q=90)
+  
+
+到緬甸參與地震救援行動的中國救援隊、中國國際救援隊，以及中國香港特區救援隊完成任務回國，國家應急管理部在北京首都國際機場停機坪舉行迎接儀式，救援隊隊員接受獻花。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799633-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799633-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799633-20250409.htm)
+
+---
+
 # 劉兆佳稱白皮書較中性沒有肆意批評美國　冀美方了解互利共贏本質
 
 ![劉兆佳相信，中美貿易戰仍會持續一段時間，可能出現惡性循環。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799630_1_20250409175613.jpg&q=80)
@@ -72,7 +144,7 @@
 
 # 中國救援隊包括香港隊員抵達北京　國家應急部在機場迎接
 
-![救援隊乘坐的4架中國空軍飛機，下午約4時，抵達北京首都國際機場。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799612_1_20250409164353.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799612_1_20250409164353.jpg&q=90)
   
 
 到緬甸參與地震救援行動的中國救援隊、中國國際救援隊和中國香港特區救援隊完成任務回國，他們乘坐的4架中國空軍飛機，下午約4時，抵達北京首都國際機場，國家應急部在機場舉行迎接儀式。
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799134-20250406.htm)
-
----
-
-# 入境處：截至下午4時　逾27.7萬人次經各口岸入境
-
-![截至下午4時，逾27.7萬人次經各口岸入境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799129_1_20250406182555.jpg&q=90)
-  
-
-清明節三日長周末假期最後一日，入境處表示，截至下午4時，有27萬7000多人次經各口岸入境，另有25萬6000多人次出境，總出入境人數合計有53萬4000多人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799129-20250406.htm)
-
----
-
-# 人民日報文章指美國濫施關稅衝擊全球經濟秩序穩定　中國堅決反對
-
-![文章指美國有關做法是以關稅手段顛覆現有國際經貿秩序。（人民網網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799125_1_20250406182535.jpg&q=90)
-  
-
-《人民日報》刊登文章指出，近期美國以各種借口宣布對包括中國在內的所有交易伙伴濫施關稅，嚴重侵犯各國正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序穩定，中國政府對此強烈譴責，堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799125-20250406.htm)
-
----
-
-# 內地鐵路部門採取措施應對清明假期返程客流高峰
-
-![國家鐵路集團預計，今日全國鐵路預計發送旅客2000萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799122_1_20250406165744.jpg&q=85)
-  
-
-國家鐵路集團表示，小長假最後一天，全國鐵路預計發送旅客2000萬人次，計劃加開1214列旅客列車，鐵路部門有多項措施應對清明假期返程客流高峰。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799122-20250406.htm)
 
 ---
