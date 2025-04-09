@@ -1,3 +1,23 @@
+# 特朗普：對等關稅90日內暫降至一成　對華關稅即時增至125%
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm)
+
+---
+
 # 中方從中午起對美加徵84%關稅　文化和旅遊部對赴美遊客發提示
 
 ![商務部表示，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799673_1_20250410012424.jpg&q=75)
@@ -1410,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799400-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799400-20250408.htm)
-
----
-
-# 劉達邦指美國再加徵關稅衝擊巨大　預期很多港廠都難以支撐
-
-![劉達邦指出，無可能將全部加徵的稅款轉嫁消費者，無可奈何就是另找其他地方採購。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799402_1_20250408153501.jpg&q=80)
-  
-
-行政長官李家超說，美國對多個貿易夥伴徵收所謂對等關稅，做法霸凌野蠻，香港除了面對全球風險，在轉口貿易和物流業會面對壓力，對外貿易的企業尤其是中小企以及跨境電商，短期內無可避免受到影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm)
 
 ---

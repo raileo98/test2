@@ -1,3 +1,23 @@
+# 特朗普：對等關稅90日內暫降至一成　對華關稅即時增至125%
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm)
+
+---
+
 # 中方從中午起對美加徵84%關稅　文化和旅遊部對赴美遊客發提示
 
 ![商務部表示，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799673_1_20250410012424.jpg&q=75)
@@ -1409,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799600-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799600-20250409.htm)
-
----
-
-# 外交部指絕不接受美國以關稅極限施壓
-
-![外交部發言人林劍表示，美方對中國濫施關稅，一味地進行極限施壓，對這種霸道霸凌行徑，中方堅決反對，絕不接受。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799599_1_20250409152858.jpg&q=90)
-  
-
-美國總統特朗普對華加徵104%關稅生效。在北京，外交部發言人林劍表示，美方對中國濫施關稅，一味地進行極限施壓，對這種霸道霸凌行徑，中方堅決反對，絕不接受。美方如果真的想通過對話談判解決問題，就應該拿出平等、尊重、互惠的態度。如果美方置兩國和國際社會的利益於不顧，執意打關稅戰、貿易戰，中方必將奉陪到底。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799599-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799599-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799599-20250409.htm)
 
 ---
