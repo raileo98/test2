@@ -1,3 +1,27 @@
+# 聯儲局會議記錄：面對通脹上升和經濟增長放緩　或將面對艱難取捨
+
+![部分決策者指出，聯儲局未來或將面對艱難的取捨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799693_1_20250410074842.jpg&q=85)
+  
+
+美國聯儲局會議記錄顯示，決策者在上月會議上幾乎一致認為，美國經濟同時面臨通脹上升和經濟增長放緩的風險，部分決策者指出，聯儲局未來或將面對艱難的取捨。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799693-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799693-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799693-20250410.htm)
+
+---
+
 # 歐聯八強首回合　巴塞羅那4:0多蒙特　聖日耳門就3:0維拉
 
 ![巴塞羅那今仗有利雲度夫斯基（右二）連續攻入兩球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799692_1_20250410073427.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799623-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799623-20250409.htm)
-
----
-
-# 曼谷抵港男子行李藏約11公斤大麻花被捕　案件明日提堂
-
-![海關檢獲的懷疑大麻花。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799621_1_20250409170747.jpg&q=50)
-  
-
-海關在機場偵破一宗行李藏毒的販毒案件，檢獲約11公斤、估計市值超過240萬元的懷疑大麻花。拘捕一名由泰國到港男子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799621-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799621-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799621-20250409.htm)
 
 ---

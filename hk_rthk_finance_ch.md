@@ -1,3 +1,27 @@
+# 聯儲局會議記錄：面對通脹上升和經濟增長放緩　或將面對艱難取捨
+
+![部分決策者指出，聯儲局未來或將面對艱難的取捨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799693_1_20250410074842.jpg&q=85)
+  
+
+美國聯儲局會議記錄顯示，決策者在上月會議上幾乎一致認為，美國經濟同時面臨通脹上升和經濟增長放緩的風險，部分決策者指出，聯儲局未來或將面對艱難的取捨。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799693-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799693-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799693-20250410.htm)
+
+---
+
 # 美元兌日圓和瑞士法郎反彈逾1%
 
 ![美元兌日圓和瑞士法郎等，美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799690_1_20250410071102.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799526-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799526-20250409.htm)
-
----
-
-# 日股初段跌逾千點
-
-![日經指數較早時報31907點，跌1105點，跌幅3.35%。 （日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799525_1_20250409080304.jpg&q=90)
-  
-
-東京股市初段急跌。日經指數較早時報31907點，跌1105點，跌幅3.35%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799525-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799525-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799525-20250409.htm)
 
 ---
