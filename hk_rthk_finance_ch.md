@@ -1,3 +1,27 @@
+# 美股急升　道指重上4萬點　納指升逾一成
+
+![道指重上4萬點水平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799676_1_20250410024258.jpg&q=90)
+  
+
+美國總統特朗普宣布90日暫停向中國以外國家徵收高額對等關稅，刺激美股急升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm)
+
+---
+
 # 美國2月批發庫存按月增長0.3%合乎預期
 
 ![美國2月批發銷售轉升2.4%，扭轉1月的下跌0.9%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799664_1_20250409224524.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799514-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799514-20250409.htm)
-
----
-
-# 金價靠穩　紐約期金升0.5%
-
-![現貨金一度升逾1%，其後升幅顯著收窄。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799515_1_20250409055156.jpg&q=90)
-  
-
-金價靠穩。美元偏軟，加上貿易緊張局勢都為金價帶來支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799515-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799515-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799515-20250409.htm)
 
 ---

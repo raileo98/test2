@@ -1,3 +1,27 @@
+# 美股急升　道指重上4萬點　納指升逾一成
+
+![道指重上4萬點水平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799676_1_20250410024258.jpg&q=90)
+  
+
+美國總統特朗普宣布90日暫停向中國以外國家徵收高額對等關稅，刺激美股急升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm)
+
+---
+
 # 特朗普：對等關稅90日內暫降至一成　對華關稅即時增至125%
 
 ![特朗普表示，由於中國對世界市場的不尊重，決定將美國對中國徵收的關稅提高至125%，即時生效。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799674_1_20250410015631.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm)
-
----
-
-# 金融學院料金融服務界應用Gen.A.I.於3至5年內達87%
-
-![金融學院轄下香港貨幣及金融研究中心發表報告，料金融服務界應用生成式人工智能（Gen.A.I.）於3至5年內達87%。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799600_1_20250409162338.jpg&q=90)
-  
-
-金融學院轄下香港貨幣及金融研究中心，就金融服務業應用生成式人工智能（GenA.I.）現狀、發展路向、風險管理、人才發展策略發表報告，指出75%受訪金融機構已推出至少一個GenA.I.用例，或正進行試行計劃和設計用例，探索具潛質的投資領域。預計相關比率未來3-5年會上升至87%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799600-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799600-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799600-20250409.htm)
 
 ---
