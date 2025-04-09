@@ -1,3 +1,51 @@
+# 美元兌日圓和瑞士法郎反彈逾1%
+
+![美元兌日圓和瑞士法郎等，美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799690_1_20250410071102.jpg&q=90)
+  
+
+美元兌日圓和瑞士法郎等避險貨幣反彈，美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799690-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799690-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799690-20250410.htm)
+
+---
+
+# 港股ADR較本港昨日收市價相比個別發展　滙控急升近7%
+
+![港股ADR個別發展，滙控急升近7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799689_1_20250410065725.jpg&q=90)
+  
+
+港股美國預託證券(ADR)個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799689-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799689-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799689-20250410.htm)
+
+---
+
 # 金價升3%或以上　市場憂中美貿易緊張局勢進一步升級
 
 ![金價升3%或以上，受避險資金推動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799687_1_20250410054033.jpg&q=90)
@@ -1385,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799618-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799618-20250409.htm)
-
----
-
-# 多米尼加夜總會屋頂倒塌　最少98人死亡
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799619_1_20250409183356.jpg&q=70)
-  
-
-多米尼加首都聖多明各一間夜總會屋頂倒塌，最少98人死亡，過百人受傷，死者包括當地一名省長以及美國職棒大聯盟的退役球星。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799619-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799619-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799619-20250409.htm)
-
----
-
-# 報道：人行指導國有大行暫緩購匯　無意以貨幣大幅貶值應對關稅
-
-![外電報道，人行近日指導國有大行暫緩買入美元並加強代客購匯審查，避免加劇人民幣匯率調整壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799616_1_20250409164828.jpg&q=90)
-  
-
-外電引述消息人士說，人民銀行近日指導國有大行暫緩買入美元，並加強代客購匯審查，避免加劇人民幣匯率調整壓力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799616-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799616-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799616-20250409.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Israel says its seizing 'large areas' of Gaza
+
+![Palestinian rescuers work at the site of an Israeli strike on a residential area in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799691_1_20250410071647.jpg&q=60)
+  
+
+Israel said on Wednesday its troops were seizing "large areas" in Gaza and making the Palestinian territory "smaller and more isolated", as an air strike on a residential block killed at least 23 people.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799691-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799691-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799691-20250410.htm)
+
+---
+
 # France cuts growth forecast for 2025 on tariff fears
 
 ![French Economy Minister Eric Lombard said the annual growth forecast would be trimmed to 0.7 percent. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799688_1_20250410064059.jpg&q=90)
@@ -1411,29 +1435,5 @@ Florida and Walter Clayton somehow overcame Houston’s tough defence on Monday 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799390-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799390-20250408.htm)
-
----
-
-# MTR boosts services for Coldplay concerts
-
-![The MTR says passengers are advised to pay attention to station announcements and follow directional signage for guidance. Photo: MTR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799388_1_20250408113840.jpg&q=80)
-  
-
-The MTR said it would enhance services on the Tuen Ma and East Rail lines this week to accommodate concertgoers attending Coldplay’s performances at Kai Tak Stadium.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm)
 
 ---

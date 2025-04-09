@@ -1,3 +1,51 @@
+# 美元兌日圓和瑞士法郎反彈逾1%
+
+![美元兌日圓和瑞士法郎等，美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799690_1_20250410071102.jpg&q=90)
+  
+
+美元兌日圓和瑞士法郎等避險貨幣反彈，美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799690-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799690-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799690-20250410.htm)
+
+---
+
+# 港股ADR較本港昨日收市價相比個別發展　滙控急升近7%
+
+![港股ADR個別發展，滙控急升近7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799689_1_20250410065725.jpg&q=90)
+  
+
+港股美國預託證券(ADR)個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799689-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799689-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799689-20250410.htm)
+
+---
+
 # 金價升3%或以上　市場憂中美貿易緊張局勢進一步升級
 
 ![金價升3%或以上，受避險資金推動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799687_1_20250410054033.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799525-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799525-20250409.htm)
-
----
-
-# 有聯儲局官員指政策處於有利位置
-
-![戴利表示，雖然有點擔心關稅可能會暫時提升通脹，但在經濟增長良好。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799524_1_20250409075058.jpg&q=80)
-  
-
-美國三藩市聯儲銀行總裁戴利表示，雖然有點擔心關稅可能會暫時提升通脹，但在經濟增長良好、政策處於有利位置情況下，對於減息有時間、有能力慢慢來，指出要小心行事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799524-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799524-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799524-20250409.htm)
-
----
-
-# 南韓料美國關稅對當地汽車業造成重大損害　推緊急支持措施
-
-![南韓政府宣布對國內汽車業採取緊急支持措施，以減輕關稅政策對行業的打擊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799522_1_20250409074541.jpg&q=90)
-  
-
-南韓政府宣布對國內汽車業採取緊急支持措施，以減輕美國總統特朗普的關稅政策對行業的打擊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799522-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799522-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799522-20250409.htm)
 
 ---

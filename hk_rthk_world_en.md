@@ -1,3 +1,27 @@
+# Israel says its seizing 'large areas' of Gaza
+
+![Palestinian rescuers work at the site of an Israeli strike on a residential area in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799691_1_20250410071647.jpg&q=60)
+  
+
+Israel said on Wednesday its troops were seizing "large areas" in Gaza and making the Palestinian territory "smaller and more isolated", as an air strike on a residential block killed at least 23 people.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799691-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799691-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799691-20250410.htm)
+
+---
+
 # France cuts growth forecast for 2025 on tariff fears
 
 ![French Economy Minister Eric Lombard said the annual growth forecast would be trimmed to 0.7 percent. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799688_1_20250410064059.jpg&q=90)
@@ -1411,29 +1435,5 @@ Japan slammed as "extremely regrettable" US President Donald Trump's sweeping ne
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm)
-
----
-
-# Chinese rescuers fill vacuum US cuts leave in Myanmar
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798770_1_20250403120430.jpg&q=75)
-  
-
-After a 7.7 magnitude earthquake shook Myanmar on Friday, killing more than 2,800 people, international rescuers rushed into the devastated Southeast Asian country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm)
 
 ---
