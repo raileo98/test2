@@ -1,3 +1,27 @@
+# France cuts growth forecast for 2025 on tariff fears
+
+![French Economy Minister Eric Lombard said the annual growth forecast would be trimmed to 0.7 percent. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799688_1_20250410064059.jpg&q=90)
+  
+
+The French government has cut its growth forecast for 2025 because of the uncertainty over world trade, the economy minister said on Wednesday just hours after US President Donald Trump paused a massive hike in tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799688-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799688-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799688-20250410.htm)
+
+---
+
 # Deaths mount in Dominican Republic nightclub disaster
 
 ![Rescue teams working at the Jet Set nightclub a day after the collapse of its roof in Santo Domingo. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799679_1_20250410034524.jpg&q=60)
@@ -1411,29 +1435,5 @@ After a 7.7 magnitude earthquake shook Myanmar on Friday, killing more than 2,80
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm)
-
----
-
-# EU to prepare countermeasures to US reciprocal tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798769_1_20250403114610.jpg&q=90)
-  
-
-European Commission President Ursula von der Leyen described US President Donald Trump's universal tariffs as a major blow to the world economy and said that the European Union was prepared to respond with countermeasures if negotiations failed.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm)
 
 ---

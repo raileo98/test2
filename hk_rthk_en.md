@@ -1,3 +1,27 @@
+# France cuts growth forecast for 2025 on tariff fears
+
+![French Economy Minister Eric Lombard said the annual growth forecast would be trimmed to 0.7 percent. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799688_1_20250410064059.jpg&q=90)
+  
+
+The French government has cut its growth forecast for 2025 because of the uncertainty over world trade, the economy minister said on Wednesday just hours after US President Donald Trump paused a massive hike in tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799688-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799688-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799688-20250410.htm)
+
+---
+
 # Wall Street soars on Trump tariff pause
 
 ![All three major indices on Wall Street made dramatic gains after Donald Trump changed course. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799682_1_20250410051523.jpg&q=90)
@@ -1411,29 +1435,5 @@ The MTR said it would enhance services on the Tuen Ma and East Rail lines this w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm)
-
----
-
-# Kennedy gets teeth into ending US fluoridation
-
-![Robert F Kennedy says a task force of health experts will study the issue of fluoride in water and make new recommendations. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799385_1_20250408113219.jpg&q=90)
-  
-
-US Health Secretary Robert F Kennedy Jr said he plans to tell the Centers for Disease Control and Prevention to stop recommending fluoridation in communities nationwide.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799385-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799385-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799385-20250408.htm)
 
 ---
