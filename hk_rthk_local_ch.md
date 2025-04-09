@@ -1,3 +1,27 @@
+# 恒指下午初段跌逾2%　滬股轉跌
+
+![恒指較早時報19620點，跌476點，跌幅2.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799580_1_20250409130614.jpg&q=80)
+  
+
+港股下午初段跌幅擴大，美國的對等關稅生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm)
+
+---
+
 # 孫玉菡稱須測試確保過萬部閘機不出錯　限搭240程有意義
 
   
@@ -1421,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm)
-
----
-
-# 阮國恒稱中小企融資專責小組參與行同意彈性延長貿易融資還款期
-
-![阮國恒稱「中小企融資專責小組」18家參與銀行同意為進出口製造業彈性延長貿易融資貸款還款期。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799421_1_20250408151217.jpg&q=80)
-  
-
-金管局副總裁阮國恒表示，金管局今早與銀行及各大商會舉行兩場會議，銀行業界承諾繼續落實支持中小企的「9+5」措施，包括會以「還息不還本」計劃的原則和理念，繼續以包容態度支持中小企流動性需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm)
 
 ---

@@ -1,3 +1,75 @@
+# 日本財金部門下午舉行會議討論金融市況
+
+![日本央行、財務省、金融廳下午舉行會議，討論國際金融市場情況。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799581_1_20250409131403.jpg&q=75)
+  
+
+美國的對等關稅生效，日股跌逾4%，日圓兌美元升1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799581-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799581-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799581-20250409.htm)
+
+---
+
+# 恒指下午初段跌逾2%　滬股轉跌
+
+![恒指較早時報19620點，跌476點，跌幅2.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799580_1_20250409130614.jpg&q=80)
+  
+
+港股下午初段跌幅擴大，美國的對等關稅生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm)
+
+---
+
+# 分析指關稅令央行面臨出口下跌通脹上升兩難局面　料傾向加快減息
+
+![林俊泓指出，多國央行正面臨出口下跌與通脹上升兩難局面，關稅或促使央行大多偏向加快減息步伐。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799578_1_20250409130204.jpg&q=90)
+  
+
+新西蘭央行將指標利率下調0.25厘，降至3.5厘，央行表示，未來政策決將取決於中期通脹壓力前景，又指有進一步減息空間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799578-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799578-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799578-20250409.htm)
+
+---
+
 # 日股及台股跌幅擴至近5%至逾6%　日圓及金價升約1%
 
 ![日股及台股跌幅擴大至近5%至6%以上。南韓股市跌1.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799576_1_20250409125307.jpg&q=90)
@@ -1365,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799443-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799443-20250408.htm)
-
----
-
-# 優化新資本投資者入境計劃　當局料已批申請帶來逾270億元資金
-
-![劉凱旋有信心隨著加大推廣計劃，例如有東盟國家甚至歐洲和北美等地區，均有人申請。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799448_1_20250408182942.jpg&q=90)
-  
-
-立法會舉行特別財務委員會會議，審核2025至26年度開支預算。在財經事務方面，有議員關注優化新資本投資者入境計劃的情況，當局說截至今年2月底，新計劃合共接獲918宗申請，已批出868宗申請的淨資產審查和386宗申請的投資規定審查，預計可為本港帶來超過270億元資金。由於新計劃的相關優化措施只推行一段短時間，政府會持續檢視申請人的投資情況，並會適時評估成效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm)
-
----
-
-# 渣打：期望內地及美國以外地區推出措施穩定全球需求惠及香港出口
-
-![劉健恒稱市場過份憧憬年內大幅減息，認為聯儲局需平衡經濟增長及通脹。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799445_1_20250408183427.jpg&q=90)
-  
-
-渣打大中華及北亞區高級經濟師劉健恒認為，「特朗普1.0」時透過增加對其他地方出口以應對關稅的策略，今次未必能再奏效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799445-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799445-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799445-20250408.htm)
-
----
-
-# 再引進18間重點企業　陳茂波指連同早前企業帶來500億元投資
-
-![陳茂波表示，新一批引進企業未來會為香港帶來500億元的投資，創造2萬個職位。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799444_1_20250408170605.jpg&q=80)
-  
-
-引進重點企業辦公室下午舉辦重點企業夥伴簽約儀式，公布第四批共18間重點企業名單，當中涉及人工智能與數據科學，生命健康科技，先進製造與新能源科技等行業，14間企業來自內地，2間來自美國，1間來自新加坡，另有1間不公開企業名稱。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799444-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799444-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799444-20250408.htm)
 
 ---

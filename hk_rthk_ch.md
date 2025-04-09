@@ -1,3 +1,99 @@
+# 日本財金部門下午舉行會議討論金融市況
+
+![日本央行、財務省、金融廳下午舉行會議，討論國際金融市場情況。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799581_1_20250409131403.jpg&q=75)
+  
+
+美國的對等關稅生效，日股跌逾4%，日圓兌美元升1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799581-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799581-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799581-20250409.htm)
+
+---
+
+# 恒指下午初段跌逾2%　滬股轉跌
+
+![恒指較早時報19620點，跌476點，跌幅2.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799580_1_20250409130614.jpg&q=80)
+  
+
+港股下午初段跌幅擴大，美國的對等關稅生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm)
+
+---
+
+# 特朗普：將很快對進口藥物徵收關稅
+
+![特朗普說，徵稅後，製藥公司將在美國設廠，因為美國是最大的市場。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799579_1_20250409130243.jpg&q=90)
+  
+
+美國總統特朗普稱，將很快對進口藥物徵收關稅。他認為，徵稅後，製藥公司將在美國設廠，因為美國是最大的市場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799579-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799579-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799579-20250409.htm)
+
+---
+
+# 分析指關稅令央行面臨出口下跌通脹上升兩難局面　料傾向加快減息
+
+![林俊泓指出，多國央行正面臨出口下跌與通脹上升兩難局面，關稅或促使央行大多偏向加快減息步伐。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799578_1_20250409130204.jpg&q=90)
+  
+
+新西蘭央行將指標利率下調0.25厘，降至3.5厘，央行表示，未來政策決將取決於中期通脹壓力前景，又指有進一步減息空間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799578-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799578-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799578-20250409.htm)
+
+---
+
 # 孫玉菡稱須測試確保過萬部閘機不出錯　限搭240程有意義
 
   

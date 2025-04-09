@@ -1,3 +1,27 @@
+# 特朗普：將很快對進口藥物徵收關稅
+
+![特朗普說，徵稅後，製藥公司將在美國設廠，因為美國是最大的市場。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799579_1_20250409130243.jpg&q=90)
+  
+
+美國總統特朗普稱，將很快對進口藥物徵收關稅。他認為，徵稅後，製藥公司將在美國設廠，因為美國是最大的市場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799579-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799579-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799579-20250409.htm)
+
+---
+
 # 緬甸大地震增至逾3600人死亡　中國公民6死13傷
 
 ![緬甸大地震增至超過3600人死亡，超過5000人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799566_1_20250409115358.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799323-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799323-20250408.htm)
-
----
-
-# 阿爾及利亞召回駐馬里和尼日爾大使　對馬里關閉領空
-
-![阿爾及利亞召回駐馬里和尼日爾大使　對馬里關閉領空](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799322_1_20250408032608.jpg&q=90)
-  
-
-阿爾及利亞宣布，根據對等原則召回駐馬里和尼日爾大使，並推遲新任駐布基納法索大使履職，同時對馬里關閉領空。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799322-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799322-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799322-20250408.htm)
 
 ---
