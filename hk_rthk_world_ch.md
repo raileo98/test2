@@ -1,3 +1,27 @@
+# 德國聯盟黨與社民黨公布執政協議　默茨稱歐洲需共同回應美國關稅
+
+![默茨說，德國正迎來一個強大而有效的政府。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799670_1_20250410003022.jpg&q=90)
+  
+
+由基督教民主聯盟和基督教社會聯盟組成的德國聯盟黨，與德國社會民主黨公布聯合執政協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799670-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799670-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799670-20250410.htm)
+
+---
+
 # 國家文化和旅遊部提示中國遊客充分評估赴美旅遊風險　籲謹慎前往
 
 ![國家文化和旅遊部對赴美中國遊客發布風險提示。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799660_1_20250409224238.jpg&q=75)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm)
-
----
-
-# 李家超強烈譴責美國歪理霸凌制裁　每次制裁只會更堅定當局信心
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799375_1_20250408110409.jpg&q=90)
-  
-
-美國早前宣布制裁包括律政司司長林定國等6名特區人員，行政長官李家超對於美國以歪理霸凌制裁相關官員，表示強烈譴責，嗤之以鼻，他認為，美方的行為是想恫嚇特區維護國家安全的人員，肆意干預香港事務和中國內政，屬違反國際法及國際慣例，再次顯示美國霸權主義下的野蠻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm)
 
 ---

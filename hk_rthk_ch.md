@@ -1,3 +1,27 @@
+# 德國聯盟黨與社民黨公布執政協議　默茨稱歐洲需共同回應美國關稅
+
+![默茨說，德國正迎來一個強大而有效的政府。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799670_1_20250410003022.jpg&q=90)
+  
+
+由基督教民主聯盟和基督教社會聯盟組成的德國聯盟黨，與德國社會民主黨公布聯合執政協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799670-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799670-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799670-20250410.htm)
+
+---
+
 # 救援隊指揮官：隊員體能消耗嚴重獲特許缺勤　隊員讚揚搜救犬表現
 
 ![​香港特區救援隊完成緬甸地震災區搜救任務，指揮官趙汝珏透露，今次出發前只花15分鐘就成功召集隊員。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799669_1_20250410001423.jpg&q=90)
@@ -1409,31 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799595-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799595-20250409.htm)
-
----
-
-# 國務院發表中美經貿關係白皮書　重申貿易戰沒贏家保護主義沒出路
-
-![白皮書表示，中方始終認為，中美經貿關係的本質是互利共贏。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799596_1_20250409152142.jpg&q=85)
-  
-
-國新辦發布《關於中美經貿關係若干問題的中方立場》白皮書，指出中方始終認為中美經貿關係的本質是互利共贏，作為發展階段、經濟制度不同的兩個大國，中美雙方在經貿合作中出現分歧和磨擦是正常，關鍵要尊重彼此利益和重大關切，通過對話協商找到妥善解決問題的辦法。
-  
-白皮書重申貿易戰沒有贏家，保護主義沒有出路，希望美方與中方相向而行，通過平等對話磋商解決各自關切。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799596-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799596-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799596-20250409.htm)
 
 ---
