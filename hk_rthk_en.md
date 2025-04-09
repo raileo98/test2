@@ -1,3 +1,27 @@
+# Trump pauses tariffs for 90 days but hits China harder
+
+![US Treasury Secretary Scott Bessent says Donald Trump's "strategy" had played out as planned. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799675_1_20250410021956.jpg&q=90)
+  
+
+US President Donald Trump abruptly backed down on Wednesday in his global trade war with a 90-day pause for most countries – but slapped even more levies against China in what has become a full-scale confrontation between the world's two largest economies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799675-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799675-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799675-20250410.htm)
+
+---
+
 # Premier League claims fifth Champions League spot
 
 ![Arsenal's shock 3-0 win over 15-time European champions Real Madrid in the first leg of their quarter-final included two stunning free kicks from Declan Rice. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799668_1_20250410001250.jpg&q=80)
@@ -1411,29 +1435,5 @@ Chief Executive John Lee has hit out at the United States for slapping "reckless
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm)
-
----
-
-# Seoul confirms June 3 date for presidential elections
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799377_1_20250408105202.jpg&q=90)
-  
-
-South Korea will hold a presidential election on June 3, the country's acting president said on Tuesday, after Seoul's former leader Yoon Suk-yeol was removed from office over a disastrous declaration of martial law.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799377-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799377-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799377-20250408.htm)
 
 ---

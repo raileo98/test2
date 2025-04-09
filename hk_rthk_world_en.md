@@ -1,3 +1,27 @@
+# Trump pauses tariffs for 90 days but hits China harder
+
+![US Treasury Secretary Scott Bessent says Donald Trump's "strategy" had played out as planned. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799675_1_20250410021956.jpg&q=90)
+  
+
+US President Donald Trump abruptly backed down on Wednesday in his global trade war with a 90-day pause for most countries – but slapped even more levies against China in what has become a full-scale confrontation between the world's two largest economies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799675-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799675-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799675-20250410.htm)
+
+---
+
 # EU greenlights first set of tariffs hitting back at US
 
 ![Europe's response to Trump's latest tariffs salvo yet to be announced. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799659_1_20250409220122.jpg&q=85)
@@ -1411,29 +1435,5 @@ Beijing on Thursday said it "firmly opposes" sweeping new US tariffs on its expo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm)
-
----
-
-# 'Tariffs will change global trading system'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798733_1_20250403083353.jpg&q=90)
-  
-
-Canadian Prime Minister Mark Carney on Wednesday vowed to "fight" against US President Donald Trump's sweeping tariffs, which he warned will "fundamentally change the global trading system."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm)
 
 ---
