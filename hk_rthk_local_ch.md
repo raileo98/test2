@@ -1,5 +1,53 @@
+# 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
+
+  
+
+針對美國個别政客再次推動有關法案，詆毁香港自治和法治，叫囂取消香港駐美經貿辦事處有關待遇甚至關閉辦事處，外交部駐港公署發言人表示強烈譴責和堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm)
+
+---
+
+# 發展局稱3片區面積大有很多空間發展具規模渡假設施
+
+![發展局指3片區地方面積大，可以有很多空間發展具規模的渡假設施，包括不同元素，可以行山、釣魚、住宿等不同選擇。（立法會文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799586_1_20250409141008.jpg&q=90)
+  
+
+發展局就3個生態旅遊發展片區項目，邀請發展商提交意向書，分別是前南丫島石礦場用地、南大嶼生態康樂走廊，以及尖鼻咀及白泥的生態旅遊發展項目，目標最快明年下半年就項目招標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799586-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799586-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799586-20250409.htm)
+
+---
+
 # 文體旅局召開會議統籌黃金周預備工作　羅淑佩籲盡力接待旅客
 
+![文化體育及旅遊局召開會議統籌內地勞動節黃金周旅客訪港預備工作，與各單位代表討論旅客訪港安排。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799584_1_20250409140945.jpg&q=85)
   
 
 文化體育及旅遊局召開會議，統籌一連五日內地勞動節黃金周期間接待訪港旅客的預備工作。會議由文體旅局局長羅淑佩主持，除警務處、入境處、海關、運輸署及多區民政事務處等部門代表外，多個旅遊相關機構包括旅監局、旅發局、旅議會、西九文化區管理局、主要旅遊景點及酒店業等亦有派員出席。
@@ -23,6 +71,7 @@
 
 # 會計師公會：美國關稅政策對會計行業有危有機
 
+![歐振興說，會計業正面臨前所未有的轉型。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799585_1_20250409135536.jpg&q=90)
   
 
 香港會計師公會會長歐振興表示，貿易戰影響市場資金部署，短期為金融市場帶來波動，仍需視乎關稅政策後續發展及如何落實 ，但對會計行業是有危有機。
@@ -70,6 +119,7 @@
 
 # 孫玉菡稱須測試確保過萬部閘機不出錯　限搭240程有意義
 
+![孫玉菡指八達通系統需要調整和測試，目前已經完成，但還有很多事後測試，確保過萬部閘機不會出錯，穩妥的話需時1年。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799577_1_20250409140920.jpg&q=90)
   
 
 政府表示，兩元乘車優惠計劃「兩蚊兩折」方案明年4月推行，較原先估計提早大約5個月，可額外節省2.6億元。至於「優惠車程設限」方案，預計於「兩蚊兩折」方案推行約1年後實施。
@@ -1395,53 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm)
-
----
-
-# 回應美國籲阿根廷終止與中國本幣互換合作　外交部批美挑撥離間
-
-![林劍表示，中方一貫在平等互利基礎上與阿根廷合作，兩國本幣互換合作為阿根廷維護經濟金融穩定，發揮重要作用。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799427_1_20250408152519.jpg&q=90)
-  
-
-美國國務院拉美問題特使卡羅內近日呼籲阿根廷終止與中國的本幣互換合作，並形容這是中國對阿根廷的「勒索機制」。在北京，外交部發言人林劍表示，中國同有關國家雙邊合作從不針對第三方，也不應受到第三方干擾。到底是誰在勒索脅迫、無事生非，公道自在人心。中方奉勸美方擺正心態，與其花時間挑撥離間，不如為拉美和加勒比國家發展多做點實實在在的事情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm)
-
----
-
-# 曼聯時隔12年再訪港　下月30日與港隊於大球場踢表演賽
-
-![曼聯將於5月30日晚上8時，與港隊在大球場對戰。（中國香港足球總會社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799426_1_20250408153824.jpg&q=90)
-  
-
-英超球隊曼聯將於5月底訪港，與中國香港足球代表隊在香港大球場踢表演賽。主辦單位與中國香港足球總會將於星期四下午舉行記者會，公布賽事詳情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799426-20250408.htm)
 
 ---

@@ -1,3 +1,98 @@
+# 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
+
+  
+
+針對美國個别政客再次推動有關法案，詆毁香港自治和法治，叫囂取消香港駐美經貿辦事處有關待遇甚至關閉辦事處，外交部駐港公署發言人表示強烈譴責和堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm)
+
+---
+
+# 發展局稱3片區面積大有很多空間發展具規模渡假設施
+
+![發展局指3片區地方面積大，可以有很多空間發展具規模的渡假設施，包括不同元素，可以行山、釣魚、住宿等不同選擇。（立法會文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799586_1_20250409141008.jpg&q=90)
+  
+
+發展局就3個生態旅遊發展片區項目，邀請發展商提交意向書，分別是前南丫島石礦場用地、南大嶼生態康樂走廊，以及尖鼻咀及白泥的生態旅遊發展項目，目標最快明年下半年就項目招標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799586-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799586-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799586-20250409.htm)
+
+---
+
+# 文體旅局召開會議統籌黃金周預備工作　羅淑佩籲盡力接待旅客
+
+![文化體育及旅遊局召開會議統籌內地勞動節黃金周旅客訪港預備工作，與各單位代表討論旅客訪港安排。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799584_1_20250409140945.jpg&q=85)
+  
+
+文化體育及旅遊局召開會議，統籌一連五日內地勞動節黃金周期間接待訪港旅客的預備工作。會議由文體旅局局長羅淑佩主持，除警務處、入境處、海關、運輸署及多區民政事務處等部門代表外，多個旅遊相關機構包括旅監局、旅發局、旅議會、西九文化區管理局、主要旅遊景點及酒店業等亦有派員出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm)
+
+---
+
+# 會計師公會：美國關稅政策對會計行業有危有機
+
+![歐振興說，會計業正面臨前所未有的轉型。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799585_1_20250409135536.jpg&q=90)
+  
+
+香港會計師公會會長歐振興表示，貿易戰影響市場資金部署，短期為金融市場帶來波動，仍需視乎關稅政策後續發展及如何落實 ，但對會計行業是有危有機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm)
+
+---
+
 # 印度央行減息0.25厘　政策立場轉為寬鬆
 
 ![印度央行減息25個基點至6厘，符合市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799582_1_20250409132440.jpg&q=75)
@@ -120,6 +215,7 @@
 
 # 孫玉菡稱須測試確保過萬部閘機不出錯　限搭240程有意義
 
+![孫玉菡指八達通系統需要調整和測試，目前已經完成，但還有很多事後測試，確保過萬部閘機不會出錯，穩妥的話需時1年。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799577_1_20250409140920.jpg&q=90)
   
 
 政府表示，兩元乘車優惠計劃「兩蚊兩折」方案明年4月推行，較原先估計提早大約5個月，可額外節省2.6億元。至於「優惠車程設限」方案，預計於「兩蚊兩折」方案推行約1年後實施。

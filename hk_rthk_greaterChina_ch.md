@@ -1,3 +1,26 @@
+# 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
+
+  
+
+針對美國個别政客再次推動有關法案，詆毁香港自治和法治，叫囂取消香港駐美經貿辦事處有關待遇甚至關閉辦事處，外交部駐港公署發言人表示強烈譴責和堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm)
+
+---
+
 # 緬甸大地震增至逾3600人死亡　中國公民6死13傷
 
 ![緬甸大地震增至超過3600人死亡，超過5000人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799566_1_20250409115358.jpg&q=80)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm)
-
----
-
-# 莊太量指中國反制或令美國及歐洲股市下跌　料美國難應付多國反制
-
-![莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798968_1_20250404205933.jpg&q=85)
-  
-
-國務院關稅稅則委員會宣布，本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。他相信，美股有機會繼續跌，近日有機會引發全球小股災。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm)
 
 ---

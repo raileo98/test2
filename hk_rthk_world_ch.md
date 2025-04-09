@@ -1,3 +1,26 @@
+# 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
+
+  
+
+針對美國個别政客再次推動有關法案，詆毁香港自治和法治，叫囂取消香港駐美經貿辦事處有關待遇甚至關閉辦事處，外交部駐港公署發言人表示強烈譴責和堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm)
+
+---
+
 # 特朗普：將很快對進口藥物徵收關稅
 
 ![特朗普說，徵稅後，製藥公司將在美國設廠，因為美國是最大的市場。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799579_1_20250409130243.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799324-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799324-20250408.htm)
-
----
-
-# 特朗普：美國與伊朗周六舉行高級別會談　重申伊朗不能擁核武
-
-![特朗普說，如果與德黑蘭的談判不成功，伊朗將會面臨極大危險。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799323_1_20250408041652.jpg&q=90)
-  
-
-美國總統特朗普表示，美國將會與伊朗直接談判，雙方將於星期六舉行一次非常重要、幾乎是最高級別的會談，或者會達成協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799323-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799323-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799323-20250408.htm)
 
 ---
