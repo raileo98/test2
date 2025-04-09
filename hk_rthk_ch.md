@@ -22,29 +22,6 @@
 
 ---
 
-# 陳國基：特區救援隊臨危受命　充分發揮中國人抗震救災精神
-
-  
-
-特區救援隊完成緬甸地震災區搜救任務返港，特區政府今晚在香港機場為隊員舉行迎接儀式。行政長官李家超、政務司司長陳國基及保安局局長鄧炳強等將會出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799655-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799655-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799655-20250409.htm)
-
----
-
 # 美財長對中國84%報復性關稅表示遺憾　籲中方談判
 
 ![美國財長貝森對中國84%報復性關稅，表示遺憾，呼籲中方談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799654_1_20250409203820.jpg&q=90)

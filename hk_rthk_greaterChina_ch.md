@@ -1,26 +1,3 @@
-# 陳國基：特區救援隊臨危受命　充分發揮中國人抗震救災精神
-
-  
-
-特區救援隊完成緬甸地震災區搜救任務返港，特區政府今晚在香港機場為隊員舉行迎接儀式。行政長官李家超、政務司司長陳國基及保安局局長鄧炳強等將會出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799655-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799655-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799655-20250409.htm)
-
----
-
 # 李強指已充分估計外部衝擊　做好各種應對準備
 
 ![李強指外部衝擊對國家經濟平穩運作造成一定壓力，對此已經作了充分估計，並做好應對各種不確定因素的準備。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799652_1_20250409201619.jpg&q=90)
@@ -1433,5 +1410,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799208-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799208-20250407.htm)
+
+---
+
+# 央視「玉淵譚天」文章指特朗普濫施關稅　美國上下開展自救行動
+
+![文章指關稅措施從根本上重塑美國人生活。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799195_1_20250407104031.jpg&q=75)
+  
+
+央視旗下社交平台「玉淵譚天」發文，形容關稅措施為美國帶來的風暴才剛剛開始。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm)
 
 ---
