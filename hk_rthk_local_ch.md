@@ -1,3 +1,23 @@
+# 特區政府稱絕不代美國收所謂關稅　稍後公布暫停處理寄美郵遞安排
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799646-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799646-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799646-20250409.htm)
+
+---
+
 # 金融學院：金融機構目前GenA.I.著眼點並非取代部分工種
 
 ![馮殷諾（左）稱金融機構目前視人工智能為提升效率、簡化工序的工具。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799641_1_20250409190933.jpg&q=90)
@@ -1413,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799469-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799469-20250408.htm)
-
----
-
-# 銀行公會歡迎金管局與銀行業推出針對個別行業支持措施
-
-![銀行公會歡迎金管局與銀行業針對個別行業推出支持措施，協助中小企減輕資金壓力及升級轉型。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799464_1_20250408182755.jpg&q=90)
-  
-
-銀行公會表示，歡迎金管局與銀行業推出針對個別行業的支持措施，協助更多中小企減輕資金流動性壓力及升級轉型。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799464-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799464-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799464-20250408.htm)
 
 ---

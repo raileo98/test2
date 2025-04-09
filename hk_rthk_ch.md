@@ -1,3 +1,47 @@
+# 特區政府稱絕不代美國收所謂關稅　稍後公布暫停處理寄美郵遞安排
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799646-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799646-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799646-20250409.htm)
+
+---
+
+# 中國移動香港斥資約11.96億元入股香港寬頻成大股東之一
+
+![中國移動香港斥資約11.96億元入股香港寬頻，成為公司大股東之一。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799645_1_20250409194356.jpg&q=90)
+  
+
+香港寬頻公布，中國移動香港斥資約11.96億元入股。交易完成後，中移動香港將持有香港寬頻約15.46%經擴大已發行股本，成為公司大股東之一。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799645-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799645-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799645-20250409.htm)
+
+---
+
 # 商務部將十多間美國企業列出口管制和不可靠實體清單
 
 ![商務部公布，將12家美國實體列入出口管制管控名單，將6家涉對台軍售的美國企業列入不可靠實體清單。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799643_1_20250409192259.jpg&q=90)
