@@ -1,3 +1,27 @@
+# 澤連斯基：155名中國公民為俄軍作戰
+
+![澤連斯基說，烏方正試圖評估這些被招募人員是否接受來自北京的指示。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799677_1_20250410033738.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，情報部門掌握的信息顯示，有155名中國公民正在為俄羅斯軍隊作戰，對抗烏克蘭，指俄羅斯透過社交媒體招募中國公民參戰，中國官員亦知情，烏方正試圖評估這些被招募人員是否接受來自北京的指示。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799677-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799677-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799677-20250410.htm)
+
+---
+
 # 特朗普：對等關稅90日內暫降至一成　對華關稅即時增至125%
 
 ![特朗普表示，由於中國對世界市場的不尊重，決定將美國對中國徵收的關稅提高至125%，即時生效。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799674_1_20250410015631.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799409-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799409-20250408.htm)
-
----
-
-# 特朗普不滿俄羅斯持續轟炸烏克蘭
-
-![特朗普表示，他對俄羅斯持續轟炸烏克蘭感到不滿。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799400_1_20250408123713.jpg&q=90)
-  
-
-美國總統特朗普表示，他對俄羅斯持續轟炸烏克蘭感到不滿。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799400-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799400-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799400-20250408.htm)
 
 ---

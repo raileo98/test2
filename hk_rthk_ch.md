@@ -1,3 +1,27 @@
+# 澤連斯基：155名中國公民為俄軍作戰
+
+![澤連斯基說，烏方正試圖評估這些被招募人員是否接受來自北京的指示。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799677_1_20250410033738.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，情報部門掌握的信息顯示，有155名中國公民正在為俄羅斯軍隊作戰，對抗烏克蘭，指俄羅斯透過社交媒體招募中國公民參戰，中國官員亦知情，烏方正試圖評估這些被招募人員是否接受來自北京的指示。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799677-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799677-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799677-20250410.htm)
+
+---
+
 # 美股急升　道指重上4萬點　納指升逾一成
 
 ![道指重上4萬點水平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799676_1_20250410024258.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799603-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799603-20250409.htm)
-
----
-
-# 烏克蘭稱俘獲2名中國士兵　外交部：正核實情況
-
-![烏克蘭俘獲2名中國士兵，中方指正核實情況。（澤連斯基社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799601_1_20250409153859.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基表示，烏軍在東部頓涅茨克，俘虜2名為俄軍作戰的中國公民。在北京，外交部表示，中方正向烏克蘭核實有關的情況。發言人林劍表示，中國政府始終要求公民遠離武裝衝突區域，避免以任何形式，捲入武裝衝突，尤其應應避免參加任何一方的軍事行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm)
 
 ---
