@@ -48,7 +48,7 @@
 
 # 「兩元兩折」明年4月推行　孫玉菡稱提早約5個月節省2.6億元
 
-![孫玉菡指兩元乘車優惠計劃「兩元兩折」方案，可於明年4月推行，較原先估計提早大約5個月，可額外節省2.6億元。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799557_1_20250409110810.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799557_1_20250409111555.jpg&q=90)
   
 
 勞工及福利局局長孫玉菡表示，經與八達通公司及公共營辦商磋商後，兩元乘車優惠計劃「兩元兩折」方案，可於明年4月推行，較原先估計提早大約5個月，可額外節省2.6億元。至於「優惠車程設限」方案，局方預計將於「兩元兩折」方案推行約1年後實施。
@@ -936,7 +936,7 @@
 
 # 特朗普稱關稅措施對其美國願景至關重要　推出後大量錢湧入美國
 
-![特朗普聲稱工業界已表達在美國設廠及推展業務的意願。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799511_1_20250409073330.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799511_1_20250409073330.jpg&q=90)
   
 
 美國總統特朗普形容，自己近日公布的關稅措施具「爆炸性」，但他堅信有關措施對他的美國願景是至關重要。

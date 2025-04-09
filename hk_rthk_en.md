@@ -1,3 +1,27 @@
+# 'HK well prepared to face any trade disruptions'
+
+![HKTDC's Irina Fan says Hong Kong's diversified trade links will help it withstand any pressure from new US tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799560_1_20250409111312.jpg&q=75)
+  
+
+A senior official with the Hong Kong Trade Development Council (HKTDC) on Wednesday said the SAR would be resilient in the face of ongoing uncertainty from the new tariffs imposed by the Trump administration.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799560-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799560-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799560-20250409.htm)
+
+---
+
 # Chai-yan, elder daughter of CY Leung, dies at 33
 
 ![Chai-yan, elder daughter of CY Leung, dies at 33](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799548_1_20250409101920.jpg&q=90)
@@ -1411,29 +1435,5 @@ China on Monday accused the US of unilateralism, protectionism and economic bull
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799275-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799275-20250407.htm)
-
----
-
-# 'DC members shouldn't speak just for the sake of it'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799254_1_20250407154426.jpg&q=90)
-  
-
-Home affairs minister Alice Mak on Monday defended some district councillors who reportedly have not spoken during meetings for an entire year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm)
 
 ---

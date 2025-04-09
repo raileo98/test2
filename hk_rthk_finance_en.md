@@ -1,3 +1,27 @@
+# 'HK well prepared to face any trade disruptions'
+
+![HKTDC's Irina Fan says Hong Kong's diversified trade links will help it withstand any pressure from new US tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799560_1_20250409111312.jpg&q=75)
+  
+
+A senior official with the Hong Kong Trade Development Council (HKTDC) on Wednesday said the SAR would be resilient in the face of ongoing uncertainty from the new tariffs imposed by the Trump administration.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799560-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799560-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799560-20250409.htm)
+
+---
+
 # Hong Kong stocks plunge more than 3pc at open
 
 ![Hong Kong stocks dropped further, after recovering just over one percent the previous day, following Monday's 13.2 percent dive. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799529_1_20250409085033.jpg&q=75)
@@ -1412,29 +1436,5 @@ Japan's government on Thursday warned of a "significant impact" on its economic 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797646-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797646-20250327.htm)
-
----
-
-# Hang Seng bucks trend to open up
-
-![Hang Seng bucks trend to open up](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797633_1_20250327105107.jpg&q=80)
-  
-
-Asian shares mostly skidded with Wall Street on Thursday while the dollar hovered near a three-week high after US President Donald Trump announced new tariffs on all auto imports, ratcheting up a global trade war that risks fuelling inflation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm)
 
 ---
