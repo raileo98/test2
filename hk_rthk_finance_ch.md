@@ -1,3 +1,27 @@
+# 道指急升2962點　納指飆逾12%　美國暫緩多國高額對等關稅
+
+![美股急升，美國暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799683_1_20250410052450.jpg&q=90)
+  
+
+美股急升，美國總統特朗普表示，對中國加徵的關稅稅率提升至125%，但暫緩對其他國家徵收較高稅率的對等關稅90日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799683-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799683-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799683-20250410.htm)
+
+---
+
 # 美股急升　道指重上4萬點　納指升逾一成
 
 ![道指重上4萬點水平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799676_1_20250410024258.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799513-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799513-20250409.htm)
-
----
-
-# 油價低收近2%或以上　憂經濟衰退影響需求
-
-![油價跌近2%或以上收市，市場擔心貿易衝突加劇影響原油需求。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799514_1_20250409054404.jpg&q=90)
-  
-
-原油期貨價格跌近2%或以上收市。貿易衝突加劇令市場擔心導致經濟衰退，影響原油需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799514-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799514-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799514-20250409.htm)
 
 ---

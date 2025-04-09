@@ -1,3 +1,27 @@
+# 特朗普暫緩中國以外多國高額對等關稅　相信最終會跟中方達成協議
+
+![特朗普相信，美方會在某個時候接到中方的電話，雙方最終會達成一項非常好的協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799684_1_20250410053117.jpg&q=90)
+  
+
+美國總統特朗普宣布，即時上調對中國加徵的關稅至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799684-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799684-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799684-20250410.htm)
+
+---
+
 # 世貿總幹事稱中美商品貿易或減少多達八成
 
 ![伊維拉呼籲所有成員透過合作與對話來應對挑戰。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799681_1_20250410042358.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799417-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799417-20250408.htm)
-
----
-
-# 新加坡一座建築物發生火警19人送院
-
-![新加坡一座建築物發生火警19人送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799416_1_20250408145251.jpg&q=90)
-  
-
-新加坡南部一座三層高建築物發生火警，19人送院救治，包括15名兒童。當局正調查起火原因。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799416-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799416-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799416-20250408.htm)
 
 ---
