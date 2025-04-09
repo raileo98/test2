@@ -1,3 +1,27 @@
+# 世貿總幹事稱中美商品貿易或減少多達八成
+
+![伊維拉呼籲所有成員透過合作與對話來應對挑戰。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799681_1_20250410042358.jpg&q=90)
+  
+
+世貿總幹事伊維拉表示，中美貿易緊張局勢不斷升級，構成雙邊貿易大幅萎縮的重大風險，初步預測可能令兩國商品貿易減少多達八成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm)
+
+---
+
 # 馬克龍：法國可能在今年6月承認巴勒斯坦國
 
 ![馬克龍認為，在適當時機承認巴勒斯坦國是正當。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799680_1_20250410034904.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799416-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799416-20250408.htm)
-
----
-
-# 外交部：美方所作所為沒體現認真對話意願
-
-![外交部發言人林劍表示，美方所作所為沒有體現出想要認真對話的意願。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799415_1_20250408144306.jpg&q=90)
-  
-
-在北京，外交部被問到中美會否就貿易問題會談或談判，發言人林劍表示，美方的所作所為沒有體現出想要認真對話的意願。美方如果真的想談，就應該拿出平等、尊重、互惠的態度。如果美方置兩國和國際社會的利益於不顧，執意打關稅戰、貿易戰，中方必將奉陪到底。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm)
 
 ---

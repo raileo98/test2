@@ -1,3 +1,27 @@
+# 世貿總幹事稱中美商品貿易或減少多達八成
+
+![伊維拉呼籲所有成員透過合作與對話來應對挑戰。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799681_1_20250410042358.jpg&q=90)
+  
+
+世貿總幹事伊維拉表示，中美貿易緊張局勢不斷升級，構成雙邊貿易大幅萎縮的重大風險，初步預測可能令兩國商品貿易減少多達八成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm)
+
+---
+
 # 馬克龍：法國可能在今年6月承認巴勒斯坦國
 
 ![馬克龍認為，在適當時機承認巴勒斯坦國是正當。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799680_1_20250410034904.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799610-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799610-20250409.htm)
-
----
-
-# 海關檢約120萬元冒牌貨物　拘捕64歲貨車司機
-
-![海關檢獲的懷疑冒牌貨物。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799606_1_20250409161232.jpg&q=85)
-  
-
-海關早前在港珠澳大橋香港口岸檢獲約6600件懷疑冒牌貨物，估計市值約120萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799606-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799606-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799606-20250409.htm)
 
 ---
