@@ -1,3 +1,122 @@
+# 金與正稱北韓無核化是妄想　擁核國地位不因任何人否認而動搖
+
+  
+
+北韓《朝中社》報道，勞動黨中央委員會副部長金與正強調北韓無核化是不可實現的妄想，強烈譴責美日韓外長日前重申致力在北韓徹底無核化，是最嚴重的敵對行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799528-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799528-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799528-20250409.htm)
+
+---
+
+# 韓股初段偏軟
+
+![首爾綜合指數較早時報2330點，跌3點，跌幅0.16%。（法新社資料圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799526_2_20250409080623.jpg&q=90)
+  
+
+南韓股市初段偏軟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799526-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799526-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799526-20250409.htm)
+
+---
+
+# 日股初段跌逾千點
+
+![日經指數較早時報31907點，跌1105點，跌幅3.35%。 （日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799525_1_20250409080304.jpg&q=90)
+  
+
+東京股市初段急跌。日經指數較早時報31907點，跌1105點，跌幅3.35%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799525-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799525-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799525-20250409.htm)
+
+---
+
+# 有聯儲局官員指政策處於有利位置
+
+![戴利表示，雖然有點擔心關稅可能會暫時提升通脹，但在經濟增長良好。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799524_1_20250409075058.jpg&q=80)
+  
+
+美國三藩市聯儲銀行總裁戴利表示，雖然有點擔心關稅可能會暫時提升通脹，但在經濟增長良好、政策處於有利位置情況下，對於減息有時間、有能力慢慢來，指出要小心行事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799524-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799524-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799524-20250409.htm)
+
+---
+
+# 南韓料美國關稅對當地汽車業造成重大損害　推緊急支持措施
+
+![南韓政府宣布對國內汽車業採取緊急支持措施，以減輕關稅政策對行業的打擊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799522_1_20250409074541.jpg&q=90)
+  
+
+南韓政府宣布對國內汽車業採取緊急支持措施，以減輕美國總統特朗普的關稅政策對行業的打擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799522-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799522-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799522-20250409.htm)
+
+---
+
 # 港股ADR較本港昨日收市價普遍下跌
 
 ![港股美國預託證券普遍下跌，友邦跌近4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799516_1_20250409062405.jpg&q=75)
@@ -1322,127 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799456-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799456-20250408.htm)
-
----
-
-# 美軍將於沖繩嘉手納基地部署大型無人機
-
-![美軍將於沖繩嘉手納基地部署大型無人機](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799453_1_20250408172251.jpg&q=90)
-  
-
-美軍將於日本沖繩嘉手納空軍基地部署大型無人機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799453-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799453-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799453-20250408.htm)
-
----
-
-# 南韓：約10名北韓士兵越過軍事分界線　鳴槍警告後退回
-
-![南韓：約10名北韓士兵越過軍事分界線　鳴槍警告後退回](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799454_1_20250408172801.jpg&q=90)
-  
-
-南韓聯合參謀本部表示，約10名北韓士兵越過軍事分界線，在南韓鳴槍警告後馬上退回。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799454-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799454-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799454-20250408.htm)
-
----
-
-# Coldplay周邊商品大部分售罄　旅客未能購心頭好感可惜
-
-![有來自深圳的旅客說，購買了具有香港元素的海報和黑膠專輯，認為商店安排和輪候時間不錯。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799455_1_20250408180509.jpg&q=85)
-![不少觀眾提早到場選購商品及「打卡」拍照。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799455_2_20250408180710.jpg&q=90)
-![有顧客表示，大部分周邊商品已售罄。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799455_3_20250408180710.jpg&q=85)
-  
-
-英國樂隊Coldplay今晚起在啟德體育園主場館舉行演唱會，下午已有不少市民和旅客到場搶購期間限定店的演唱會周邊商品。有顧客表示，大部分周邊商品已售罄，但整體氣氛良好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799455-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799455-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799455-20250408.htm)
-
----
-
-# 巴拿馬審計報告指長和港口特許經營權有多項違規
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799439_1_20250408181902.jpg&q=90)
-  
-
-巴拿馬的審計報告指，授予長和旗下子公司，經營兩座港口的特許經營權，存在多項違規行為，違反合約條款，巴拿馬當局也未收到合約列明的12億美元欠款。有當地法律專家認為，如果總審計長確認特許經營權續約有違規行為，或最高法院宣布合約違憲，特許經營權可能會被撤銷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm)
-
----
-
-# 在岸人民幣兌美元收市創19個月新低
-
-![人民幣收市報7.3368兌1美元，較上日收市跌219點子，創19個月新低。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799449_1_20250408171332.jpg&q=90)
-  
-
-人民幣兌美元收市創19個月新低，報7.3368兌1美元，較上日收市跌219點子。中間價失守7.2關口，創逾1年半低位，報7.2038，與市場預測偏離水平擴至近1300點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799449-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799449-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799449-20250408.htm)
 
 ---

@@ -1,4 +1,28 @@
-# White House says 104pc China tariffs take effect Wed
+# Universal to build first Europe theme park in UK: PM
+
+![Britain's Prime Minister Keir Starmer (right) welcomes President of the Comcast Corporation Mike Cavanagh to Downing Street, London. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799527_1_20250409081130.jpg&q=90)
+  
+
+US media giant Comcast Corp will build its first Universal theme park and resort in Europe in Bedford, north of London, opening in 2031, the British government said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799527-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799527-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799527-20250409.htm)
+
+---
+
+# White House: 104pc China tariffs take effect on Wed
 
 ![White House press secretary Karoline Leavitt said President Trump believed China wanted to make a deal over tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799523_1_20250409074554.jpg&q=90)
   
@@ -1411,29 +1435,5 @@ World No 5 Novak Djokovic, a finalist at the recent Miami Masters, said he did n
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799230-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799230-20250407.htm)
-
----
-
-# Alcaraz admits Sinner pressure getting to him
-
-![Carlos Alcaraz says he is at peace with not being able to displace Jannik Sinner from his top ranking. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799227_1_20250407124847.jpg&q=90)
-  
-
-Carlos Alcaraz said pressure to reclaim the world number one ranking from the suspended Jannik Sinner has had a negative impact on his form this season.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799227-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799227-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799227-20250407.htm)
 
 ---

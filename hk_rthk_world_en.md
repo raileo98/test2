@@ -1,3 +1,27 @@
+# Universal to build first Europe theme park in UK: PM
+
+![Britain's Prime Minister Keir Starmer (right) welcomes President of the Comcast Corporation Mike Cavanagh to Downing Street, London. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799527_1_20250409081130.jpg&q=90)
+  
+
+US media giant Comcast Corp will build its first Universal theme park and resort in Europe in Bedford, north of London, opening in 2031, the British government said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799527-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799527-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799527-20250409.htm)
+
+---
+
 # Trump signs order to 'turbocharge' coal mining in US
 
 ![President Trump speaks next to coal industry workers, on the day he signs energy-related executive orders at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799521_1_20250409073316.jpg&q=90)
@@ -1411,29 +1435,5 @@ Rescue teams from the SAR and the mainland have joined hands in finding a surviv
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm)
-
----
-
-# Teen held over mass killings plan outside mosques
-
-![The 17-year-old is alleged to have targeted five mosques in Singapore as part of his plan to kill at least 100 Muslims. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798653_1_20250402175858.jpg&q=75)
-  
-
-A Singaporean teenager allegedly planning to kill dozens of Muslims outside several mosques has been detained, the city-state's Internal Security Department (ISD) said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm)
 
 ---

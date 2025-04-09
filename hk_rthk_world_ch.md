@@ -1,3 +1,26 @@
+# 金與正稱北韓無核化是妄想　擁核國地位不因任何人否認而動搖
+
+  
+
+北韓《朝中社》報道，勞動黨中央委員會副部長金與正強調北韓無核化是不可實現的妄想，強烈譴責美日韓外長日前重申致力在北韓徹底無核化，是最嚴重的敵對行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799528-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799528-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799528-20250409.htm)
+
+---
+
 # 多米尼加夜總會屋頂坍塌事故增至最少66死　仍有人被困待救
 
 ![約400名救援人員持續在瓦礫中搜尋生還者，戴著安全帽的工人在場挖掘。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799519_1_20250409073732.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799274-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799274-20250407.htm)
-
----
-
-# 特朗普將關稅喻為良藥　指需解決中美逆差
-
-![特朗普將關稅比喻為「良藥」，指有時需要靠吃藥解決問題。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799273_1_20250407171020.jpg&q=90)
-  
-
-美國總統特朗普在「空軍一號」專機，回應傳媒有關關稅措施引發金融市場震盪的提問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799273-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799273-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799273-20250407.htm)
 
 ---

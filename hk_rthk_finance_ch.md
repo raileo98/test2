@@ -1,3 +1,99 @@
+# 韓股初段偏軟
+
+![首爾綜合指數較早時報2330點，跌3點，跌幅0.16%。（法新社資料圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799526_2_20250409080623.jpg&q=90)
+  
+
+南韓股市初段偏軟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799526-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799526-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799526-20250409.htm)
+
+---
+
+# 日股初段跌逾千點
+
+![日經指數較早時報31907點，跌1105點，跌幅3.35%。 （日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799525_1_20250409080304.jpg&q=90)
+  
+
+東京股市初段急跌。日經指數較早時報31907點，跌1105點，跌幅3.35%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799525-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799525-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799525-20250409.htm)
+
+---
+
+# 有聯儲局官員指政策處於有利位置
+
+![戴利表示，雖然有點擔心關稅可能會暫時提升通脹，但在經濟增長良好。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799524_1_20250409075058.jpg&q=80)
+  
+
+美國三藩市聯儲銀行總裁戴利表示，雖然有點擔心關稅可能會暫時提升通脹，但在經濟增長良好、政策處於有利位置情況下，對於減息有時間、有能力慢慢來，指出要小心行事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799524-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799524-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799524-20250409.htm)
+
+---
+
+# 南韓料美國關稅對當地汽車業造成重大損害　推緊急支持措施
+
+![南韓政府宣布對國內汽車業採取緊急支持措施，以減輕關稅政策對行業的打擊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799522_1_20250409074541.jpg&q=90)
+  
+
+南韓政府宣布對國內汽車業採取緊急支持措施，以減輕美國總統特朗普的關稅政策對行業的打擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799522-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799522-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799522-20250409.htm)
+
+---
+
 # 港股ADR較本港昨日收市價普遍下跌
 
 ![港股美國預託證券普遍下跌，友邦跌近4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799516_1_20250409062405.jpg&q=75)
@@ -1340,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799376-20250408.htm)
-
----
-
-# 美媒引述消息指馬斯克曾勸特朗普撤銷新關稅政策但不成功
-
-![據報馬斯克曾勸特朗普撤銷新關稅。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799374_1_20250408120239.jpg&q=90)
-  
-
-美國總統特朗普的顧問、富商馬斯克據報曾勸喻特朗普撤銷新關稅政策，但不成功。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799374-20250408.htm)
-
----
-
-# 日股半日反彈近1900點
-
-![日經指數半日收報33030點，升1894點，升幅6.08%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799373_1_20250408103506.jpg&q=90)
-  
-
-東京股市反彈。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799373-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799373-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799373-20250408.htm)
-
----
-
-# 三星電子料首季營業利潤微跌　 好過預期
-
-![三星電子預計營業利潤按年下跌0.2%，至6.6萬億韓元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799372_1_20250408102920.jpg&q=85)
-  
-
-南韓三星電子預計，首季營業利潤按年下跌0.2%，至6.6萬億韓元，遠高於分析師預期，因為智能手機銷售穩健，存儲晶片銷售好於預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799372-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799372-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799372-20250408.htm)
-
----
-
-# 李家超：加快融入國家發展大局　與更多國家簽訂自貿協定
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799367_1_20250408102452.jpg&q=90)
-  
-
-行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm)
 
 ---

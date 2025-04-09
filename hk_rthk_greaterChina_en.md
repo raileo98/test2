@@ -1,4 +1,4 @@
-# White House says 104pc China tariffs take effect Wed
+# White House: 104pc China tariffs take effect on Wed
 
 ![White House press secretary Karoline Leavitt said President Trump believed China wanted to make a deal over tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799523_1_20250409074554.jpg&q=90)
   
