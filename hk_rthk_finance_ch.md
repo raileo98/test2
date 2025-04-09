@@ -1,3 +1,27 @@
+# 恒指半日跌312點
+
+![恒指半日收報19815點，跌312點，跌幅1.55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799571_1_20250409121028.jpg&q=90)
+  
+
+貿戰戰陰霾下，港股下挫，但收復早段大部分跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799571-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799571-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799571-20250409.htm)
+
+---
+
 # 內地股市半日升逾0.2%至0.6%
 
 ![上證指數半日收報3152點，升7點，升幅0.24%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799563_1_20250409114027.jpg&q=90)
@@ -219,7 +243,7 @@
 ![林宣武指中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799543_1_20250409102325.jpg&q=90)
   
 
-香港付貨人協會主席林宣武說面對關稅戰，特區政府已盡力協助企業，但中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產，但這個做法不知要「拖幾耐」，面對非常大的壓力。
+香港付貨人委員會主席林宣武說面對關稅戰，特區政府已盡力協助企業，但中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產，但這個做法不知要「拖幾耐」，面對非常大的壓力。
 
   
 
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799438-20250408.htm)
-
----
-
-# 港股高收299點　科指反彈近4%
-
-![恒指重上20000點以上，最多升逾600點，收市報20127點，升299點，升幅1.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799437_1_20250408162839.jpg&q=65)
-  
-
-港股經過昨日顯著急挫後反彈。恒指重上20000點關口以上，最多升逾600點，觸及20454點，其後最多曾倒跌逾80點，收市報20127點，升299點，升幅1.51%，主板成交額近4332億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799437-20250408.htm)
 
 ---

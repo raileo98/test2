@@ -48,7 +48,7 @@ A fire at a nursing home in Hebei province has left 20 people dead, local author
 
 # HK exporters 'furious over Trump tariffs'
 
-![Jeffrey Lam says US tariffs move has had a great impact on cash flow at many Hong Kong companies. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799561_1_20250409111723.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799561_1_20250409111723.jpg&q=90)
   
 
 A commercial-sector lawmaker said on Wednesday US President Donald Trump's tariffs on China are an act of bullying.
@@ -238,12 +238,12 @@ US media giant Comcast Corp will build its first Universal theme park and resort
 
 ---
 
-# White House: 104pc China tariffs take effect on Wed
+# Trump's sweeping global tariffs take effect
 
 ![White House press secretary Karoline Leavitt said President Trump believed China wanted to make a deal over tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799523_1_20250409074554.jpg&q=90)
   
 
-The United States said on Tuesday that 104 percent duties on imports from China will take effect shortly after midnight - or midday Hong Kong time - even as the Trump administration moved to quickly start talks with other trading partners targeted by President Donald Trump's sweeping tariff plan.
+US President Donald Trump's "reciprocal" tariffs on dozens of countries took effect on Wednesday, including massive 104 percent duties on Chinese goods, deepening his global trade war even as he prepared for negotiations with some nations.
 
   
 
@@ -291,7 +291,7 @@ US President Donald Trump on Tuesday signed executive orders to "turbocharge coa
 ![Rescuers work at the site of the collapsed Jet Set nightclub in Santo Domingo, Dominican Republic. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799520_1_20250409073023.jpg&q=80)
   
 
-Rescuers raced to find survivors on Tuesday among the rubble of a Dominican Republic nightclub where at least 79 people, including a Major League Baseball star, were killed when the roof collapsed.
+Rescuers raced to find survivors on Tuesday among the rubble of a Dominican Republic nightclub where at least 98 people, including a Major League Baseball star, were killed when the roof collapsed.
 
   
 

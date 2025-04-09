@@ -22,6 +22,30 @@ US media giant Comcast Corp will build its first Universal theme park and resort
 
 ---
 
+# Trump's sweeping global tariffs take effect
+
+![White House press secretary Karoline Leavitt said President Trump believed China wanted to make a deal over tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799523_1_20250409074554.jpg&q=90)
+  
+
+US President Donald Trump's "reciprocal" tariffs on dozens of countries took effect on Wednesday, including massive 104 percent duties on Chinese goods, deepening his global trade war even as he prepared for negotiations with some nations.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm)
+
+---
+
 # Trump signs order to 'turbocharge' coal mining in US
 
 ![President Trump speaks next to coal industry workers, on the day he signs energy-related executive orders at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799521_1_20250409073316.jpg&q=90)
@@ -46,12 +70,12 @@ US President Donald Trump on Tuesday signed executive orders to "turbocharge coa
 
 ---
 
-# At least 79 dead in Dominican Republic roof collapse
+# At least 98 dead in Dominican Republic roof collapse
 
 ![Rescuers work at the site of the collapsed Jet Set nightclub in Santo Domingo, Dominican Republic. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799520_1_20250409073023.jpg&q=80)
   
 
-Rescuers raced to find survivors on Tuesday among the rubble of a Dominican Republic nightclub where at least 79 people, including a Major League Baseball star, were killed when the roof collapsed.
+Rescuers raced to find survivors on Tuesday among the rubble of a Dominican Republic nightclub where at least 98 people, including a Major League Baseball star, were killed when the roof collapsed.
 
   
 
@@ -1411,29 +1435,5 @@ Israel said on Wednesday it would expand its military operations and seize "larg
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm)
-
----
-
-# Mainland, SAR rescuers find quake survivor in Mandalay
-
-![A 52-year-old man has been rescued from the rubble of a hotel in Mandalay. Photo: Chris Tang's Facebook page](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798679_1_20250402204310.jpg&q=85)
-  
-
-Rescue teams from the SAR and the mainland have joined hands in finding a survivor in the quake-rattled Myanmar city of Mandalay.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm)
 
 ---

@@ -1,5 +1,54 @@
+# 恒指半日跌312點
+
+![恒指半日收報19815點，跌312點，跌幅1.55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799571_1_20250409121028.jpg&q=90)
+  
+
+貿戰戰陰霾下，港股下挫，但收復早段大部分跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799571-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799571-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799571-20250409.htm)
+
+---
+
+# 首艘電動渡輪投入服務來往北角及紅磡　充電8小時足夠全日運作
+
+  
+
+政府資助由新渡輪試驗營運的第一艘電動渡輪「新明珠39」已投入服務，來往北角至紅磡，可載客約400人。環保署助理署長方健華表示，曾乘搭電動渡輪的市民反應很好，認為較為安靜，震動較少。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799570-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799570-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799570-20250409.htm)
+
+---
+
 # 下周六東涌綫來往東涌及欣澳站晚上11時收車　配合路軌改道工程
 
+![港鐵表示，今次安裝工程有一定複雜性，會爭取目標時間內完成安裝，讓列車服務翌日清晨頭班車起全綫恢復正常。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799567_1_20250409121146.jpg&q=90)
+![港鐵表示，東涌綫延綫項目東段工程的東涌東站附近路軌改道工程，下星期六深夜展開第二次道岔安装工序。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799567_2_20250409121146.jpg&q=35)
   
 
 港鐵表示，東涌綫延綫項目東段工程的東涌東站附近路軌改道工程，下星期六深夜展開第二次道岔安装工序，當晚東涌綫來往東涌站至欣澳站的列車服務將於晚上11時許提早完結。
@@ -119,7 +168,7 @@
 
 # 全運會及立會選舉年底舉行　曾國衞稱兩項宣傳一併進行成效更顯著
 
-![曾國衞相信兩項盛事彼此都有對方的元素，可以在關注全運會的同時，帶出立法會選舉的重要信息。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799552_1_20250409105122.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799552_1_20250409105122.jpg&q=90)
   
 
 第15屆全國運動會及立法會換屆選舉分別在今年11月及12月舉行，政制及內地事務局局長曾國衞表示，政府正研究將兩項宣傳工作一併進行，相信成效更為顯著。
@@ -170,7 +219,7 @@
 ![林宣武指中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799543_1_20250409102325.jpg&q=90)
   
 
-香港付貨人協會主席林宣武說面對關稅戰，特區政府已盡力協助企業，但中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產，但這個做法不知要「拖幾耐」，面對非常大的壓力。
+香港付貨人委員會主席林宣武說面對關稅戰，特區政府已盡力協助企業，但中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產，但這個做法不知要「拖幾耐」，面對非常大的壓力。
 
   
 
@@ -1396,53 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799402-20250408.htm)
-
----
-
-# 公民科題目涉及低碳出行　中國對外援助及香港多元文化
-
-![文憑試公民與社會發展科今日開考。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799401_1_20250408153405.jpg&q=90)
-  
-
-文憑試公民與社會發展科今日開考。成績繼續分為「達標」和「不達標」，有約4萬8千人報考。題目涉及低碳出行與香港人的運動習慣、中國的對外援助與國際影響力、香港社會的多元文化特徵。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799401-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799401-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799401-20250408.htm)
-
----
-
-# 李家超：爭取機會宣傳香港　羅淑佩：Speed訪港顯示香港安全
-
-![美國網紅 IShowSpeed日前來港及進行直播，吸引不少市民圍觀拍攝。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799397_1_20250408130235.jpg&q=90)
-  
-
-美國網紅 IShowSpeed日前來港及進行直播，吸引不少市民圍觀拍攝。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799397-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799397-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799397-20250408.htm)
 
 ---

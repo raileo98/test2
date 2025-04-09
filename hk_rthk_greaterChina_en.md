@@ -22,12 +22,12 @@ A fire at a nursing home in Hebei province has left 20 people dead, local author
 
 ---
 
-# White House: 104pc China tariffs take effect on Wed
+# Trump's sweeping global tariffs take effect
 
 ![White House press secretary Karoline Leavitt said President Trump believed China wanted to make a deal over tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799523_1_20250409074554.jpg&q=90)
   
 
-The United States said on Tuesday that 104 percent duties on imports from China will take effect shortly after midnight - or midday Hong Kong time - even as the Trump administration moved to quickly start talks with other trading partners targeted by President Donald Trump's sweeping tariff plan.
+US President Donald Trump's "reciprocal" tariffs on dozens of countries took effect on Wednesday, including massive 104 percent duties on Chinese goods, deepening his global trade war even as he prepared for negotiations with some nations.
 
   
 

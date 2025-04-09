@@ -24,7 +24,7 @@ Secretary for Housing Winnie Ho said new construction technologies can speed up 
 
 # HK exporters 'furious over Trump tariffs'
 
-![Jeffrey Lam says US tariffs move has had a great impact on cash flow at many Hong Kong companies. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799561_1_20250409111723.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799561_1_20250409111723.jpg&q=90)
   
 
 A commercial-sector lawmaker said on Wednesday US President Donald Trump's tariffs on China are an act of bullying.
