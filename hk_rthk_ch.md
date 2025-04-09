@@ -1,3 +1,26 @@
+# 孫玉菡稱須測試確保過萬部閘機不出錯　限搭240程有意義
+
+  
+
+政府表示，兩元乘車優惠計劃「兩蚊兩折」方案明年4月推行，較原先估計提早大約5個月，可額外節省2.6億元。至於「優惠車程設限」方案，預計於「兩蚊兩折」方案推行約1年後實施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799577-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799577-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799577-20250409.htm)
+
+---
+
 # 日股及台股跌幅擴至近5%至逾6%　日圓及金價升約1%
 
 ![日股及台股跌幅擴大至近5%至6%以上。南韓股市跌1.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799576_1_20250409125307.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799498-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799498-20250409.htm)
-
----
-
-# 據了解警方發現6人涉高價兜售演唱會門票　警方稱續打擊黃牛活動
-
-![啟德體育園區下午已有不少觀眾提早到場，亦有人懷疑兜售門票。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799496_2_20250409010310.jpg&q=80)
-  
-
-英國樂隊Coldplay在啟德體育園主場館舉行的首場演唱會。據了解，警方共發現6人涉嫌高價兜售演唱會門票，會向其中1人發傳票票控，並拘捕餘下5名內地人，因他們涉嫌違反逗留條件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799496-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799496-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799496-20250408.htm)
 
 ---

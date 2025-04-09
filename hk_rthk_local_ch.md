@@ -1,3 +1,26 @@
+# 孫玉菡稱須測試確保過萬部閘機不出錯　限搭240程有意義
+
+  
+
+政府表示，兩元乘車優惠計劃「兩蚊兩折」方案明年4月推行，較原先估計提早大約5個月，可額外節省2.6億元。至於「優惠車程設限」方案，預計於「兩蚊兩折」方案推行約1年後實施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799577-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799577-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799577-20250409.htm)
+
+---
+
 # 海關稱致力打擊堵截危害國家安全物品流入香港　X光機為重要夥伴
 
 ![X光機是海關維護國家安全工作上的重要夥伴，更象徵海關持續運用各類型高科技儀器，進行日常客運及貨運的清關工作。（保安局片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799575_1_20250409123320.jpg&q=90)
@@ -1422,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799421-20250408.htm)
-
----
-
-# 恒指下午初段升近2%
-
-![恒生指數較早時報20188點，升359點，升幅1.81%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799407_1_20250408130342.jpg&q=75)
-  
-
-港股下午初段繼續上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799407-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799407-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799407-20250408.htm)
 
 ---
