@@ -1,4 +1,4 @@
-# China announces additional 50pc tariffs on US goods
+# China announces 50pc tariff increase on US goods
 
 ![China is to impose 84 percent tariffs on US goods from April 10. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799644_1_20250409193243.jpg&q=85)
   
