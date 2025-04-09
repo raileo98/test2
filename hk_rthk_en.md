@@ -1,6 +1,30 @@
+# Risk-off mode on as new US duties curb appetites
+
+![The Hang Seng Index has been volatile amid a tit-for-tat tariffs fight that may escalate even further after Donald Trump's 50 percent levy takes effect on Wednesday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799583_1_20250409143912.jpg&q=80)
+  
+
+The 50 percent in extra US duties levied on imports from China on Wednesday have further accelerated deleveraging by investors.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799583-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799583-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799583-20250409.htm)
+
+---
+
 # MTR warns of Tung Chung-Sunny Bay service disruption
 
-![MTR officials say free shuttle buses will be provided on the day of track diversion work. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799574_1_20250409122315.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799574_1_20250409122315.jpg&q=90)
   
 
 Train services between Tung Chung and Sunny Bay will end earlier next Saturday to make way for track diversion work as part of the line's extension, MTR officials said on Wednesday.
@@ -1411,29 +1435,5 @@ Southampton have sacked manager Ivan Juric following their relegation from the P
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799297-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799297-20250407.htm)
-
----
-
-# HK market functioning normally amid sell-off: FS
-
-![Paul Chan says investors should exercise caution going forward as market fluctuations are expected to continue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799293_1_20250407191203.jpg&q=80)
-  
-
-Financial Secretary Paul Chan said the Hong Kong stock market and the local currency remain robust and strong, after the US tariffs triggered the biggest single-day sell-off for the Hang Seng Index on record.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm)
 
 ---

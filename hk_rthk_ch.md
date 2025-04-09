@@ -1,9 +1,33 @@
+# 台股收市急挫近6%
+
+![台灣加權指數收報17391點，跌1068點，跌幅5.79%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799590_1_20250409142812.jpg&q=90)
+  
+
+台股收市急挫近6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799590-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799590-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799590-20250409.htm)
+
+---
+
 # 中央召開周邊工作會議　強調要與周邊國家鞏固戰略互信
 
 ![會議指出，要以全球視野審視周邊，增強做好周邊工作的責任感使命感。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799589_1_20250409143258.jpg&q=90)
   
 
-中央周邊工作會議昨天起一連兩天在北京舉行。中共中央總書記、國家主席、中央軍委主席習近平發表講話時強調要聚焦構建周邊命運共同體，努力開創周邊工作新局面。
+中央周邊工作會議昨日起一連兩日在北京舉行。中共中央總書記、國家主席習近平出席並發表重要講話，他強調，要聚焦構建周邊命運共同體，努力開創周邊工作新局面。
 
   
 
