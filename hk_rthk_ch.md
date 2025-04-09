@@ -1,3 +1,26 @@
+# 歐盟通過對美國進口產品的反制措施
+
+  
+
+歐盟27個成員國投票表決通過對美國進口產品的反制措施，以回應美國上月12日宣布對歐盟的鋼鐵和鋁徵收關稅。有關措施可於下周二起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm)
+
+---
+
 # 國際油價曾急挫7%或以上　創逾4年新低
 
 ![國際油價曾急挫7%或以上，創逾4年新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799656_1_20250409205754.jpg&q=90)

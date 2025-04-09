@@ -1,3 +1,26 @@
+# 歐盟通過對美國進口產品的反制措施
+
+  
+
+歐盟27個成員國投票表決通過對美國進口產品的反制措施，以回應美國上月12日宣布對歐盟的鋼鐵和鋁徵收關稅。有關措施可於下周二起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm)
+
+---
+
 # 美財長對中國84%報復性關稅表示遺憾　籲中方談判
 
 ![美國財長貝森對中國84%報復性關稅，表示遺憾，呼籲中方談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799654_1_20250409203820.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799370-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799370-20250408.htm)
-
----
-
-# 李家超：爭取機會為網紅提供可行支援　令世界各地認識香港
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799369_1_20250408104541.jpg&q=85)
-  
-
-美國網紅 IShowSpeed日前來港，行政長官李家超表示，很關注Speed來香港進行直播，對方有很多「粉絲」，可以利用任何機會去宣傳香港，他相信大家都很重視。旅發局曾經聯絡Speed的安排人，表示會提供任何支援，Speed方面事後沒有找旅發局，亦沒有要求政府做任何事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799369-20250408.htm)
 
 ---

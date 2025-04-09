@@ -1,3 +1,50 @@
+# 美股初段造好　納指升近2%
+
+![納斯達克指數較早時報15548點，升280點，升幅1.84%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799658_1_20250409214320.jpg&q=90)
+  
+
+美股初段造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799658-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799658-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799658-20250409.htm)
+
+---
+
+# 歐盟通過對美國進口產品的反制措施
+
+  
+
+歐盟27個成員國投票表決通過對美國進口產品的反制措施，以回應美國上月12日宣布對歐盟的鋼鐵和鋁徵收關稅。有關措施可於下周二起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm)
+
+---
+
 # 國際油價曾急挫7%或以上　創逾4年新低
 
 ![國際油價曾急挫7%或以上，創逾4年新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799656_1_20250409205754.jpg&q=90)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm)
-
----
-
-# 馬克龍促特朗普改變主意　加拿大會對部分美國進口車徵稅
-
-![馬克龍說歐盟正帶領各成員國採取應對美方關稅措施的行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799510_1_20250409035637.jpg&q=90)
-  
-
-法國總統馬克龍呼籲美國總統特朗普在對全球採取關稅措施方面，改變主意。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm)
-
----
-
-# 古特雷斯重申貿易戰無贏家　特別擔心最脆弱發展中國家
-
-![古特雷斯說希望不會出現經濟衰退。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799509_1_20250409033825.jpg&q=90)
-  
-
-聯合國秘書長古特雷斯重申聯合國的立場，指貿易戰不會有贏家。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm)
 
 ---
