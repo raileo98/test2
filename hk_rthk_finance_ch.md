@@ -1,3 +1,75 @@
+# 金價升3%或以上　市場憂中美貿易緊張局勢進一步升級
+
+![金價升3%或以上，受避險資金推動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799687_1_20250410054033.jpg&q=90)
+  
+
+金價升3%或以上，受避險資金推動，市場擔心中美貿易緊張局勢進一步升級。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799687-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799687-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799687-20250410.htm)
+
+---
+
+# 歐洲3大指數跌近3%或以上
+
+![法國CAC指數收報6863點，跌237點，跌幅3.34%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799686_1_20250410053534.jpg&q=90)
+  
+
+歐洲3大指數下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799686-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799686-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799686-20250410.htm)
+
+---
+
+# 油價轉升逾4%收市
+
+![油價初段跌約7%，最終收市升逾4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799685_1_20250410053148.jpg&q=90)
+  
+
+原油期貨價格由跌轉升，美國總統特朗普暫緩對中國以外國家徵收較高額對等關稅90日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799685-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799685-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799685-20250410.htm)
+
+---
+
 # 道指急升2962點　納指飆逾12%　美國暫緩多國高額對等關稅
 
 ![美股急升，美國暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799683_1_20250410052450.jpg&q=90)
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799522-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799522-20250409.htm)
-
----
-
-# 港股ADR較本港昨日收市價普遍下跌
-
-![港股美國預託證券普遍下跌，友邦跌近4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799516_1_20250409062405.jpg&q=75)
-  
-
-港股美國預託證券(ADR)普遍下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799516-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799516-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799516-20250409.htm)
-
----
-
-# 美元兌日圓跌1%
-
-![美元兌日圓下跌1%，至146.30日圓。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799518_1_20250409071226.jpg&q=85)
-  
-
-美元指數偏軟，較早時報102.82，跌0.6%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799518-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799518-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799518-20250409.htm)
-
----
-
-# 美股轉跌收市　道指跌320點　白宮對華部分貨品徵104%關稅
-
-![美股先升後跌，3大指數跌近1%至逾2%收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799513_1_20250409054522.jpg&q=90)
-  
-
-美股先升後跌，早段一度升近4%或以上，不過其後美國白宮證實，會對中國部分貨品徵收104%關稅，大市轉跌，3大指數跌近1%至逾2%收市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799513-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799513-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799513-20250409.htm)
 
 ---

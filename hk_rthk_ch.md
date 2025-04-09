@@ -1,3 +1,75 @@
+# 金價升3%或以上　市場憂中美貿易緊張局勢進一步升級
+
+![金價升3%或以上，受避險資金推動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799687_1_20250410054033.jpg&q=90)
+  
+
+金價升3%或以上，受避險資金推動，市場擔心中美貿易緊張局勢進一步升級。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799687-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799687-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799687-20250410.htm)
+
+---
+
+# 歐洲3大指數跌近3%或以上
+
+![法國CAC指數收報6863點，跌237點，跌幅3.34%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799686_1_20250410053534.jpg&q=90)
+  
+
+歐洲3大指數下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799686-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799686-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799686-20250410.htm)
+
+---
+
+# 油價轉升逾4%收市
+
+![油價初段跌約7%，最終收市升逾4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799685_1_20250410053148.jpg&q=90)
+  
+
+原油期貨價格由跌轉升，美國總統特朗普暫緩對中國以外國家徵收較高額對等關稅90日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799685-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799685-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799685-20250410.htm)
+
+---
+
 # 特朗普暫緩中國以外多國高額對等關稅　相信最終會跟中方達成協議
 
 ![特朗普相信，美方會在某個時候接到中方的電話，雙方最終會達成一項非常好的協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799684_1_20250410053117.jpg&q=90)
@@ -1361,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799616-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799616-20250409.htm)
-
----
-
-# 9名非本地培訓牙醫預計本季就任　衞生署稱仍有約80個職位空缺
-
-![許美賢透露目前仍有約80個牙醫職位空缺，佔整體編制約兩成。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799615_1_20250409165052.jpg&q=80)
-  
-
-首批3名非本地培訓牙醫上月加入衞生署工作，署方預計再有9名已獲聘書的非本地培訓牙醫在本季加入。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799615-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799615-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799615-20250409.htm)
-
----
-
-# 港股先低後高　收市升136點
-
-![恒指一度倒升逾300點，收市報20264點，升136點，升幅0.68%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799613_2_20250409163931.jpg&q=80)
-  
-
-港股先低後高，恒指低開逾600點後，最多跌逾800點，低見19260點，其後有傳內地高層領導人或今日召開重要會議，討論提振經濟及穩定資本市場措施，恒指跟隨內地股市收復全部失地，一度倒升逾300點，收市報20264點，升136點，升幅0.68%。主板總成交金額近4124億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799613-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799613-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799613-20250409.htm)
-
----
-
-# 中國救援隊包括香港隊員抵達北京　國家應急部在機場迎接
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799612_1_20250409164353.jpg&q=90)
-  
-
-到緬甸參與地震救援行動的中國救援隊、中國國際救援隊和中國香港特區救援隊完成任務回國，他們乘坐的4架中國空軍飛機，下午約4時，抵達北京首都國際機場，國家應急部在機場舉行迎接儀式。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm)
 
 ---
