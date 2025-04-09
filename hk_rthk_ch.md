@@ -1,3 +1,49 @@
+# 消息指警方再發現有人兜售Coldplay黃牛票將票控一男子
+
+  
+
+英國樂隊Coldplay第二晚在啟德體育園主場館舉行演唱會。據了解，警方再發現有人懷疑兜售「黃牛票」，將作票控。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799661-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799661-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799661-20250409.htm)
+
+---
+
+# 國家文化和旅遊部提示中國遊客充分評估赴美旅遊風險　籲謹慎前往
+
+  
+
+國家文化和旅遊部對赴美中國遊客發布風險提示。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm)
+
+---
+
 # 美股初段造好　納指升近2%
 
 ![納斯達克指數較早時報15548點，升280點，升幅1.84%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799658_1_20250409214320.jpg&q=90)

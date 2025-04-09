@@ -1,3 +1,26 @@
+# 國家文化和旅遊部提示中國遊客充分評估赴美旅遊風險　籲謹慎前往
+
+  
+
+國家文化和旅遊部對赴美中國遊客發布風險提示。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm)
+
+---
+
 # 陳國基：特區救援隊臨危受命　充分發揮中國人抗震救災精神
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799655_1_20250409212024.jpg&q=90)
@@ -1411,28 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799217-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799217-20250407.htm)
-
----
-
-# 清明節假期全國口岸逾620萬人次出入境　較去年同期增近兩成
-
-  
-
-國家移民管理局公布，清明節假期全國口岸錄得超過621.2萬人次出入境，日均207.1萬人次，較去年同期增長19.7%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799208-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799208-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799208-20250407.htm)
 
 ---

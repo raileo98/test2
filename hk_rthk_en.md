@@ -1,3 +1,27 @@
+# EU greenlights first set of tariffs hitting back at US
+
+![Europe's response to Trump's latest tariffs salvo yet to be announced. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799659_1_20250409220122.jpg&q=85)
+  
+
+The EU on Wednesday adopted its first measures hitting back at US President Donald Trump's tariffs, targeting more than 20 billion euros of US products including soybeans, motorcycles and beauty products.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799659-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799659-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799659-20250409.htm)
+
+---
+
 # China condemns US bill that threatens HKETOs
 
 ![Beijing says certain US politicians should stop interfering in Hong Kong affairs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799653_1_20250409201808.jpg&q=85)
@@ -1411,29 +1435,5 @@ The United States has ended emergency food aid for 14 countries, endangering the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm)
-
----
-
-# Tokyo's Nikkei up 5.8pc as US tariffs fuel volatility
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799360_1_20250408093028.jpg&q=80)
-  
-
-Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after plunging 7.8 percent the previous day, as US tariffs fuel market volatility.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm)
 
 ---

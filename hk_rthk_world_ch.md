@@ -1,3 +1,26 @@
+# 國家文化和旅遊部提示中國遊客充分評估赴美旅遊風險　籲謹慎前往
+
+  
+
+國家文化和旅遊部對赴美中國遊客發布風險提示。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm)
+
+---
+
 # 歐盟通過對美國進口產品的反制措施
 
 ![歐盟27個成員國投票表決通過對美國進口產品的反制措施，可於下周二起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799657_1_20250409214502.jpg&q=85)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799375-20250408.htm)
-
----
-
-# 《環看天下》：南韓擬6月3日總統選舉　議長倡修憲分散總統權力
-
-![在南韓憲法法院外，有民眾得知法院通過罷免尹錫悅判決後持南韓國旗慶祝。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799370_2_20250408140623.jpg&q=80)
-  
-
-南韓憲法法院上星期通過彈劾尹錫悅的裁決，他即時被罷免總統職務。南韓傳媒報道，政府初步定於6月3日舉行下任總統選舉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799370-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799370-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799370-20250408.htm)
 
 ---
