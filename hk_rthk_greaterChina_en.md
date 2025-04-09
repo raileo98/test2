@@ -24,7 +24,7 @@ China said on Wednesday it is verifying reports of Chinese nationals being captu
 
 # 'China has firm will to take countermeasures'
 
-![A Commerce Ministry official says China hopes the US will immediately remove its unilateral imposition of tariffs. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799607_1_20250409160409.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799607_1_20250409160409.jpg&q=80)
   
 
 The Commerce Ministry said China will resolutely take countermeasures and fight till the end if the United States insists on further escalating economic and trade restrictive measures, with firm will and abundant means.

@@ -1,3 +1,27 @@
+# Revamped HK$2 subsidy scheme to take effect earlier
+
+![Chris Sun says with changes to the HK$2 transport subsidy scheme coming earlier than expected, the government could save an extra HK$260 million. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799608_1_20250409161316.jpg&q=80)
+  
+
+The government said changes to the HK$2 transport subsidy scheme will be in place sooner than expected.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799608-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799608-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799608-20250409.htm)
+
+---
+
 # China 'verifying reports of nationals held in Ukraine'
 
 ![Foreign Ministry spokesman Lin Jian urges Chinese citizens to avoid conflict zones and participating in wars. Photo: Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799609_1_20250409161617.jpg&q=90)
@@ -24,7 +48,7 @@ China said on Wednesday it is verifying reports of Chinese nationals being captu
 
 # 'China has firm will to take countermeasures'
 
-![A Commerce Ministry official says China hopes the US will immediately remove its unilateral imposition of tariffs. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799607_1_20250409160409.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799607_1_20250409160409.jpg&q=80)
   
 
 The Commerce Ministry said China will resolutely take countermeasures and fight till the end if the United States insists on further escalating economic and trade restrictive measures, with firm will and abundant means.
@@ -1411,29 +1435,5 @@ US President Donald Trump said the United States was starting direct, high-level
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799344-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799344-20250408.htm)
-
----
-
-# Supreme Court backs Trump over Alien Enemies Act
-
-![US President Donald Trump has used the law to deport alleged Venezuelan gang members. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799334_1_20250408075344.jpg&q=80)
-  
-
-The US Supreme Court handed Donald Trump a victory on Monday by letting him use a 1798 law that historically has been employed only in wartime to swiftly deport alleged Venezuelan gang members as part of the Republican president's hardline approach to immigration.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm)
 
 ---
