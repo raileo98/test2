@@ -1,5 +1,26 @@
+# 特區救援隊返港迎接儀式　李家超：無私付出　香港驕傲
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799666-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799666-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799666-20250409.htm)
+
+---
+
 # 東江水被指大腸桿菌含量超標　發展局指內容以偏概全
 
+![發展局反駁有網上媒體報道聲稱東江水大腸桿菌含量超標，認為有關內容以偏概全。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799665_1_20250409225457.jpg&q=90)
   
 
 發展局反駁有網上媒體報道聲稱東江水大腸桿菌含量超標，認為有關內容以偏概全，強調香港接收的東江水水質完全符合國家就有關飲用水訂定的最高標準，水務署一直嚴密監察香港的食水水質，監測結果顯示食水樣本完全符合香港食水標準。
@@ -1412,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799486-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799486-20250408.htm)
-
----
-
-# 配合啟德演唱會　港鐵屯馬綫班次加密至約2.5分鐘一班車
-
-![港鐵屯馬綫班次會進一步加密至約2.5分鐘一班車，東鐵綫北行亦會相應加密班次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799485_1_20250408224823.jpg&q=90)
-  
-
-英國樂隊Coldplay晚上在啟德體育園主場館舉行首場演唱會。運輸署呼籲離場人士盡量乘搭港鐵，署方一直督導公共運輸服務安排，整體交通至今大致暢順。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799485-20250408.htm)
 
 ---
