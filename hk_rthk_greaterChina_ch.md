@@ -1,3 +1,26 @@
+# 國家教育部發布赴美留學預警
+
+  
+
+國家教育部發布赴美留學預警。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799662-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799662-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799662-20250409.htm)
+
+---
+
 # 國家文化和旅遊部提示中國遊客充分評估赴美旅遊風險　籲謹慎前往
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799224-20250407.htm)
-
----
-
-# 廣南聯絡綫西塱隧道出口明挖段主體結構封頂　將啟動鑽挖式工程
-
-![連接廣州站與廣州南站的廣南聯絡綫，西塱隧道出口明挖段主體結構封頂。（廣州鐵路）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799217_1_20250407121552.jpg&q=80)
-  
-
-內地傳媒報道，連接廣州站與廣州南站的廣南聯絡綫，西塱隧道出口明挖段主體結構封頂，形容項目建設取得階段性成果，鑽挖式隧道工程即將啟動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799217-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799217-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799217-20250407.htm)
 
 ---

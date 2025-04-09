@@ -1,3 +1,26 @@
+# 國家教育部發布赴美留學預警
+
+  
+
+國家教育部發布赴美留學預警。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799662-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799662-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799662-20250409.htm)
+
+---
+
 # 消息指警方再發現有人兜售Coldplay黃牛票將票控一男子
 
   
