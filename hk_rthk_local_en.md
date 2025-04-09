@@ -1,3 +1,27 @@
+# MTR warns of Tung Chung-Sunny Bay service disruption
+
+![MTR officials say free shuttle buses will be provided on the day of track diversion work. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799574_1_20250409122315.jpg&q=90)
+  
+
+Train services between Tung Chung and Sunny Bay will end earlier next Saturday to make way for track diversion work as part of the line's extension, MTR officials said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799574-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799574-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799574-20250409.htm)
+
+---
+
 # New technologies can speed up housing projects: govt
 
 ![Winnie Ho says new technologies can help Hong Kong's construction sector. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799568_1_20250409120045.jpg&q=80)
@@ -1411,29 +1435,5 @@ Commerce chief Algernon Yau on Wednesday stressed that merging the city's public
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm)
-
----
-
-# New police chief will lead force well: Regina Ip
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798621_1_20250402145453.jpg&q=80)
-  
-
-Executive Council convenor Regina Ip on Wednesday said she believes new police commissioner Joe Chow will lead the force effectively.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798621-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798621-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798621-20250402.htm)
 
 ---

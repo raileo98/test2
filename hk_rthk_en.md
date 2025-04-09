@@ -1,3 +1,27 @@
+# MTR warns of Tung Chung-Sunny Bay service disruption
+
+![MTR officials say free shuttle buses will be provided on the day of track diversion work. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799574_1_20250409122315.jpg&q=90)
+  
+
+Train services between Tung Chung and Sunny Bay will end earlier next Saturday to make way for track diversion work as part of the line's extension, MTR officials said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799574-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799574-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799574-20250409.htm)
+
+---
+
 # Shai holds court as Lakers sink after Doncic ejection
 
 ![Oklahoma City Thunder guards shut down Pau Gasol of the Los Angeles Lakers in the midst of a shot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799573_1_20250409122147.jpg&q=90)
@@ -1411,29 +1435,5 @@ Financial Secretary Paul Chan said the Hong Kong stock market and the local curr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm)
-
----
-
-# World Expo hit with methane risk ahead of opening
-
-![Organisers barred people from coming near the affected area at Expo 2025 in Osaka for about an hour to ventilate it. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799288_1_20250407183551.jpg&q=75)
-  
-
-A level of methane high enough to potentially ignite a fire was detected at the World Expo site in Japan, organisers said on Monday, less than a week before the event opens.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799288-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799288-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799288-20250407.htm)
 
 ---
