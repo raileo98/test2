@@ -1,3 +1,27 @@
+# Arsenal stuns Real Madrid with Rice's free-kick magic
+
+![Arsenal delivered a dominant 3-nil victory against reigning titleholders Real Madrid. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799541_1_20250409095732.jpg&q=85)
+  
+
+Mikel Arteta admitted Arsenal defied the odds with their stunning 3-0 win against Real Madrid as Declan Rice's free-kick magic left the Champions League holders in disarray.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799541-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799541-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799541-20250409.htm)
+
+---
+
 # Grand National winning jockey Mullins suspended
 
 ![Disciplinary officials found Patrick Mullins had used his whip one above the permitted level of seven from the final fence. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799506_1_20250409031635.jpg&q=85)
@@ -1422,32 +1446,5 @@ Tim Hardaway Jr scored 32 points to lead Detroit to a 133-122 victory over the E
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm)
-
----
-
-# 'Amazing, crazy' action on day two of Rugby Sevens
-
-![Team France celebrate after downing New Zealand 21-14. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_4_20250329210652.jpg&q=90)
-![The Hong Kong China men’s squad beat Japan 43-21 in the Melrose Claymores competition. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_3_20250329161738.jpg&q=90)
-![Fiji and Britain's women's teams face off at Kai Tak Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_1_20250329121802.jpg&q=85)
-![Argentina beats Fiji in the men's Rugby Sevens match. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_2_20250329131539.jpg&q=90)
-  
-
-Both the men’s and women’s squads for the SAR on Saturday kept their winning streak alive on day two of the Hong Kong Sevens, which also saw an end to New Zealand's campaign to win a third-straight title.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm)
 
 ---

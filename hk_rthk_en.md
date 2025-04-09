@@ -1,3 +1,27 @@
+# Arsenal stuns Real Madrid with Rice's free-kick magic
+
+![Arsenal delivered a dominant 3-nil victory against reigning titleholders Real Madrid. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799541_1_20250409095732.jpg&q=85)
+  
+
+Mikel Arteta admitted Arsenal defied the odds with their stunning 3-0 win against Real Madrid as Declan Rice's free-kick magic left the Champions League holders in disarray.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799541-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799541-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799541-20250409.htm)
+
+---
+
 # Hong Kong stocks plunge more than 3pc at open
 
 ![Hong Kong stocks dropped further, after recovering just over one percent the previous day, following Monday's 13.2 percent dive. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799529_1_20250409085033.jpg&q=75)
@@ -1411,29 +1435,5 @@ Under Secretary for Financial Services and the Treasury Joseph Chan said on Mond
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm)
-
----
-
-# Trump calls tariffs havoc 'medicine'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799234_1_20250407131818.jpg&q=90)
-  
-
-US President Donald Trump warned foreign governments they would have to pay "a lot of money" to lift sweeping tariffs, characterising the duties as "medicine" and triggering further carnage across global financial markets on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799234-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799234-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799234-20250407.htm)
 
 ---
