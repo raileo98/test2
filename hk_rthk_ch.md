@@ -1,3 +1,74 @@
+# 「兩蚊兩折」提早明年4月實施　有議員稱難接受
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799617_1_20250409185244.jpg&q=90)
+  
+
+《財政預算案》宣布調整二元乘車優惠計劃」，勞工及福利局局長孫玉菡指，「兩蚊兩折」優惠將提前至明年4月實施，每月240程上限則要後年才能落實。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799617-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799617-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799617-20250409.htm)
+
+---
+
+# 美國10年期國債孳息率急升　分析：未清楚受短線或基本因素影響
+
+![陸庭龍認為，近期美國債息「短息跌長息高」，但當前市況混亂，仍未清楚受短線或基本因素影響。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799638_1_20250409185206.jpg&q=90)
+  
+
+美國指標10年期國債孳息率大幅抽升，在亞洲時段曾升至曾抽升至4.5厘以上，30年期國債收益率亦曾急升至近5厘，若情況持續，將創下1981年來最嚴重拋售潮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm)
+
+---
+
+# 有在內地及柬埔寨設廠港商稱擔心客戶因關稅拒絕要貨
+
+  
+
+美國對等關稅今天起生效，其中對中國進口貨品加徵的關稅增至104%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799637-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799637-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799637-20250409.htm)
+
+---
+
 # TikTok「不賣就禁」再延75天　商務部反對強取豪奪
 
   
@@ -1465,7 +1536,7 @@
 
 # 何永賢稱如簡樸房最低面積10平方米一半不合標　社會是否可承受
 
-![何永賢表示，期望今年底通過有關規管簡樸房的法例。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799556_1_20250409110711.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799556_1_20250409110711.jpg&q=80)
   
 
 政府就簡樸房的規管制度建議方案上月出爐，房屋局局長何永賢表示，有部分意見認為單位內部最低樓面面積應該訂於10平方米，但如果採納，現時市面會有50%劏房不符合標準，需要改裝，她質疑社會是否承受得到，而按目前訂於8平方米，不符標準的單位有約26%。

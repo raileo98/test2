@@ -1,3 +1,27 @@
+# 美國10年期國債孳息率急升　分析：未清楚受短線或基本因素影響
+
+![陸庭龍認為，近期美國債息「短息跌長息高」，但當前市況混亂，仍未清楚受短線或基本因素影響。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799638_1_20250409185206.jpg&q=90)
+  
+
+美國指標10年期國債孳息率大幅抽升，在亞洲時段曾升至曾抽升至4.5厘以上，30年期國債收益率亦曾急升至近5厘，若情況持續，將創下1981年來最嚴重拋售潮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm)
+
+---
+
 # 港股倒升逾100點收市　分析料後市關注寬鬆貨幣政策何時推出
 
   
@@ -695,7 +719,7 @@
 
 # 何永賢稱如簡樸房最低面積10平方米一半不合標　社會是否可承受
 
-![何永賢表示，期望今年底通過有關規管簡樸房的法例。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799556_1_20250409110711.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799556_1_20250409110711.jpg&q=80)
   
 
 政府就簡樸房的規管制度建議方案上月出爐，房屋局局長何永賢表示，有部分意見認為單位內部最低樓面面積應該訂於10平方米，但如果採納，現時市面會有50%劏房不符合標準，需要改裝，她質疑社會是否承受得到，而按目前訂於8平方米，不符標準的單位有約26%。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799503-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799503-20250409.htm)
-
----
-
-# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關稅
-
-![格里爾說部分國家已釋出信號，希望找到一條貿易互惠之路。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799502_1_20250409015525.jpg&q=90)
-  
-
-美國貿易代表格里爾表示，對等關稅在星期三生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm)
 
 ---

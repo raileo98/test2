@@ -1,3 +1,50 @@
+# 「兩蚊兩折」提早明年4月實施　有議員稱難接受
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799617_1_20250409185244.jpg&q=90)
+  
+
+《財政預算案》宣布調整二元乘車優惠計劃」，勞工及福利局局長孫玉菡指，「兩蚊兩折」優惠將提前至明年4月實施，每月240程上限則要後年才能落實。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799617-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799617-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799617-20250409.htm)
+
+---
+
+# 有在內地及柬埔寨設廠港商稱擔心客戶因關稅拒絕要貨
+
+  
+
+美國對等關稅今天起生效，其中對中國進口貨品加徵的關稅增至104%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799637-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799637-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799637-20250409.htm)
+
+---
+
 # 葉劉淑儀建議政府與最受關稅打擊行業商討具體支援措施
 
 ![葉劉淑儀建議，政府與最受打擊行業，商討具體支援措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799635_1_20250409184654.jpg&q=85)
@@ -720,7 +767,7 @@
 
 # 何永賢稱如簡樸房最低面積10平方米一半不合標　社會是否可承受
 
-![何永賢表示，期望今年底通過有關規管簡樸房的法例。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799556_1_20250409110711.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799556_1_20250409110711.jpg&q=80)
   
 
 政府就簡樸房的規管制度建議方案上月出爐，房屋局局長何永賢表示，有部分意見認為單位內部最低樓面面積應該訂於10平方米，但如果採納，現時市面會有50%劏房不符合標準，需要改裝，她質疑社會是否承受得到，而按目前訂於8平方米，不符標準的單位有約26%。
@@ -1391,56 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799467-20250408.htm)
-
----
-
-# Coldplay啟德演唱會即將舉行　有觀眾中午已到場排隊
-
-![場館外有人手持寫有「求票」的紙牌。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799466_1_20250408191742.jpg&q=90)
-![有市民形容氣氛很好，演唱會未開始，在場外都感受到氣氛（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799466_2_20250408191742.jpg&q=85)
-![觀眾可攜帶容量不超過600毫升的膠水瓶或杯進場，但不能有蓋，亦不能載有飲品，不少人要即場飲完才進場。（陳曉筠攝）.JPG](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799466_3_20250408191742.jpg&q=85)
-![為爭取有利位置，有購了企位票的觀眾中午已到場排隊。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799466_4_20250408191742.jpg&q=75)
-  
-
-英國樂隊Coldplay在啟德體育園主場館的演唱會，即將舉行，有觀眾中午已到場排隊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799466-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799466-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799466-20250408.htm)
-
----
-
-# 世邦魏理仕下調今年甲級寫字樓新租務成交至下跌5%
-
-![世邦魏理仕下調部分商業房地產市道表現預測。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799440_1_20250408164554.jpg&q=85)
-  
-
-物業顧問世邦魏理仕表示，因應近日美國對多個貿易夥伴徵收對等關稅，以及環球股市急跌，調低今年部分商業房地產市道表現預測。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799440-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799440-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799440-20250408.htm)
 
 ---
