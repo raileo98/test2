@@ -1,3 +1,27 @@
+# At least 20 killed in airstrike on southern Gaza
+
+![A mother and her son are left in mourning after an Israeli strike in Khan Younis in southern Gaza. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799632_1_20250409181114.jpg&q=90)
+  
+
+Gaza's civil defence agency said an Israeli strike on a residential building in the Shujaiya area of Gaza City killed at least 20 people on Wednesday, as the military said they were looking into the attack.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799632-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799632-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799632-20250409.htm)
+
+---
+
 # Hezbollah 'ready for talks on disarmament'
 
 ![Israeli military exhibit seized Hezbollah weapons, without specifying when and where they were confiscated, near the border with Lebanon last year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799628_1_20250409180051.jpg&q=90)
@@ -1411,29 +1435,5 @@ China said it would never accept the "blackmail nature" of the United States aft
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799351-20250408.htm)
-
----
-
-# JPMorgan Chase CEO warns tariffs will slow growth
-
-![JPMorgan Chase CEO Jamie Dimon described Trump's tariffs as one of several factors that could boost inflation. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799345_1_20250408084713.jpg&q=90)
-  
-
-JPMorgan Chase CEO Jamie Dimon warned on Monday that US President Donald Trump's tariffs will likely lift inflation, describing himself as "very cautious" in light of the rising recession risk.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799345-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799345-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799345-20250408.htm)
 
 ---
