@@ -1,3 +1,73 @@
+# 李強指已充分估計外部衝擊　做好各種應對準備
+
+  
+
+國務院總理李強下午主持召開經濟形勢專家和企業家座談會，聽取對當前經濟形勢和下一步經濟工作的意見建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799652-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799652-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799652-20250409.htm)
+
+---
+
+# 衞生署：過去5年共接種逾800萬劑流感疫苗　沒有相關死亡個案
+
+  
+
+衞生署表示，香港現時使用的流感疫苗，包括滅活流感疫苗、重組流感疫苗和減活流感疫苗，都是安全和有效，過去5年本港共接種超過800萬劑流感疫苗，沒有接獲因接種流感疫苗後的死亡個案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799651-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799651-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799651-20250409.htm)
+
+---
+
+# 海警局：菲律賓船隻經允許下向仁愛礁軍艦補及
+
+![海警局：菲律賓船隻經允許下向仁愛礁軍艦補及](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799650_1_20250409200254.jpg&q=90)
+  
+
+中國海警局新聞發言人劉德軍表示，經中方允許，菲律賓派1艘船隻對其非法「坐灘」仁愛礁軍艦運送生活物資，中國海警對菲船只詢問確認並全程監管。中方敦促菲方信守承諾，停止炒作，並同中方相向而行，共同管控好海上局勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799650-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799650-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799650-20250409.htm)
+
+---
+
 # 政府稱將研究加強西貢東壩小巴服務
 
   

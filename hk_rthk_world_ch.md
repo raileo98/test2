@@ -1,3 +1,27 @@
+# 海警局：菲律賓船隻經允許下向仁愛礁軍艦補及
+
+![海警局：菲律賓船隻經允許下向仁愛礁軍艦補及](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799650_1_20250409200254.jpg&q=90)
+  
+
+中國海警局新聞發言人劉德軍表示，經中方允許，菲律賓派1艘船隻對其非法「坐灘」仁愛礁軍艦運送生活物資，中國海警對菲船只詢問確認並全程監管。中方敦促菲方信守承諾，停止炒作，並同中方相向而行，共同管控好海上局勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799650-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799650-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799650-20250409.htm)
+
+---
+
 # TikTok「不賣就禁」再延75天　商務部反對強取豪奪
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799368-20250408.htm)
-
----
-
-# 李家超：加快融入國家發展大局　與更多國家簽訂自貿協定
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799367_1_20250408102452.jpg&q=90)
-  
-
-行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm)
 
 ---

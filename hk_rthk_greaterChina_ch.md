@@ -1,3 +1,50 @@
+# 李強指已充分估計外部衝擊　做好各種應對準備
+
+  
+
+國務院總理李強下午主持召開經濟形勢專家和企業家座談會，聽取對當前經濟形勢和下一步經濟工作的意見建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799652-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799652-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799652-20250409.htm)
+
+---
+
+# 海警局：菲律賓船隻經允許下向仁愛礁軍艦補及
+
+![海警局：菲律賓船隻經允許下向仁愛礁軍艦補及](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799650_1_20250409200254.jpg&q=90)
+  
+
+中國海警局新聞發言人劉德軍表示，經中方允許，菲律賓派1艘船隻對其非法「坐灘」仁愛礁軍艦運送生活物資，中國海警對菲船只詢問確認並全程監管。中方敦促菲方信守承諾，停止炒作，並同中方相向而行，共同管控好海上局勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799650-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799650-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799650-20250409.htm)
+
+---
+
 # 商務部將十多間美國企業列出口管制和不可靠實體清單
 
 ![商務部公布，將12家美國實體列入出口管制管控名單，將6家涉對台軍售的美國企業列入不可靠實體清單。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799643_1_20250409192259.jpg&q=90)
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799195-20250407.htm)
-
----
-
-# 中方強烈不滿及堅決反對少數國家與組織罔顧事實干涉中國內政
-
-![發言人說中方敦促有關國家和組織恪守對中方所作的政治承諾。（中國駐加拿大使館網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799197_1_20250407165040.jpg&q=90)
-  
-
-中國駐加拿大使館表示，中方強烈不滿、堅決反對並絕不接受少數國家與組織罔顧事實、顛倒黑白及公然干涉中國內政。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799197-20250407.htm)
-
----
-
-# 林定國稱國家安全教育應持續每天都要做　制裁不影響工作決心
-
-![林定國表示，雖然現在擁有很安定的環境，都不能忘記國家安全的風險或會存在。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799190_1_20250407102518.jpg&q=90)
-  
-
-本月15日是第10屆「全民國家安全教育日」，律政司司長林定國表示，國家安全教育不應集中在某些特別的日子，他舉例說每年2月14日是情人節，說「難道那天你才對老婆好 」，認為應該持續每天都要做，又說這是他在法律方面推動國家安全教育的理念。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799190-20250407.htm)
 
 ---
