@@ -1,3 +1,27 @@
+# 馬克龍：法國可能在今年6月承認巴勒斯坦國
+
+![馬克龍認為，在適當時機承認巴勒斯坦國是正當。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799680_1_20250410034904.jpg&q=90)
+  
+
+法國總統馬克龍表示，法國可能在今年6月承認巴勒斯坦國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799680-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799680-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799680-20250410.htm)
+
+---
+
 # 英王查理斯三世與王后卡米拉到梵蒂岡與教宗會晤
 
 ![查理斯三世與卡米拉到訪意大利。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799678_1_20250410034010.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm)
-
----
-
-# 外交部強烈譴責美國威脅升級對華關稅　批評是經濟霸凌
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799411_2_20250408162316.jpg&q=90)
-  
-
-美國總統特朗普威脅升級對華關稅。在北京，外交部發言人林劍表示，美方濫施關稅嚴重侵犯各國的正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球的經濟秩序穩定，是典型的單邊主義、保護主義、經濟霸凌，遭到國際社會普遍反對。中方對此強烈譴責，堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm)
 
 ---

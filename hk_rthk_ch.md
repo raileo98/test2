@@ -1,3 +1,27 @@
+# 馬克龍：法國可能在今年6月承認巴勒斯坦國
+
+![馬克龍認為，在適當時機承認巴勒斯坦國是正當。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799680_1_20250410034904.jpg&q=90)
+  
+
+法國總統馬克龍表示，法國可能在今年6月承認巴勒斯坦國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799680-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799680-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799680-20250410.htm)
+
+---
+
 # 英王查理斯三世與王后卡米拉到梵蒂岡與教宗會晤
 
 ![查理斯三世與卡米拉到訪意大利。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799678_1_20250410034010.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799606-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799606-20250409.htm)
-
----
-
-# 港股升逾200點　科指升逾3%
-
-![恒指曾經升逾300點，較早時報20366點，升238點，升幅1.19%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799605_1_20250409162303.jpg&q=75)
-  
-
-港股掉頭上升，恒生指數曾經升逾300點，較早時報20366點，升238點，升幅1.19%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799605-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799605-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799605-20250409.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Deaths mount in Dominican Republic nightclub disaster
+
+![Rescue teams working at the Jet Set nightclub a day after the collapse of its roof in Santo Domingo. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799679_1_20250410034524.jpg&q=60)
+  
+
+Relatives of people trapped under the rubble of a Dominican Republic nightclub that collapsed, killing over 120, waited anxiously for news on Wednesday as hopes of finding their loved ones alive began to fade.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799679-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799679-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799679-20250410.htm)
+
+---
+
 # Trump pauses tariffs for 90 days but hits China harder
 
 ![US Treasury Secretary Scott Bessent says Donald Trump's "strategy" had played out as planned. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799675_1_20250410021956.jpg&q=90)
@@ -1411,29 +1435,5 @@ European Commission President Ursula von der Leyen described US President Donald
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm)
-
----
-
-# China urges US to 'immediately cancel' new tariffs
-
-![The Commerce Ministry has called for Washington to "immediately cancel" sweeping new tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798759_1_20250403104243.jpg&q=80)
-  
-
-Beijing on Thursday said it "firmly opposes" sweeping new US tariffs on its exports, vowing "countermeasures to safeguard its own rights and interests".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm)
 
 ---

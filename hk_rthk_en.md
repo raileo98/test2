@@ -1,3 +1,27 @@
+# Deaths mount in Dominican Republic nightclub disaster
+
+![Rescue teams working at the Jet Set nightclub a day after the collapse of its roof in Santo Domingo. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799679_1_20250410034524.jpg&q=60)
+  
+
+Relatives of people trapped under the rubble of a Dominican Republic nightclub that collapsed, killing over 120, waited anxiously for news on Wednesday as hopes of finding their loved ones alive began to fade.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799679-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799679-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799679-20250410.htm)
+
+---
+
 # Trump pauses tariffs for 90 days but hits China harder
 
 ![US Treasury Secretary Scott Bessent says Donald Trump's "strategy" had played out as planned. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799675_1_20250410021956.jpg&q=90)
@@ -1411,29 +1435,5 @@ Global temperatures hovered at historic highs in March, Europe's climate monitor
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm)
-
----
-
-# 'Reckless' tariffs hurt global trade, says John Lee
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799378_1_20250408105347.jpg&q=75)
-  
-
-Chief Executive John Lee has hit out at the United States for slapping "reckless" tariffs on countries and places around the world, vowing to take steps to respond to the sweeping levies through deepening international cooperation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm)
 
 ---
