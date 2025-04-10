@@ -1,3 +1,27 @@
+# US backtracks on some food aid cuts: UN
+
+![A WFP distribution centre in Chad, one of eight countries where the US is ending emergency funding. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799695_1_20250410080414.jpg&q=90)
+  
+
+The United States has backtracked on emergency food aid cuts it announced for 14 countries, restoring assistance to six of them, the UN's World Food Program said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799695-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799695-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799695-20250410.htm)
+
+---
+
 # Israel says its seizing 'large areas' of Gaza
 
 ![Palestinian rescuers work at the site of an Israeli strike on a residential area in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799691_1_20250410071647.jpg&q=60)
@@ -1411,29 +1435,5 @@ The latest search for Malaysia Airlines flight MH370 has been suspended as it is
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm)
-
----
-
-# Japan says tariffs may break WTO rules, deal with US
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798781_1_20250403123758.jpg&q=90)
-  
-
-Japan slammed as "extremely regrettable" US President Donald Trump's sweeping new tariffs, saying they may break WTO rules and the two countries' trade agreement.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm)
 
 ---

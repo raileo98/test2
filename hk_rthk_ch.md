@@ -1,3 +1,75 @@
+# 商務部：李強剛與馮德萊恩通電話　中方願與歐方深化合作
+
+![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=75)
+  
+
+商務部部長王文濤表示，國務院總理李強剛剛與歐盟委員會主席馮德萊恩通電話，向外界傳遞積極資訊。表示中方願與歐方相向而行，共同落實好中歐領導人達成的重要共識，加強溝通交流，深化中歐貿易、投資和產業合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm)
+
+---
+
+# 韓股初段升逾4%
+
+![首爾綜合指數較早時報2398點，升104點，升幅4.56%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799694_1_20250410080250.jpg&q=90)
+  
+
+南韓股市初段升逾4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799694-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799694-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799694-20250410.htm)
+
+---
+
+# 日股初段升近2%
+
+![日經指數較早時32325點，升611點，升幅1.93%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799696_1_20250410080607.jpg&q=85)
+  
+
+東京股市初段跟隨隔夜美股上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799696-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799696-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799696-20250410.htm)
+
+---
+
 # 聯儲局會議記錄：面對通脹上升和經濟增長放緩　或將面對艱難取捨
 
 ![部分決策者指出，聯儲局未來或將面對艱難的取捨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799693_1_20250410074842.jpg&q=85)
@@ -22,7 +94,7 @@
 
 ---
 
-# 歐聯八強首回合　巴塞羅那4:0多蒙特　聖日耳門就3:0維拉
+# 歐聯八強首回合　巴塞羅那4:0多蒙特　聖日耳門就3:1維拉
 
 ![巴塞羅那今仗有利雲度夫斯基（右二）連續攻入兩球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799692_1_20250410073427.jpg&q=90)
   
@@ -1361,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799630-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799630-20250409.htm)
-
----
-
-# 陳克勤關注會否改變即捕即殺野豬　漁護署稱市民安全為首要考慮
-
-![環境及生態局表示，本港整體野豬數目由2022年約1830頭，減少至2024年約900頭。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799627_1_20250409174452.jpg&q=80)
-  
-
-環境及生態局回覆立法會議員提問時指出，本港整體野豬數目由2022年約1830頭，減少至2024年約900頭。在立法會特別財委會會議，民建聯主席陳克勤關注，野豬傷人數字已下降，野豬數目兩年間減少一半，漁護署會否改變現時「即捕即殺」處理野豬，改為以絕育等較人道的手法處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799627-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799627-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799627-20250409.htm)
-
----
-
-# 職員匯出約200萬港元後始知受騙　警一星期接4宗電郵詐騙案
-
-![警方提醒要對不明來歷的電郵，特別是要求提供個人資料或金錢轉賬的郵件，時刻保持警覺性。（守網者社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799626_1_20250409173739.jpg&q=90)
-  
-
-警方表示，近日有跨境匯款公司職員收到詐騙電郵，要求匯出一筆27萬美元，折合約200萬港元的款項到指定戶口，職員不虞有詐將款項匯出後才知道受騙，呼籲業界和市民提防受騙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799626-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799626-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799626-20250409.htm)
-
----
-
-# 國防部堅決反對G7及歐盟言論　重申台灣問題不容任何外來干涉
-
-![張曉剛說，東部戰區以雷霆之勢打擊「台獨」分裂勢力囂張氣焰，是對台海和平穩定和台灣同胞安全福祉的堅定守護。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799623_1_20250409171321.jpg&q=90)
-  
-
-在北京，國防部新聞發言人張曉剛表示，中方對七國集團及歐盟的表態表示強烈不滿、堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799623-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799623-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799623-20250409.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 商務部：李強剛與馮德萊恩通電話　中方願與歐方深化合作
+
+![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=75)
+  
+
+商務部部長王文濤表示，國務院總理李強剛剛與歐盟委員會主席馮德萊恩通電話，向外界傳遞積極資訊。表示中方願與歐方相向而行，共同落實好中歐領導人達成的重要共識，加強溝通交流，深化中歐貿易、投資和產業合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm)
+
+---
+
 # 特朗普暫緩多國高額關稅但上調對華關稅　相信最終會與華達成協議
 
 ![特朗普相信，美方會在某個時候接到中方的電話，雙方最終會達成一項非常好的協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799684_1_20250410053117.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm)
-
----
-
-# 西班牙首相桑切斯周四起訪華兩日
-
-![外交部宣布，西班牙首相桑切斯將於本周四起訪華兩日。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799417_1_20250408145742.jpg&q=90)
-  
-
-在北京，外交部宣布，西班牙首相桑切斯應國務院總理李強邀請，將於本周四起訪華兩日。發言人林劍稱，國家主席習近平將與桑切斯會面，總理李強將與他會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799417-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799417-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799417-20250408.htm)
 
 ---

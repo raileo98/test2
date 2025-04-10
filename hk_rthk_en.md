@@ -1,3 +1,27 @@
+# US backtracks on some food aid cuts: UN
+
+![A WFP distribution centre in Chad, one of eight countries where the US is ending emergency funding. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799695_1_20250410080414.jpg&q=90)
+  
+
+The United States has backtracked on emergency food aid cuts it announced for 14 countries, restoring assistance to six of them, the UN's World Food Program said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799695-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799695-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799695-20250410.htm)
+
+---
+
 # Israel says its seizing 'large areas' of Gaza
 
 ![Palestinian rescuers work at the site of an Israeli strike on a residential area in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799691_1_20250410071647.jpg&q=60)
@@ -1411,29 +1435,5 @@ An economist said on Tuesday he expects the US Federal Reserve to cut interest r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm)
-
----
-
-# Florida wins 3rd NCAA title, denies Houston its 1st
-
-![The Florida Gators react after defeating the Houston Cougars in the national championship game of the Final Four of the 2025 NCAA Tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799390_1_20250408115243.jpg&q=80)
-  
-
-Florida and Walter Clayton somehow overcame Houston’s tough defence on Monday night to carve out a 65-63 victory in an NCAA title-game thriller which was not decided until Clayton’s own D stopped the Cougars from taking a game-winning shot at the buzzer.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799390-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799390-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799390-20250408.htm)
 
 ---

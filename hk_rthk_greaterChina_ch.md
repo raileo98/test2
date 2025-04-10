@@ -1,3 +1,27 @@
+# 商務部：李強剛與馮德萊恩通電話　中方願與歐方深化合作
+
+![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=75)
+  
+
+商務部部長王文濤表示，國務院總理李強剛剛與歐盟委員會主席馮德萊恩通電話，向外界傳遞積極資訊。表示中方願與歐方相向而行，共同落實好中歐領導人達成的重要共識，加強溝通交流，深化中歐貿易、投資和產業合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm)
+
+---
+
 # 中方從中午起對美加徵84%關稅　文化和旅遊部對赴美遊客發提示
 
 ![商務部表示，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799673_1_20250410012424.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799257-20250407.htm)
-
----
-
-# 中方完成福島核污水獨立檢測未見異常　外交部稱續促日方履行承諾
-
-![國家原子能機構公布，中方對日本福島核污染水排海獨立取樣檢測結果，指海水和海洋生物樣本放射性物質濃度未見異常。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799253_1_20250407154336.jpg&q=90)
-  
-
-在北京，國家原子能機構公布，中方對日本福島核污染水排海獨立取樣檢測結果，指海水和海洋生物樣本的氚、銫-134、銫-137、鍶-90等放射性物質濃度未見異常。中方會將相關檢測數據提交國際原子能機構。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799253-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799253-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799253-20250407.htm)
 
 ---
