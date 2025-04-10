@@ -46,7 +46,7 @@ def setup_environment():
 class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
     pass
 
-poolConn = 12
+poolConn = 100
 poolSize = 10000
 
 # 建立網路請求的 Session，包含緩存和 QUIC 支援
