@@ -1,3 +1,50 @@
+# 舜宇光學上月手機鏡頭出貨量按年跌逾16%
+
+![舜宇光學3月手機鏡頭出貨量按年跌16.3%，按月跌2.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799787_1_20250410163529.jpg&q=85)
+  
+
+舜宇光學3月手機鏡頭出貨量按年跌16.3%，按月跌2.9%；手機攝像模組出貨量按年跌10.9%，按月升5.5%，主要是專注於中高端產品，以及產品結構改善。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799787-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799787-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799787-20250410.htm)
+
+---
+
+# 盧金榮支持國家堅定立場維護自身合法權益
+
+  
+
+廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm)
+
+---
+
 # 曼聯訪港門票390至2990元　明午12時起購票通網站發售
 
   
@@ -334,6 +381,7 @@
 
 # 有北京民眾不打算讓留學子女提早回國　有民眾稱或選美國以外院校
 
+![有北京民眾不打算讓留學子女提早回國　有民眾稱或選美國以外院校](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799764_1_20250410163934.jpg&q=90)
   
 
 國家教育部近日發布赴美留學預警，提醒廣大留學人員增強防範意識。

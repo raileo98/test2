@@ -1,3 +1,27 @@
+# 舜宇光學上月手機鏡頭出貨量按年跌逾16%
+
+![舜宇光學3月手機鏡頭出貨量按年跌16.3%，按月跌2.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799787_1_20250410163529.jpg&q=85)
+  
+
+舜宇光學3月手機鏡頭出貨量按年跌16.3%，按月跌2.9%；手機攝像模組出貨量按年跌10.9%，按月升5.5%，主要是專注於中高端產品，以及產品結構改善。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799787-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799787-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799787-20250410.htm)
+
+---
+
 # 盧金榮支持國家堅定立場維護自身合法權益
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799656-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799656-20250409.htm)
-
----
-
-# 美財長對中國84%報復性關稅表示遺憾　籲中方談判
-
-![美國財長貝森對中國84%報復性關稅，表示遺憾，呼籲中方談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799654_1_20250409203820.jpg&q=90)
-  
-
-美國財長貝森特對中國84%報復性關稅，表示遺憾，呼籲中方談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm)
 
 ---
