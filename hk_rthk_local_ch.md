@@ -1,5 +1,29 @@
+# 康文署邀請有意贊助國慶煙花匯演機構下月2日或以前遞交申請
+
+  
+
+國慶煙花匯演10月1日舉行，康文署邀請有意贊助的機構，於下月2日或以前遞交申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799778-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799778-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799778-20250410.htm)
+
+---
+
 # 甯漢豪稱今年內將完成沙嶺數據園用地改劃程序
 
+![甯漢豪說，下半年起會就三個「片區開發」試點陸續招標。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799774_1_20250410160444.jpg&q=80)
   
 
 發展局局長甯漢豪說，政府全力推進北部都會區建設，下半年起會就三個「片區開發」試點陸續招標，今年稍後亦會邀請土地業權人就新田科技城提出原址換地申請，兩幅分別位於元朗及洪水橋的多層現代產業大樓用地，正以「雙信封制」進行招標，7月底截止。
@@ -1407,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm)
-
----
-
-# 文體旅局召開會議統籌黃金周預備工作　羅淑佩籲盡力接待旅客
-
-![文化體育及旅遊局召開會議統籌內地勞動節黃金周旅客訪港預備工作，與各單位代表討論旅客訪港安排。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799584_1_20250409140945.jpg&q=80)
-  
-
-文化體育及旅遊局召開會議，統籌一連五日內地勞動節黃金周期間接待訪港旅客的預備工作。會議由文體旅局局長羅淑佩主持，除警務處、入境處、海關、運輸署及多區民政事務處等部門代表外，多個旅遊相關機構包括旅監局、旅發局、旅議會、西九文化區管理局、主要旅遊景點及酒店業等亦有派員出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm)
 
 ---
