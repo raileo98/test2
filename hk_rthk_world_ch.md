@@ -1,3 +1,26 @@
+# 中國對原產於美國進口商品加徵84%關稅開始執行
+
+  
+
+中國反制美國的關稅措施開始執行，中午12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm)
+
+---
+
 # 多米尼加夜總會屋頂坍塌事故　增至最少184死
 
 ![當局表示，300多名救援隊員連日來努力清理廢墟，救助傷患，全力救出倖存者。（路透社）](https://wsrv.nl/?n=-1&w=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799729_1_20250410113511.jpg&q=45)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799439-20250408.htm)
-
----
-
-# 外交部：倘美方執意打關稅戰貿易戰　中方必將奉陪到底
-
-![外交部說，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。（港台圖片）](https://wsrv.nl/?n=-1&w=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799450_1_20250408171401.jpg&q=60)
-  
-
-美國總統特朗普威脅升級對華關稅，警告若中方不撤回對美國加徵反制關稅的決定，美國會再向中國徵收五成關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm)
 
 ---

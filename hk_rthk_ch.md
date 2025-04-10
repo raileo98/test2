@@ -1,3 +1,26 @@
+# 中國對原產於美國進口商品加徵84%關稅開始執行
+
+  
+
+中國反制美國的關稅措施開始執行，中午12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm)
+
+---
+
 # 習近平：中國與拉美關係進入新階段　樹立南南合作典範
 
 ![習近平指出，中拉關係歷經國際風雲變幻考驗，已經進入平等、互利、創新、開放、惠民的新階段。（新華社資料圖片）](https://wsrv.nl/?n=-1&w=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799758_1_20250410135938.jpg&q=85)

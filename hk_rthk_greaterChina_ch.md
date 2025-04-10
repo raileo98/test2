@@ -1,3 +1,50 @@
+# 中國對原產於美國進口商品加徵84%關稅開始執行
+
+  
+
+中國反制美國的關稅措施開始執行，中午12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm)
+
+---
+
+# 習近平：中國與拉美關係進入新階段　樹立南南合作典範
+
+![習近平指出，中拉關係歷經國際風雲變幻考驗，已經進入平等、互利、創新、開放、惠民的新階段。（新華社資料圖片）](https://wsrv.nl/?n=-1&w=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799758_1_20250410135938.jpg&q=85)
+  
+
+拉美和加勒比國家共同體第九屆峰會在輪值主席國洪都拉斯舉行，國家主席習近平向峰會致賀信。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799758-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799758-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799758-20250410.htm)
+
+---
+
 # 花旗：中美緊張局勢蔓延至金融領域風險加大　中國或加碼刺激政策
 
 ![花旗預計中國今年中會有1至1.5萬億元人民幣的加碼刺激政策推出。（新華社資料圖片）](https://wsrv.nl/?n=-1&w=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799746_1_20250410124817.jpg&q=55)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799346-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799346-20250408.htm)
-
----
-
-# 中國駐美使館發言人：施壓或威脅不是與中國打交道的正確方式
-
-![中國駐美使館發言人：施壓或威脅不是與中國打交道的正確方式](https://wsrv.nl/?n=-1&w=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799326_1_20250408045319.jpg&q=90)
-  
-
-美國總統特朗普警告，若果北京不撤回計劃採取的反制措施，美國就會對中國產品再徵收額外50%的關稅，中方重申不會屈服於壓力或威脅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799326-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799326-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799326-20250408.htm)
-
----
-
-# 央企中國誠通和中國國新控股分別增持中國股票資產
-
-![央企中國誠通和中國國新控股分別增持中國股票資產](https://wsrv.nl/?n=-1&w=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799316_1_20250408003744.jpg&q=90)
-  
-
-繼中央匯金後，央企中國誠通和中國國新控股，分別增持中國股票資產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799316-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799316-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799316-20250408.htm)
 
 ---
