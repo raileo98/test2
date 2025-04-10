@@ -1,5 +1,150 @@
+# 滬深股市初段造好　上證指數重上3200點
+
+![上證指數收復3200點，較早時報3213點，升26點，升幅0.82%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799713_1_20250410093659.jpg&q=90)
+  
+
+滬深股市初段造好，上證指數收復3200點，較早時報3213點，升26點，升幅0.82%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799713-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799713-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799713-20250410.htm)
+
+---
+
+# 恒指高開545點　科指升近3.7%
+
+![恒指在競價時段報20810點，升545點，升幅2.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799709_1_20250410092324.jpg&q=90)
+  
+
+港股跟隨亞太區股市高開，恒指在競價時段報20810點，升545點，升幅2.69%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799709-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799709-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799709-20250410.htm)
+
+---
+
+# 《環看天下》：應對美國關稅威脅　分析：或促使中歐經貿回暖
+
+![今年前兩個月中歐班列累計到發176列，同比增長22.9%。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799707_1_20250410092107.jpg&q=90)
+  
+
+今年是中歐建交50周年，國務院總理李強日前同歐盟委員會主席馮德萊恩通電話。李強表示，中歐關係呈現穩中向好勢頭，中方願同歐方攜手努力，增進政治互信，拓展務實合作，並分享發展機遇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm)
+
+---
+
+# 人民幣兌美元中間價下調26點子　創逾1年半新低
+
+![人民幣中間價報7.2092兌1美元，較上日中間價下調26點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799706_1_20250410091921.jpg&q=70)
+  
+
+人民幣中間價報7.2092兌1美元，較上日中間價下調26點，創2023年9月11日以來新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799706-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799706-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799706-20250410.htm)
+
+---
+
+# 長江生命科技開市前停牌
+
+![長江生命科技開市前停牌，停牌前報0.48元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799703_1_20250410091007.jpg&q=90)
+  
+
+長江生命科技開市前停牌，停牌前報0.48元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799703-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799703-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799703-20250410.htm)
+
+---
+
+# 指明潛逃者許穎婷被通緝　據悉其父母被帶往警署協助調查
+
+![據了解，許穎婷的父母被帶到警署協助調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799705_1_20250410093438.jpg&q=80)
+  
+
+被警方通緝、列為指明危害國家安全罪行潛逃者的許穎婷，據了解，她的父母被帶到警署協助調查，調查有關許穎婷涉嫌勾結外部勢力危害國家安全的罪行，預計稍後完成調查後將離開警署。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799705-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799705-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799705-20250410.htm)
+
+---
+
 # 工總稱進出口商已無生意做　學者料美方欲與中方脫勾斷鏈
 
+![莊子雄說，進出口商都處於觀望態度；麥萃才認為，商界應該專注發展其他市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799704_1_20250410093313.jpg&q=80)
   
 
 美國總統特朗普宣布，即時上調對中國加徵的關稅至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。香港工業總會主席莊子雄表示，在貿易戰下，無論美方加徵多少關稅，數字上已經無影響，因為大家已經無可能再做生意，他形容美方非常不理性，進出口商都處於觀望態度。
@@ -1289,147 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm)
-
----
-
-# 有在內地及柬埔寨設廠港商稱擔心客戶因關稅拒絕要貨
-
-  
-
-美國對等關稅今天起生效，其中對中國進口貨品加徵的關稅增至104%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799637-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799637-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799637-20250409.htm)
-
----
-
-# TikTok「不賣就禁」再延75天　商務部反對強取豪奪
-
-  
-
-美國總統特朗普日前宣布，延長中國字節跳動出售旗下短片分享平台TikTok在美業務的限期75日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm)
-
----
-
-# 葉劉淑儀建議政府與最受關稅打擊行業商討具體支援措施
-
-![葉劉淑儀建議，政府與最受打擊行業，商討具體支援措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799635_1_20250409184654.jpg&q=85)
-  
-
-針對美國新一輪加徵關稅措施，行政會議召集人葉劉淑儀建議，政府與最受打擊行業，商討具體支援措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799635-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799635-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799635-20250409.htm)
-
----
-
-# 港股倒升逾100點收市　分析料後市關注寬鬆貨幣政策何時推出
-
-![港股先低後高，恒生指數跌逾800點後，最終倒升逾100點收市。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799634_1_20250409185636.jpg&q=90)
-  
-
-港股先低後高，恒生指數跌逾800點後，最終倒升逾100點收市，跟隨內地股市升反彈。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm)
-
----
-
-# 外交部：若美方執意打貿易戰將奉陪到底
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799625_1_20250409182350.jpg&q=85)
-  
-
-在北京，外交部發言人回應美國再對中國進口貨品加徵關稅時表示，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底，強調會繼續採取堅決有力措施，維護自身的正當權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799625-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799625-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799625-20250409.htm)
-
----
-
-# 美國對等關稅生效　對華貨品關稅增至104%
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799624_1_20250409181624.jpg&q=90)
-  
-
-美國對多個貿易夥伴開徵的對等關稅周三生效，總統特朗普表示，因應中國實施報復性關稅，決定對部分中國進口貨品額外徵收50%的關稅，累計加徵稅率達到104%；特朗普同時簽署行政命令，將中國內地及香港進口小額包裹關稅增至90%，下月2日起生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799624-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799624-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799624-20250409.htm)
 
 ---

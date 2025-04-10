@@ -1,3 +1,27 @@
+# HK martial artist wins gold in Sanda World Cup
+
+![The Hong Kong, China team won four medals, including one gold, one silver and two bronze. Photo: Hong Kong, China Wushu Union's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799700_1_20250410085418.jpg&q=90)
+  
+
+Hong Kong, China Sanda martial artist Leung Yu-hong triumphed at the 10th Sanda World Cup in Jiangyin, claiming gold in the men’s 60-kilos category.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799700-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799700-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799700-20250410.htm)
+
+---
+
 # Premier League claims fifth Champions League spot
 
 ![Arsenal's shock 3-0 win over 15-time European champions Real Madrid in the first leg of their quarter-final included two stunning free kicks from Declan Rice. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799668_1_20250410001250.jpg&q=80)
@@ -1418,33 +1442,5 @@ Both the SAR men's and women's teams won an invitational in style at the first H
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798126-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798126-20250330.htm)
-
----
-
-# Who's who at the Rugby Sevens, and it's quite a cast!
-
-![Brian Hopkins (right) is celebrating his 40th birthday. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_2_20250330161122.jpg&q=90)
-![Brett Muntz, who's supporting Fiji, says the Sevens is "all about the people". Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_3_20250330161122.jpg&q=90)
-![Epeli Buliciri shows off his pin collection. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_4_20250330161122.jpg&q=90)
-![These Smurfs are confident that they have the best costume. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_5_20250330161122.jpg&q=90)
-![This group decides to draw inspiration from Freddy the weatherman. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_6_20250330161122.jpg&q=70)
-  
-
-Rugby lovers from Hong Kong and beyond filled up the Kai Tak Stadium on Sunday to enjoy a final day of sport and partying at the Hong Kong Sevens.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Local stocks surge after Trump tariff reversal
+
+![Hong Kong stocks open 2.69 percent higher in tariff relief rally. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799708_1_20250410092223.jpg&q=90)
+  
+
+Stocks surged in Hong Kong on Thursday after US President Donald Trump announced a 90-day pause on the harshest tariffs against US trading partners, while Shanghai also advanced even as he ramped up levies on China.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799708-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799708-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799708-20250410.htm)
+
+---
+
 # Wall Street soars on Trump tariff pause
 
 ![All three major indices on Wall Street made dramatic gains after Donald Trump changed course. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799682_1_20250410051523.jpg&q=90)
@@ -1412,29 +1436,5 @@ South Korea's auto sector is expected to face "considerable difficulties" when U
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797671-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797671-20250327.htm)
-
----
-
-# 'Exporters remain positive despite trade tensions'
-
-![Irina Fan, director of research at the Trade Development Council, says the impact of US tariffs on Hong Kong is "relatively mild". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797662_1_20250327132129.jpg&q=60)
-  
-
-The Trade Development Council said Hong Kong exporters are well-prepared for the new round of US tariffs set to take effect on April 2.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm)
 
 ---

@@ -1,3 +1,51 @@
+# Local stocks surge after Trump tariff reversal
+
+![Hong Kong stocks open 2.69 percent higher in tariff relief rally. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799708_1_20250410092223.jpg&q=90)
+  
+
+Stocks surged in Hong Kong on Thursday after US President Donald Trump announced a 90-day pause on the harshest tariffs against US trading partners, while Shanghai also advanced even as he ramped up levies on China.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799708-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799708-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799708-20250410.htm)
+
+---
+
+# HK martial artist wins gold in Sanda World Cup
+
+![The Hong Kong, China team won four medals, including one gold, one silver and two bronze. Photo: Hong Kong, China Wushu Union's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799700_1_20250410085418.jpg&q=90)
+  
+
+Hong Kong, China Sanda martial artist Leung Yu-hong triumphed at the 10th Sanda World Cup in Jiangyin, claiming gold in the men’s 60-kilos category.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799700-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799700-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799700-20250410.htm)
+
+---
+
 # US backtracks on some food aid cuts: UN
 
 ![A WFP distribution centre in Chad, one of eight countries where the US is ending emergency funding. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799695_1_20250410080414.jpg&q=90)
@@ -1387,53 +1435,5 @@ The central government is well prepared and has a broad arsenal to respond to an
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799392-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799392-20250408.htm)
-
----
-
-# CE vows support for influencers after IShowSpeed visit
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799389_1_20250408114853.jpg&q=90)
-  
-
-Chief Executive John Lee said on Tuesday Hong Kong will seize every opportunity to help social media influencers show the city to the world.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm)
-
----
-
-# HK economist expects Fed to cut rates sooner
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799386_1_20250408113645.jpg&q=85)
-  
-
-An economist said on Tuesday he expects the US Federal Reserve to cut interest rates sooner than expected in a bid to rescue the American economy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm)
 
 ---

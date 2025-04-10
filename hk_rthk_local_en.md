@@ -1,3 +1,27 @@
+# HK martial artist wins gold in Sanda World Cup
+
+![The Hong Kong, China team won four medals, including one gold, one silver and two bronze. Photo: Hong Kong, China Wushu Union's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799700_1_20250410085418.jpg&q=90)
+  
+
+Hong Kong, China Sanda martial artist Leung Yu-hong triumphed at the 10th Sanda World Cup in Jiangyin, claiming gold in the men’s 60-kilos category.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799700-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799700-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799700-20250410.htm)
+
+---
+
 # SAR rescue team returns home from Myanmar
 
 ![The government holds a welcome-home ceremony for the SAR rescue team at Chek Lap Kok airport. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799667_1_20250409230545.jpg&q=90)
@@ -1411,29 +1435,5 @@ A series of traffic accidents disrupted early morning commutes on Thursday, with
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798758-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798758-20250403.htm)
-
----
-
-# Tariffs target packages under US$800 from HK
-
-![US President Donald Trump holds a signed executive order on tariffs, in the Rose Garden at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798734_1_20250403084633.jpg&q=90)
-  
-
-US President Donald Trump signed an executive order on Wednesday that closes a trade exemption known as "de minimis" that has allowed low-value packages from mainland China and Hong Kong to enter the United States, free of duties.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm)
 
 ---
