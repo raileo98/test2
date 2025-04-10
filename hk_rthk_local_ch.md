@@ -1,3 +1,26 @@
+# 甯漢豪稱今年內將完成沙嶺數據園用地改劃程序
+
+  
+
+發展局局長甯漢豪說，政府全力推進北部都會區建設，下半年起會就三個「片區開發」試點陸續招標，今年稍後亦會邀請土地業權人就新田科技城提出原址換地申請，兩幅分別位於元朗及洪水橋的多層現代產業大樓用地，正以「雙信封制」進行招標，7月底截止。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm)
+
+---
+
 # 入境處第五次奪得全球最佳機場出入境服務大獎
 
   
@@ -1406,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799584-20250409.htm)
-
----
-
-# 恒指下午初段跌逾2%　滬股轉跌
-
-![恒指較早時報19620點，跌476點，跌幅2.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799580_1_20250409130614.jpg&q=70)
-  
-
-港股下午初段跌幅擴大，美國的對等關稅生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm)
 
 ---

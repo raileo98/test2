@@ -1,3 +1,26 @@
+# 甯漢豪稱今年內將完成沙嶺數據園用地改劃程序
+
+  
+
+發展局局長甯漢豪說，政府全力推進北部都會區建設，下半年起會就三個「片區開發」試點陸續招標，今年稍後亦會邀請土地業權人就新田科技城提出原址換地申請，兩幅分別位於元朗及洪水橋的多層現代產業大樓用地，正以「雙信封制」進行招標，7月底截止。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm)
+
+---
+
 # 歐洲股市上升　德股升逾8%
 
 ![法蘭克福DAX指數較早時報 21249點，升1579點，升幅8.03%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799771_1_20250410152732.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799641-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799641-20250409.htm)
-
----
-
-# 美國10年期國債孳息率急升　分析：未清楚受短線或基本因素影響
-
-![陸庭龍認為，近期美國債息「短息跌長息高」，但當前市況混亂，仍未清楚受短線或基本因素影響。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799638_1_20250409185206.jpg&q=85)
-  
-
-美國指標10年期國債孳息率大幅抽升，在亞洲時段曾升至曾抽升至4.5厘以上，30年期國債收益率亦曾急升至近5厘，若情況持續，將創下1981年來最嚴重拋售潮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm)
 
 ---

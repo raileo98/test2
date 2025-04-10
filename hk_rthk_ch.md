@@ -1,3 +1,50 @@
+# 甯漢豪稱今年內將完成沙嶺數據園用地改劃程序
+
+  
+
+發展局局長甯漢豪說，政府全力推進北部都會區建設，下半年起會就三個「片區開發」試點陸續招標，今年稍後亦會邀請土地業權人就新田科技城提出原址換地申請，兩幅分別位於元朗及洪水橋的多層現代產業大樓用地，正以「雙信封制」進行招標，7月底截止。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm)
+
+---
+
+# 外交部：若美方執意打關稅戰、貿易戰　中方必將奉陪到底
+
+![林劍批評美方出於一己之私，將關稅作為極限施壓、謀取私利的武器，是與整個世界作對。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799773_1_20250410154756.jpg&q=90)
+  
+
+美國總統特朗普以「中國不尊重世界市場」為由，即時調高對華加徵的關稅至125%。在北京，外交部發言人林劍批評，美方出於一己之私，將關稅作為極限施壓、謀取私利的武器，嚴重侵犯各國的正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序穩定。這是公然冒天下之大不韙，與整個世界作對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799773-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799773-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799773-20250410.htm)
+
+---
+
 # 商務部：對話必須在相互尊重基礎上以平等方式進行
 
 ![何詠前重申，中方的立場明確和一貫，談判大門敞開，但對話必須在相互尊重的基礎上以平等方式進行。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799772_1_20250410154014.jpg&q=90)
@@ -48,7 +95,7 @@
 
 # 商務部：面對美國霸凌關稅　中方將堅定不移推進高水平對外開放
 
-![商務部下午召開新聞發布會。（中國網直播截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799769_1_20250410151926.jpg&q=90)
+![商務部發言人何詠前下午召開新聞發布會。（中國網直播截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799769_1_20250410151926.jpg&q=90)
   
 
 在北京，商務部再次強烈譴責和堅決反對美國以各種藉口濫施關稅，強調作為全球第二大經濟體和第二大商品消費市場，面對美國霸凌關稅，中方將堅定不移推進高水平對外開放，堅定不移走好自己的路，以自身的穩定發展為全球經濟注入更多確定性。中國外貿有信心、有底氣應對各種風險挑戰。
