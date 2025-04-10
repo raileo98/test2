@@ -1,5 +1,222 @@
+# 本台作品奪恒大最佳經濟及金融政策新聞報道影像及聲音組銀獎
+
+![獲獎作品為《受惠自貿協定及一帶一路碼頭秘魯米商、鞋企盼拓展香港市場》，由本台新聞部記者林漢山(右)及葉燿坤(左)製作。(鍾慧儀攝)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799807_1_20250410173427.jpg&q=80)
+  
+
+第九屆香港恒生大學商業新聞獎舉行頒獎禮，接獲超過600份作品參賽，屬歷屆最多。香港電台奪得「最佳經濟及金融政策新聞報道獎」影像及聲音組銀獎 。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799807-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799807-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799807-20250410.htm)
+
+---
+
+# 有市民稱不再郵寄貨物往美國　改為將貨品帶予當地家人
+
+![在中環一間郵局，有市民表示，如果日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799806_1_20250410173610.jpg&q=70)
+  
+
+美國早前宣布，由5月2日起取消香港寄往美國物品的小額免稅安排。在中環一間郵局，有市民表示，家人都住在美國，平時兩至三個月就需要寄一次日常用品到當地，每次約花費數百至1千元，日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國，改為由家人將貨品帶到美國，估計補給次數將會由平均兩個月一次，改為5至8個月一次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm)
+
+---
+
+# 貿發局籲本港業界勿自亂陣腳做好產品及服務　升級轉型提高競爭力
+
+  
+
+貿發局副總裁張淑芬表示，美國關稅不只對香港帶來影響，環球出口都直接受影響，業界經營會較辛苦，但呼籲切勿自亂陣腳，需要做好自己產品和服務，積極升級轉型，提高競爭力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm)
+
+---
+
+# 昂坪360首季平均每日訪客按年升12.3%創疫後新高
+
+![昂坪360指，首季的長短途國際市場旅客於整體旅客人數佔51.3%。（昂坪360提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799799_1_20250410172640.jpg&q=50)
+  
+
+昂坪360表示，今年首季來自長短途國際市場的旅客，平均每日到訪人數較去年同期上升12.3%，數字創疫後新高。佔比方面，首季的長短途國際市場旅客於整體旅客人數當中，佔超過一半，達51.3%。其次是內地，佔約三成，而本地居民則佔約兩成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm)
+
+---
+
+# 廖李可期稱密切評估加徵關稅情況　多方面支援本地企業
+
+![廖李可期說，新聞從業員可擔當重要角色，提供最新及最準確的資訊。（鍾慧儀攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799795_1_20250410171153.jpg&q=80)
+  
+
+美國上調對中國加徵的關稅至125%，新聞處處長廖李可期表示，對此霸凌行徑，特區政府除了堅決反對之外，亦會密切評估有關情況和發展，並從多方面為本地企業提供支援。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm)
+
+---
+
+# 6男女涉46宗騙案被捕　警方指涉案集團已清洗逾2.9億元黑錢
+
+![行動中，警方檢獲19張懷疑屬於傀儡戶口持有人的提款卡、25萬港元現金、一部點鈔機、多部電腦及手提電話等。（警方提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799793_1_20250410170915.jpg&q=85)
+  
+
+警方拘捕6名男女，涉嫌與46宗騙案有關，騙案總損失金額超過1360萬港元。警方相信有關集團在去年7月至本月期間，已清洗超過2億9千萬港元懷疑非法犯罪得益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799793-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799793-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799793-20250410.htm)
+
+---
+
+# 林淑儀將出任特首辦常任秘書長　蔡傑銘任運輸及物流局常任秘書長
+
+![現任特首政策組副組長林淑儀（左）將出任行政長官辦公室常任秘書長；現任行政長官辦公室常任秘書長蔡傑銘（右）將出任運輸及物流局常任秘書長。（政府新聞處）
+
+；](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799792_1_20250410171323.jpg&q=90)
+  
+
+政府宣布高層官員任命，行政長官辦公室常任秘書長蔡傑銘將於本月14日出任運輸及物流局常任秘書長；特首政策組副組長林淑儀於本月14日出任行政長官辦公室常任秘書長；屋宇署副署長何鎮雄於本月13日出任屋宇署署長，接替將於同日展開退休前休假的余寶美。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799792-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799792-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799792-20250410.htm)
+
+---
+
+# 甯漢豪稱設北都管理局非最好方法　探討成立管理公司年內有建議
+
+  
+
+政府正全力推進北部都會區建設。在立法會財委會特別會議，民建聯議員劉國勳表示，北都工作進入新一頁，認為北部都會區統籌辦事處的角色可以加強，建議政府考慮成立「北都管理局」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm)
+
+---
+
+# 當局推出三項措施支援香港出口貿易　協助企業加快開拓新興市場
+
+![丘應樺表示，美國朝令夕改，連日調高關稅，呼籲業界團結一致，迎難而上。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799789_1_20250410165429.jpg&q=90)
+  
+
+商務及經濟發展局表示，面對美國濫施關稅，包括進一步調高所謂對等關稅，香港出口信用保險局會即時推出3項支援措施，支援香港出口貿易，協助企業加快開拓新興市場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm)
+
+---
+
 # 盧金榮支持國家堅定立場維護自身合法權益
 
+![盧金榮表示，美國總統特朗普再加關稅已經沒有意義。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799786_1_20250410172051.jpg&q=75)
   
 
 廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
@@ -46,6 +263,7 @@
 
 # 李家超籲僑界於國際輿論場全力發聲一同推廣自由貿易
 
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799780_1_20250410170122.jpg&q=75)
   
 
 行政長官李家超表示，最近美國單方面宣布所謂對等關稅，破壞全球共同建立的自由貿易體系規則，大搞單邊主義，滿口歪理霸淩，違背經濟規律，嚴重踐踏及侮辱多邊貿易體系。
@@ -237,6 +455,7 @@
 
 # 現金津貼試行計劃將取消　何永賢稱簡約公屋及過渡房屋可取代
 
+![何永賢說，雖然過往申請現金津貼計劃大概有11萬人，但現時有5萬5000個申請人已經有公屋「上樓」機會，因此會取消他們的現金津貼。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799749_1_20250410171647.jpg&q=90)
   
 
 特區政府在2021年推行現金津貼試行計劃，以紓緩長期輪候公屋家庭的生活困難，計劃將於今年6月30日取消。在立法會財委會特別會議，選委界立法會議員林筱魯關注，取消計劃後，當局如何處理市民的住屋需求。
@@ -1215,221 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799615-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799615-20250409.htm)
-
----
-
-# 港股先低後高　收市升136點
-
-![恒指一度倒升逾300點，收市報20264點，升136點，升幅0.68%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799613_2_20250409163931.jpg&q=70)
-  
-
-港股先低後高，恒指低開逾600點後，最多跌逾800點，低見19260點，其後有傳內地高層領導人或今日召開重要會議，討論提振經濟及穩定資本市場措施，恒指跟隨內地股市收復全部失地，一度倒升逾300點，收市報20264點，升136點，升幅0.68%。主板總成交金額近4124億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799613-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799613-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799613-20250409.htm)
-
----
-
-# 中國救援隊包括香港隊員抵達北京　國家應急部在機場迎接
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799612_1_20250409164353.jpg&q=85)
-  
-
-到緬甸參與地震救援行動的中國救援隊、中國國際救援隊和中國香港特區救援隊完成任務回國，他們乘坐的4架中國空軍飛機，下午約4時，抵達北京首都國際機場，國家應急部在機場舉行迎接儀式。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm)
-
----
-
-# 物流業形容美國加徵關稅帶來毀滅性影響　可趁機開發不同地區市場
-
-![劉浩然表示，業界相信，未來數個月，公司營運上不容樂觀，但不會坐以待斃。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799611_1_20250409163218.jpg&q=40)
-  
-
-美國對來自中國內地和香港的小額包裹關稅將增至90%，下月2日生效。香港貨運物流業協會主席劉浩然說，今次美國的做法，對所有電商平台出貨，可說是帶來毀滅性影響，涉及所有供應鏈及產品，小至手機殻，大至大型家電，甚至食品及其他民生日用品都會受影響。他說，業界相信，未來數個月，公司營運上不容樂觀，但不會坐以待斃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799611-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799611-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799611-20250409.htm)
-
----
-
-# 3名非本地培訓牙醫上月就任　分別在內地及海外獲取資格
-
-![3人分別在內地及海外院校獲得牙醫專業資格後，曾於內地、英國及澳洲執業，熟諳粵語，署方已為他們提供一星期入職培訓。（施華駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799610_1_20250409162258.jpg&q=90)
-  
-
-首批非本地培訓牙醫已加入衞生署，其中3人已於上月10日就任，為公眾提供牙科服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799610-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799610-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799610-20250409.htm)
-
----
-
-# 海關檢約120萬元冒牌貨物　拘捕64歲貨車司機
-
-![海關檢獲的懷疑冒牌貨物。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799606_1_20250409161232.jpg&q=50)
-  
-
-海關早前在港珠澳大橋香港口岸檢獲約6600件懷疑冒牌貨物，估計市值約120萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799606-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799606-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799606-20250409.htm)
-
----
-
-# 港股升逾200點　科指升逾3%
-
-![恒指曾經升逾300點，較早時報20366點，升238點，升幅1.19%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799605_1_20250409162303.jpg&q=50)
-  
-
-港股掉頭上升，恒生指數曾經升逾300點，較早時報20366點，升238點，升幅1.19%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799605-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799605-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799605-20250409.htm)
-
----
-
-# 金融學院料金融服務界應用Gen.A.I.於3至5年內達87%
-
-![金融學院轄下香港貨幣及金融研究中心發表報告，料金融服務界應用生成式人工智能（Gen.A.I.）於3至5年內達87%。（張詩民攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799600_1_20250409162338.jpg&q=80)
-  
-
-金融學院轄下香港貨幣及金融研究中心，就金融服務業應用生成式人工智能（GenA.I.）現狀、發展路向、風險管理、人才發展策略發表報告，指出75%受訪金融機構已推出至少一個GenA.I.用例，或正進行試行計劃和設計用例，探索具潛質的投資領域。預計相關比率未來3-5年會上升至87%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799600-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799600-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799600-20250409.htm)
-
----
-
-# 孫玉菡指大灣區青年就業計劃達預期效果　入職人數跌有很多原因
-
-![孫玉菡說，「大灣區青年就業計劃」推行至今達到預期效果。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799598_1_20250409153126.jpg&q=90)
-  
-
-政府自2023年起恆常推行「大灣區青年就業計劃」，在2023及2024年分別有278間及249間企業，提供2540個及2186個職位空缺，分別有718名及417名青年入職。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799598-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799598-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799598-20250409.htm)
-
----
-
-# 特區救援隊完成在緬甸災區搜救行動　收拾裝備準備回港
-
-![特區救援隊經過連日在緬甸地震災區的搜救行動，正準備回港。（消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799594_1_20250409150210.jpg&q=70)
-  
-
-消防處表示，特區救援隊經過連日在緬甸地震災區的搜救行動，正忙於收拾裝備，準備回港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799594-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799594-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799594-20250409.htm)
 
 ---

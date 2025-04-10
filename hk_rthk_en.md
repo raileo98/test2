@@ -1,6 +1,30 @@
+# HK stocks keep rising despite Trump's China escalation
+
+![The Hang Seng Index ended up 2.06 percent at 20,681.78. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799800_1_20250410172543.jpg&q=90)
+  
+
+Stocks rocketed on Thursday as a relief rally spread through markets after Donald Trump paused crippling tariffs on US partners, with Chinese investors even brushing off his decision to ramp up duties on Beijing to 125 percent.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799800-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799800-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799800-20250410.htm)
+
+---
+
 # Govt mulls fishing rules relaxation to boost tourism
 
-![Rosanna Law says the government will consider increasing the number of yacht docking spaces in Victoria Harbour. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799779_1_20250410161655.jpg&q=1)
+![Rosanna Law says the government will consider increasing the number of yacht docking spaces in Victoria Harbour. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799779_1_20250410161655.jpg&q=85)
   
 
 Authorities have said they will make it easier for people to cook freshly caught fish on boats, as part of a push to promote island hopping tourism.
@@ -1411,29 +1435,5 @@ US media giant Comcast Corp will build its first Universal theme park and resort
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799527-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799527-20250409.htm)
-
----
-
-# Trump's sweeping global tariffs take effect
-
-![White House press secretary Karoline Leavitt said President Trump believed China wanted to make a deal over tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799523_1_20250409074554.jpg&q=90)
-  
-
-US President Donald Trump's "reciprocal" tariffs on dozens of countries took effect on Wednesday, including massive 104 percent duties on Chinese goods, deepening his global trade war even as he prepared for negotiations with some nations.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm)
 
 ---

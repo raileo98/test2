@@ -1,3 +1,339 @@
+# 本台作品奪恒大最佳經濟及金融政策新聞報道影像及聲音組銀獎
+
+![獲獎作品為《受惠自貿協定及一帶一路碼頭秘魯米商、鞋企盼拓展香港市場》，由本台新聞部記者林漢山(右)及葉燿坤(左)製作。(鍾慧儀攝)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799807_1_20250410173427.jpg&q=80)
+  
+
+第九屆香港恒生大學商業新聞獎舉行頒獎禮，接獲超過600份作品參賽，屬歷屆最多。香港電台奪得「最佳經濟及金融政策新聞報道獎」影像及聲音組銀獎 。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799807-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799807-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799807-20250410.htm)
+
+---
+
+# 有市民稱不再郵寄貨物往美國　改為將貨品帶予當地家人
+
+![在中環一間郵局，有市民表示，如果日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799806_1_20250410173610.jpg&q=70)
+  
+
+美國早前宣布，由5月2日起取消香港寄往美國物品的小額免稅安排。在中環一間郵局，有市民表示，家人都住在美國，平時兩至三個月就需要寄一次日常用品到當地，每次約花費數百至1千元，日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國，改為由家人將貨品帶到美國，估計補給次數將會由平均兩個月一次，改為5至8個月一次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm)
+
+---
+
+# 北京有民眾擔心物價上漲　有民眾則不擔心生活必需品供應
+
+  
+
+中國由中午起，對原產於美國的所有進口商品加徵關稅至84%。在北京，有民眾說擔心物價上漲，例如進口營養補充品、過敏藥等，認為關稅戰影響民生，最終費用都是由民眾承擔。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm)
+
+---
+
+# 貿發局籲本港業界勿自亂陣腳做好產品及服務　升級轉型提高競爭力
+
+  
+
+貿發局副總裁張淑芬表示，美國關稅不只對香港帶來影響，環球出口都直接受影響，業界經營會較辛苦，但呼籲切勿自亂陣腳，需要做好自己產品和服務，積極升級轉型，提高競爭力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm)
+
+---
+
+# 昂坪360首季平均每日訪客按年升12.3%創疫後新高
+
+![昂坪360指，首季的長短途國際市場旅客於整體旅客人數佔51.3%。（昂坪360提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799799_1_20250410172640.jpg&q=50)
+  
+
+昂坪360表示，今年首季來自長短途國際市場的旅客，平均每日到訪人數較去年同期上升12.3%，數字創疫後新高。佔比方面，首季的長短途國際市場旅客於整體旅客人數當中，佔超過一半，達51.3%。其次是內地，佔約三成，而本地居民則佔約兩成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm)
+
+---
+
+# 外交部斥美方大肆利用關稅對全球威脅訛詐
+
+![林劍說，美方大肆利用關稅對全球威脅訛詐，是在試圖扼住各國的喉嚨，逼使各國在美方的霸凌面前做出妥協退讓。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799798_1_20250410171631.jpg&q=90)
+  
+
+在北京，外交部發言人林劍回應美國財長貝森特指，西班牙和中國走得更近，無異於割自己喉嚨的言論時表示，美方大肆利用關稅對全球威脅訛詐，才是在試圖扼住各國的喉嚨，逼使各國在美方的霸凌面前做出妥協退讓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm)
+
+---
+
+# 中方發布赴美風險提示　外交部：將繼續採取堅決有力措施
+
+![林劍表示，中方將繼續採取堅決有力措施，堅決維護自身的正當合法權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799796_1_20250410171411.jpg&q=90)
+  
+
+國家文化和旅遊部昨天對赴美中國遊客發布風險提示，提醒中國遊客充分評估赴美旅遊風險，謹慎前往。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm)
+
+---
+
+# 廖李可期稱密切評估加徵關稅情況　多方面支援本地企業
+
+![廖李可期說，新聞從業員可擔當重要角色，提供最新及最準確的資訊。（鍾慧儀攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799795_1_20250410171153.jpg&q=80)
+  
+
+美國上調對中國加徵的關稅至125%，新聞處處長廖李可期表示，對此霸凌行徑，特區政府除了堅決反對之外，亦會密切評估有關情況和發展，並從多方面為本地企業提供支援。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm)
+
+---
+
+# 美國對中國船隻徵港口停泊費　外交部：無法振興美國造船業
+
+![林劍說，美方單邊主義、保護主義的霸道做法不得人心，對世界各國的利益造成損害。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799794_1_20250410171102.jpg&q=90)
+  
+
+在北京，外交部發言人林劍表示，美方單邊主義、保護主義的霸道做法不得人心，只會推高全球的海運成本，擾亂全球的產供鏈穩定，對世界各國的利益造成損害，最終也無法振興美國的造船業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm)
+
+---
+
+# 6男女涉46宗騙案被捕　警方指涉案集團已清洗逾2.9億元黑錢
+
+![行動中，警方檢獲19張懷疑屬於傀儡戶口持有人的提款卡、25萬港元現金、一部點鈔機、多部電腦及手提電話等。（警方提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799793_1_20250410170915.jpg&q=85)
+  
+
+警方拘捕6名男女，涉嫌與46宗騙案有關，騙案總損失金額超過1360萬港元。警方相信有關集團在去年7月至本月期間，已清洗超過2億9千萬港元懷疑非法犯罪得益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799793-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799793-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799793-20250410.htm)
+
+---
+
+# 林淑儀將出任特首辦常任秘書長　蔡傑銘任運輸及物流局常任秘書長
+
+![現任特首政策組副組長林淑儀（左）將出任行政長官辦公室常任秘書長；現任行政長官辦公室常任秘書長蔡傑銘（右）將出任運輸及物流局常任秘書長。（政府新聞處）
+
+；](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799792_1_20250410171323.jpg&q=90)
+  
+
+政府宣布高層官員任命，行政長官辦公室常任秘書長蔡傑銘將於本月14日出任運輸及物流局常任秘書長；特首政策組副組長林淑儀於本月14日出任行政長官辦公室常任秘書長；屋宇署副署長何鎮雄於本月13日出任屋宇署署長，接替將於同日展開退休前休假的余寶美。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799792-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799792-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799792-20250410.htm)
+
+---
+
+# 馮德萊恩：美國暫緩徵收對等關稅是朝穩定全球經濟邁出重要一步
+
+![馮德萊恩表示，歐盟仍致力與美國進行建設性談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799783_2_20250410164947.jpg&q=90)
+![歐盟委員會表示，需要時間評估美國有關關稅措施的最新進展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799783_1_20250410162214.jpg&q=30)
+  
+
+美國總統特朗普宣布，暫緩對中國以外其他國家及地區徵收較高稅率的對等關稅90日，以便談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799783-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799783-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799783-20250410.htm)
+
+---
+
+# 甯漢豪稱設北都管理局非最好方法　探討成立管理公司年內有建議
+
+  
+
+政府正全力推進北部都會區建設。在立法會財委會特別會議，民建聯議員劉國勳表示，北都工作進入新一頁，認為北部都會區統籌辦事處的角色可以加強，建議政府考慮成立「北都管理局」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm)
+
+---
+
+# 當局推出三項措施支援香港出口貿易　協助企業加快開拓新興市場
+
+![丘應樺表示，美國朝令夕改，連日調高關稅，呼籲業界團結一致，迎難而上。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799789_1_20250410165429.jpg&q=90)
+  
+
+商務及經濟發展局表示，面對美國濫施關稅，包括進一步調高所謂對等關稅，香港出口信用保險局會即時推出3項支援措施，支援香港出口貿易，協助企業加快開拓新興市場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm)
+
+---
+
 # 舜宇光學上月手機鏡頭出貨量按年跌逾16%
 
 ![舜宇光學3月手機鏡頭出貨量按年跌16.3%，按月跌2.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799787_1_20250410163529.jpg&q=85)
@@ -24,6 +360,7 @@
 
 # 盧金榮支持國家堅定立場維護自身合法權益
 
+![盧金榮表示，美國總統特朗普再加關稅已經沒有意義。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799786_1_20250410172051.jpg&q=75)
   
 
 廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
@@ -94,6 +431,7 @@
 
 # 李家超籲僑界於國際輿論場全力發聲一同推廣自由貿易
 
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799780_1_20250410170122.jpg&q=75)
   
 
 行政長官李家超表示，最近美國單方面宣布所謂對等關稅，破壞全球共同建立的自由貿易體系規則，大搞單邊主義，滿口歪理霸淩，違背經濟規律，嚴重踐踏及侮辱多邊貿易體系。
@@ -285,7 +623,7 @@
 
 # 商務部：面對美國霸凌關稅　中方將堅定不移推進高水平對外開放
 
-![商務部發言人何咏前下午召開新聞發布會。（中國網直播截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799769_1_20250410151926.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799769_1_20250410151926.jpg&q=90)
   
 
 在北京，商務部再次強烈譴責和堅決反對美國以各種藉口濫施關稅，強調作為全球第二大經濟體和第二大商品消費市場，面對美國霸凌關稅，中方將堅定不移推進高水平對外開放，堅定不移走好自己的路，以自身的穩定發展為全球經濟注入更多確定性。中國外貿有信心、有底氣應對各種風險挑戰。
@@ -669,6 +1007,7 @@
 
 # 現金津貼試行計劃將取消　何永賢稱簡約公屋及過渡房屋可取代
 
+![何永賢說，雖然過往申請現金津貼計劃大概有11萬人，但現時有5萬5000個申請人已經有公屋「上樓」機會，因此會取消他們的現金津貼。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799749_1_20250410171647.jpg&q=90)
   
 
 特區政府在2021年推行現金津貼試行計劃，以紓緩長期輪候公屋家庭的生活困難，計劃將於今年6月30日取消。在立法會財委會特別會議，選委界立法會議員林筱魯關注，取消計劃後，當局如何處理市民的住屋需求。

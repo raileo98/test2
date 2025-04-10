@@ -1,6 +1,6 @@
 # Govt mulls fishing rules relaxation to boost tourism
 
-![Rosanna Law says the government will consider increasing the number of yacht docking spaces in Victoria Harbour. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799779_1_20250410161655.jpg&q=1)
+![Rosanna Law says the government will consider increasing the number of yacht docking spaces in Victoria Harbour. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799779_1_20250410161655.jpg&q=85)
   
 
 Authorities have said they will make it easier for people to cook freshly caught fish on boats, as part of a push to promote island hopping tourism.

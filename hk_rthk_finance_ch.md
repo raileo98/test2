@@ -1,3 +1,168 @@
+# 有市民稱不再郵寄貨物往美國　改為將貨品帶予當地家人
+
+![在中環一間郵局，有市民表示，如果日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799806_1_20250410173610.jpg&q=70)
+  
+
+美國早前宣布，由5月2日起取消香港寄往美國物品的小額免稅安排。在中環一間郵局，有市民表示，家人都住在美國，平時兩至三個月就需要寄一次日常用品到當地，每次約花費數百至1千元，日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國，改為由家人將貨品帶到美國，估計補給次數將會由平均兩個月一次，改為5至8個月一次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm)
+
+---
+
+# 北京有民眾擔心物價上漲　有民眾則不擔心生活必需品供應
+
+  
+
+中國由中午起，對原產於美國的所有進口商品加徵關稅至84%。在北京，有民眾說擔心物價上漲，例如進口營養補充品、過敏藥等，認為關稅戰影響民生，最終費用都是由民眾承擔。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm)
+
+---
+
+# 貿發局籲本港業界勿自亂陣腳做好產品及服務　升級轉型提高競爭力
+
+  
+
+貿發局副總裁張淑芬表示，美國關稅不只對香港帶來影響，環球出口都直接受影響，業界經營會較辛苦，但呼籲切勿自亂陣腳，需要做好自己產品和服務，積極升級轉型，提高競爭力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm)
+
+---
+
+# 昂坪360首季平均每日訪客按年升12.3%創疫後新高
+
+![昂坪360指，首季的長短途國際市場旅客於整體旅客人數佔51.3%。（昂坪360提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799799_1_20250410172640.jpg&q=50)
+  
+
+昂坪360表示，今年首季來自長短途國際市場的旅客，平均每日到訪人數較去年同期上升12.3%，數字創疫後新高。佔比方面，首季的長短途國際市場旅客於整體旅客人數當中，佔超過一半，達51.3%。其次是內地，佔約三成，而本地居民則佔約兩成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm)
+
+---
+
+# 廖李可期稱密切評估加徵關稅情況　多方面支援本地企業
+
+![廖李可期說，新聞從業員可擔當重要角色，提供最新及最準確的資訊。（鍾慧儀攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799795_1_20250410171153.jpg&q=80)
+  
+
+美國上調對中國加徵的關稅至125%，新聞處處長廖李可期表示，對此霸凌行徑，特區政府除了堅決反對之外，亦會密切評估有關情況和發展，並從多方面為本地企業提供支援。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm)
+
+---
+
+# 甯漢豪稱設北都管理局非最好方法　探討成立管理公司年內有建議
+
+  
+
+政府正全力推進北部都會區建設。在立法會財委會特別會議，民建聯議員劉國勳表示，北都工作進入新一頁，認為北部都會區統籌辦事處的角色可以加強，建議政府考慮成立「北都管理局」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm)
+
+---
+
+# 當局推出三項措施支援香港出口貿易　協助企業加快開拓新興市場
+
+![丘應樺表示，美國朝令夕改，連日調高關稅，呼籲業界團結一致，迎難而上。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799789_1_20250410165429.jpg&q=90)
+  
+
+商務及經濟發展局表示，面對美國濫施關稅，包括進一步調高所謂對等關稅，香港出口信用保險局會即時推出3項支援措施，支援香港出口貿易，協助企業加快開拓新興市場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm)
+
+---
+
 # 舜宇光學上月手機鏡頭出貨量按年跌逾16%
 
 ![舜宇光學3月手機鏡頭出貨量按年跌16.3%，按月跌2.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799787_1_20250410163529.jpg&q=85)
@@ -24,6 +189,7 @@
 
 # 盧金榮支持國家堅定立場維護自身合法權益
 
+![盧金榮表示，美國總統特朗普再加關稅已經沒有意義。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799786_1_20250410172051.jpg&q=75)
   
 
 廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
@@ -71,6 +237,7 @@
 
 # 李家超籲僑界於國際輿論場全力發聲一同推廣自由貿易
 
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799780_1_20250410170122.jpg&q=75)
   
 
 行政長官李家超表示，最近美國單方面宣布所謂對等關稅，破壞全球共同建立的自由貿易體系規則，大搞單邊主義，滿口歪理霸淩，違背經濟規律，嚴重踐踏及侮辱多邊貿易體系。
@@ -1266,173 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm)
-
----
-
-# 特朗普：對等關稅90日內暫降至一成　對華關稅即時增至125%
-
-![特朗普表示，由於中國對世界市場的不尊重，決定將美國對中國徵收的關稅提高至125%，即時生效。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799674_1_20250410015631.jpg&q=90)
-  
-
-美國總統特朗普宣布，即時上調對中國加徵的關稅稅率至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm)
-
----
-
-# 美國2月批發庫存按月增長0.3%合乎預期
-
-![美國2月批發銷售轉升2.4%，扭轉1月的下跌0.9%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799664_1_20250409224524.jpg&q=60)
-  
-
-美國2月批發庫存按月增長0.3%，與初值相同，合乎市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799664-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799664-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799664-20250409.htm)
-
----
-
-# 特許經營權被指違規　巴拿馬港口公司稱不符事實
-
-![特許經營權被指違規，巴拿馬港口公司稱不符事實。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799663_1_20250409223909.jpg&q=75)
-  
-
-巴拿馬的審計報告指，授予長和旗下子公司經營兩座港口的特許經營權，存在多項違規行為，違反合約條款。長和旗下的巴拿馬港口公司發表聲明反駁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799663-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799663-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799663-20250409.htm)
-
----
-
-# 國家文化和旅遊部提示中國遊客充分評估赴美旅遊風險　籲謹慎前往
-
-![國家文化和旅遊部對赴美中國遊客發布風險提示。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799660_1_20250409224238.jpg&q=65)
-  
-
-國家文化和旅遊部對赴美中國遊客發布風險提示。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm)
-
----
-
-# 美股初段造好　納指升近2%
-
-![納斯達克指數較早時報15548點，升280點，升幅1.84%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799658_1_20250409214320.jpg&q=85)
-  
-
-美股初段造好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799658-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799658-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799658-20250409.htm)
-
----
-
-# 歐盟通過對美國進口產品的反制措施
-
-![歐盟27個成員國投票表決通過對美國進口產品的反制措施，可於下周二起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799657_1_20250409214502.jpg&q=70)
-  
-
-歐盟27個成員國投票表決通過對美國進口產品的反制措施，以回應美國上月12日宣布對歐盟的鋼鐵和鋁徵收關稅。有關措施可於下周二起生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm)
-
----
-
-# 國際油價曾急挫7%或以上　創逾4年新低
-
-![國際油價曾急挫7%或以上，創逾4年新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799656_1_20250409205754.jpg&q=90)
-  
-
-中美貿易戰升級，加上早前石油輸出國組織及其盟友（OPEC+）意外增產，國際油價曾急挫7%或以上，創逾4年新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799656-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799656-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799656-20250409.htm)
 
 ---

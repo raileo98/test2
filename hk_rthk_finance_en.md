@@ -1,3 +1,27 @@
+# HK stocks keep rising despite Trump's China escalation
+
+![The Hang Seng Index ended up 2.06 percent at 20,681.78. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799800_1_20250410172543.jpg&q=90)
+  
+
+Stocks rocketed on Thursday as a relief rally spread through markets after Donald Trump paused crippling tariffs on US partners, with Chinese investors even brushing off his decision to ramp up duties on Beijing to 125 percent.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799800-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799800-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799800-20250410.htm)
+
+---
+
 # Postal bank in 10tn yuan backing for private firms
 
 ![Postal Savings Bank is setting aside at least three trillion yuan for technology innovators and over three trillion yuan for the agricultural sector. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799782_1_20250410162210.jpg&q=85)
@@ -1412,29 +1436,5 @@ Four of the mainland's largest state-owned banks said on Sunday they plan to rai
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798177-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798177-20250331.htm)
-
----
-
-# Wall Street tumbles over economy, inflation fears
-
-![All three major indices closed sharply lower, with the Dow tumbling 1.7 percent, the S&P 500 losing 2 percent and Nasdaq diving 2.7 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797974_1_20250329070631.jpg&q=40)
-  
-
-Stock markets plunged Friday as a closely watched US inflation reading heated up amid intensifying concerns over fallout from US President Donald Trump's incoming wave of tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm)
 
 ---

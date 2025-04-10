@@ -1,5 +1,149 @@
+# 有市民稱不再郵寄貨物往美國　改為將貨品帶予當地家人
+
+![在中環一間郵局，有市民表示，如果日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799806_1_20250410173610.jpg&q=70)
+  
+
+美國早前宣布，由5月2日起取消香港寄往美國物品的小額免稅安排。在中環一間郵局，有市民表示，家人都住在美國，平時兩至三個月就需要寄一次日常用品到當地，每次約花費數百至1千元，日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國，改為由家人將貨品帶到美國，估計補給次數將會由平均兩個月一次，改為5至8個月一次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm)
+
+---
+
+# 北京有民眾擔心物價上漲　有民眾則不擔心生活必需品供應
+
+  
+
+中國由中午起，對原產於美國的所有進口商品加徵關稅至84%。在北京，有民眾說擔心物價上漲，例如進口營養補充品、過敏藥等，認為關稅戰影響民生，最終費用都是由民眾承擔。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm)
+
+---
+
+# 貿發局籲本港業界勿自亂陣腳做好產品及服務　升級轉型提高競爭力
+
+  
+
+貿發局副總裁張淑芬表示，美國關稅不只對香港帶來影響，環球出口都直接受影響，業界經營會較辛苦，但呼籲切勿自亂陣腳，需要做好自己產品和服務，積極升級轉型，提高競爭力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm)
+
+---
+
+# 廖李可期稱密切評估加徵關稅情況　多方面支援本地企業
+
+![廖李可期說，新聞從業員可擔當重要角色，提供最新及最準確的資訊。（鍾慧儀攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799795_1_20250410171153.jpg&q=80)
+  
+
+美國上調對中國加徵的關稅至125%，新聞處處長廖李可期表示，對此霸凌行徑，特區政府除了堅決反對之外，亦會密切評估有關情況和發展，並從多方面為本地企業提供支援。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm)
+
+---
+
+# 馮德萊恩：美國暫緩徵收對等關稅是朝穩定全球經濟邁出重要一步
+
+![馮德萊恩表示，歐盟仍致力與美國進行建設性談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799783_2_20250410164947.jpg&q=90)
+![歐盟委員會表示，需要時間評估美國有關關稅措施的最新進展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799783_1_20250410162214.jpg&q=30)
+  
+
+美國總統特朗普宣布，暫緩對中國以外其他國家及地區徵收較高稅率的對等關稅90日，以便談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799783-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799783-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799783-20250410.htm)
+
+---
+
+# 當局推出三項措施支援香港出口貿易　協助企業加快開拓新興市場
+
+![丘應樺表示，美國朝令夕改，連日調高關稅，呼籲業界團結一致，迎難而上。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799789_1_20250410165429.jpg&q=90)
+  
+
+商務及經濟發展局表示，面對美國濫施關稅，包括進一步調高所謂對等關稅，香港出口信用保險局會即時推出3項支援措施，支援香港出口貿易，協助企業加快開拓新興市場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm)
+
+---
+
 # 盧金榮支持國家堅定立場維護自身合法權益
 
+![盧金榮表示，美國總統特朗普再加關稅已經沒有意義。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799786_1_20250410172051.jpg&q=75)
   
 
 廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
@@ -23,6 +167,7 @@
 
 # 李家超籲僑界於國際輿論場全力發聲一同推廣自由貿易
 
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799780_1_20250410170122.jpg&q=75)
   
 
 行政長官李家超表示，最近美國單方面宣布所謂對等關稅，破壞全球共同建立的自由貿易體系規則，大搞單邊主義，滿口歪理霸淩，違背經濟規律，嚴重踐踏及侮辱多邊貿易體系。
@@ -1288,149 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm)
-
----
-
-# 白宮證對華部分貨品徵104%關稅　稱特朗普相信中方盼達成協議
-
-![萊維特強調任何協議的焦點，都在於是否對美國工人有利。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799507_1_20250409033148.jpg&q=90)
-  
-
-美國白宮證實，美國會對中國部分貨品徵收104%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799507-20250409.htm)
-
----
-
-# 央視玉淵譚天文章指美國關稅全球憤怒　中方被迫反制合理合情合法
-
-![文章引述學者指中國受惠於內部經濟穩定及更强的經濟韌性，提前儲備了抗外部衝擊的能力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799504_1_20250409024456.jpg&q=90)
-  
-
-央視旗下新媒體專欄玉淵譚天發表文章指出，美國對華加徵關稅將超過100%，美國關稅已讓全球憤怒，中國人不惹事也不怕事，奉陪到底。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799504-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799504-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799504-20250409.htm)
-
----
-
-# 美貿易代表指近期不實施關稅豁免　白宮稱將對華徵收104%關稅
-
-![格里爾說部分國家已釋出信號，希望找到一條貿易互惠之路。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799502_1_20250409015525.jpg&q=90)
-  
-
-美國貿易代表格里爾表示，對等關稅在星期三生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799502-20250409.htm)
-
----
-
-# 多米尼加夜總會屋頂坍塌增至最少27死　當局加緊救瓦礫下倖存者
-
-![事發時現場有歌手表演，屋頂突然坍塌。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799500_1_20250409021258.jpg&q=55)
-  
-
-多米尼加首都聖多明各一間夜總會屋頂坍塌事故，當地傳媒報道增至最少27人死亡，超過130人送院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799500-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799500-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799500-20250409.htm)
-
----
-
-# 特朗普與韓悳洙通電話　討論安全及關稅等議題
-
-![韓悳洙與美方討論加強韓美同盟關係等議題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799494_1_20250408234536.jpg&q=90)
-  
-
-美國總統特朗普與代理南韓總統職務的總理韓悳洙通電話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799494-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799494-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799494-20250408.htm)
-
----
-
-# 多米尼加夜總會屋頂倒塌　造成27死逾百人傷
-
-![多米尼加有夜總會的屋頂倒塌，救援人員在現場搜救。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799482_1_20250408212328.jpg&q=45)
-  
-
-加勒比海國家多米尼加有夜總會的屋頂倒塌，造成至少27人死亡、過百人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799482-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799482-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799482-20250408.htm)
 
 ---

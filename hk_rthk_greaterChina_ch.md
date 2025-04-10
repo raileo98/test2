@@ -1,5 +1,101 @@
+# 北京有民眾擔心物價上漲　有民眾則不擔心生活必需品供應
+
+  
+
+中國由中午起，對原產於美國的所有進口商品加徵關稅至84%。在北京，有民眾說擔心物價上漲，例如進口營養補充品、過敏藥等，認為關稅戰影響民生，最終費用都是由民眾承擔。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm)
+
+---
+
+# 外交部斥美方大肆利用關稅對全球威脅訛詐
+
+![林劍說，美方大肆利用關稅對全球威脅訛詐，是在試圖扼住各國的喉嚨，逼使各國在美方的霸凌面前做出妥協退讓。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799798_1_20250410171631.jpg&q=90)
+  
+
+在北京，外交部發言人林劍回應美國財長貝森特指，西班牙和中國走得更近，無異於割自己喉嚨的言論時表示，美方大肆利用關稅對全球威脅訛詐，才是在試圖扼住各國的喉嚨，逼使各國在美方的霸凌面前做出妥協退讓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm)
+
+---
+
+# 中方發布赴美風險提示　外交部：將繼續採取堅決有力措施
+
+![林劍表示，中方將繼續採取堅決有力措施，堅決維護自身的正當合法權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799796_1_20250410171411.jpg&q=90)
+  
+
+國家文化和旅遊部昨天對赴美中國遊客發布風險提示，提醒中國遊客充分評估赴美旅遊風險，謹慎前往。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm)
+
+---
+
+# 美國對中國船隻徵港口停泊費　外交部：無法振興美國造船業
+
+![林劍說，美方單邊主義、保護主義的霸道做法不得人心，對世界各國的利益造成損害。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799794_1_20250410171102.jpg&q=90)
+  
+
+在北京，外交部發言人林劍表示，美方單邊主義、保護主義的霸道做法不得人心，只會推高全球的海運成本，擾亂全球的產供鏈穩定，對世界各國的利益造成損害，最終也無法振興美國的造船業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm)
+
+---
+
 # 盧金榮支持國家堅定立場維護自身合法權益
 
+![盧金榮表示，美國總統特朗普再加關稅已經沒有意義。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799786_1_20250410172051.jpg&q=75)
   
 
 廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
@@ -23,6 +119,7 @@
 
 # 李家超籲僑界於國際輿論場全力發聲一同推廣自由貿易
 
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799780_1_20250410170122.jpg&q=75)
   
 
 行政長官李家超表示，最近美國單方面宣布所謂對等關稅，破壞全球共同建立的自由貿易體系規則，大搞單邊主義，滿口歪理霸淩，違背經濟規律，嚴重踐踏及侮辱多邊貿易體系。
@@ -118,7 +215,7 @@
 
 # 商務部：面對美國霸凌關稅　中方將堅定不移推進高水平對外開放
 
-![商務部發言人何咏前下午召開新聞發布會。（中國網直播截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799769_1_20250410151926.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799769_1_20250410151926.jpg&q=90)
   
 
 在北京，商務部再次強烈譴責和堅決反對美國以各種藉口濫施關稅，強調作為全球第二大經濟體和第二大商品消費市場，面對美國霸凌關稅，中方將堅定不移推進高水平對外開放，堅定不移走好自己的路，以自身的穩定發展為全球經濟注入更多確定性。中國外貿有信心、有底氣應對各種風險挑戰。
@@ -1338,100 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799435-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799435-20250408.htm)
-
----
-
-# 外交部：倘美方執意打關稅戰貿易戰　中方必將奉陪到底
-
-![外交部說，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799450_1_20250408171401.jpg&q=55)
-  
-
-美國總統特朗普威脅升級對華關稅，警告若中方不撤回對美國加徵反制關稅的決定，美國會再向中國徵收五成關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799450-20250408.htm)
-
----
-
-# 外交部：中方繼續與有關各方溝通協調　推動解決伊朗核問題
-
-![林劍表示，中方將繼續與有關各方溝通協調，推動達成兼顧各方合理關切的伊朗核問題解決方案。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799442_1_20250408164818.jpg&q=90)
-  
-
-中國、伊朗及俄羅斯昨天起一連兩日，在莫斯科舉行三方磋商，討論伊朗核問題。在北京，外交部發言人林劍表示，中方堅信通過政治外交途徑解決伊朗核問題是唯一正確的選擇，支持俄方主辦今次磋商。中方將繼續與有關各方溝通協調，推動達成兼顧各方合理關切的伊朗核問題解決方案，以維護國際核不擴散體系，維護中東地區的和平穩定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm)
-
----
-
-# 葉劉淑儀：中國已預備好應對美國關稅措施　長遠將成為贏家
-
-![葉劉淑儀表示，長遠而言，中國在貿易、技術和道德層面都會是贏家。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799429_1_20250408153932.jpg&q=90)
-  
-
-美國對包括中國在內的全球大部分國家和地區徵收對等關稅，行政會議召集人、新民黨主席葉劉淑儀表示，中國已準備好如何應對，美國總統特朗普將自由貿易和多邊體系的領導者角色讓給中國，長遠而言，中國在貿易、技術和道德層面都會是贏家。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm)
-
----
-
-# 發改委召開座談會　聽取5間民企應對美方加徵關稅建議
-
-  
-
-在北京，國家發改委召開座談會，邀請滴滴出行、天合光能、中基寧波等5間民營企業參與，聽取應對美方加徵關稅的舉措及建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm)
 
 ---
