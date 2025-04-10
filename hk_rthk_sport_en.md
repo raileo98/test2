@@ -24,7 +24,7 @@ Hong Kong, China Sanda martial artist Leung Yu-hong triumphed at the 10th Sanda 
 
 # Premier League claims fifth Champions League spot
 
-![Arsenal's shock 3-0 win over 15-time European champions Real Madrid in the first leg of their quarter-final included two stunning free kicks from Declan Rice. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799668_1_20250410001250.jpg&q=80)
+![Arsenal's shock 3-0 win over 15-time European champions Real Madrid in the first leg of their quarter-final included two stunning free kicks from Declan Rice. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799668_1_20250410001250.jpg&q=60)
   
 
 Arsenal's 3-0 win over Real Madrid means at least five Premier League teams will play in next season's Champions League, the English top flight confirmed on Wednesday.
@@ -48,7 +48,7 @@ Arsenal's 3-0 win over Real Madrid means at least five Premier League teams will
 
 # Shai holds court as Lakers sink after Doncic ejection
 
-![Oklahoma City Thunder guards shut down Pau Gasol of the Los Angeles Lakers in the midst of a shot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799573_1_20250409122147.jpg&q=90)
+![Oklahoma City Thunder guards shut down Pau Gasol of the Los Angeles Lakers in the midst of a shot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799573_1_20250409122147.jpg&q=85)
   
 
 Shai Gilgeous-Alexander scored 42 points as the Oklahoma City Thunder bounced back to defeat the Los Angeles Lakers 136-120 in a hard-fought battle that saw Luka Doncic controversially ejected in the fourth quarter.
@@ -72,7 +72,7 @@ Shai Gilgeous-Alexander scored 42 points as the Oklahoma City Thunder bounced ba
 
 # Zverev suffers shock exit at Monte-Carlo Masters
 
-![Alexander Zverev crashed out in his opening match against Italy's Matteo Berrettini. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799545_1_20250409100453.jpg&q=90)
+![Alexander Zverev crashed out in his opening match against Italy's Matteo Berrettini. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799545_1_20250409100453.jpg&q=85)
   
 
 Top seed Alexander Zverev crashed out in his opening match of the Monte-Carlo Masters with Italy's Matteo Berrettini as defending champion Stefanos Tsitsipas and Britain's Jack Draper both advanced.
@@ -96,7 +96,7 @@ Top seed Alexander Zverev crashed out in his opening match of the Monte-Carlo Ma
 
 # Late Frattesi strike gives Inter edge over Bayern
 
-![Inter Milan seized control with a dramatic 2-1 victory over Bayern Munich. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799544_1_20250409095949.jpg&q=85)
+![Inter Milan seized control with a dramatic 2-1 victory over Bayern Munich. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799544_1_20250409095949.jpg&q=75)
   
 
 An 88th-minute Davide Frattesi goal took Inter Milan to a 2-1 win at Bayern Munich, giving the Italians the edge after the first leg of their Champions League quarter-final.
@@ -120,7 +120,7 @@ An 88th-minute Davide Frattesi goal took Inter Milan to a 2-1 win at Bayern Muni
 
 # Arsenal stun Real Madrid with Rice's free-kick magic
 
-![Arsenal delivered a dominant 3-nil victory against reigning titleholders Real Madrid. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799541_1_20250409095732.jpg&q=85)
+![Arsenal delivered a dominant 3-nil victory against reigning titleholders Real Madrid. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799541_1_20250409095732.jpg&q=80)
   
 
 Mikel Arteta admitted Arsenal defied the odds with their stunning 3-0 win against Real Madrid as Declan Rice's free-kick magic left the Champions League holders in disarray.
@@ -144,7 +144,7 @@ Mikel Arteta admitted Arsenal defied the odds with their stunning 3-0 win agains
 
 # Grand National winning jockey Mullins suspended
 
-![Disciplinary officials found Patrick Mullins had used his whip one above the permitted level of seven from the final fence. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799506_1_20250409031635.jpg&q=85)
+![Disciplinary officials found Patrick Mullins had used his whip one above the permitted level of seven from the final fence. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799506_1_20250409031635.jpg&q=75)
   
 
 Patrick Mullins has been given an eight-day suspension after he was found to have breached whip rules when riding Nick Rockett to Grand National glory on Saturday.
@@ -240,7 +240,7 @@ English Premier League giants Manchester United on Tuesday announced that they'l
 
 # Florida wins 3rd NCAA title, denies Houston its 1st
 
-![The Florida Gators react after defeating the Houston Cougars in the national championship game of the Final Four of the 2025 NCAA Tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799390_1_20250408115243.jpg&q=80)
+![The Florida Gators react after defeating the Houston Cougars in the national championship game of the Final Four of the 2025 NCAA Tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799390_1_20250408115243.jpg&q=55)
   
 
 Florida and Walter Clayton somehow overcame Houston’s tough defence on Monday night to carve out a 65-63 victory in an NCAA title-game thriller which was not decided until Clayton’s own D stopped the Cougars from taking a game-winning shot at the buzzer.
@@ -288,7 +288,7 @@ Daniil Medvedev navigated his way into the second round of the Monte Carlo Maste
 
 # Newcastle boost Champions League chase
 
-![Newcastle defeated Leicester 3-0 at King Power Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799342_1_20250408082838.jpg&q=90)
+![Newcastle defeated Leicester 3-0 at King Power Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799342_1_20250408082838.jpg&q=85)
   
 
 Newcastle coasted to a 3-0 win over sorry Leicester on Monday to step up their Champions League charge and condemn the Foxes to an eighth straight Premier League defeat without scoring.
@@ -432,7 +432,7 @@ Alex Ovechkin scored his 895th NHL career goal, etching his name into ice hockey
 
 # Man City held by Man Utd in derby stalemate
 
-![Manchester City's hopes of Champions League qualification remain in the balance after a dismal derby at Manchester United ended in a 0-0 stalemate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799169_1_20250407081504.jpg&q=85)
+![Manchester City's hopes of Champions League qualification remain in the balance after a dismal derby at Manchester United ended in a 0-0 stalemate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799169_1_20250407081504.jpg&q=75)
   
 
 Manchester United boss Ruben Amorim said his side must improve "everywhere" after a dismal derby against Manchester City ended 0-0 on Sunday.
@@ -456,7 +456,7 @@ Manchester United boss Ruben Amorim said his side must improve "everywhere" afte
 
 # Doncic soars as Lakers silence Thunder
 
-![Luka Doncic shoots between Oklahoma City Thunder guards Alex Caruso and Cason Wallace during the second half at Paycom Center. Alonzo Adams-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799203_1_20250407110657.jpg&q=90)
+![Luka Doncic shoots between Oklahoma City Thunder guards Alex Caruso and Cason Wallace during the second half at Paycom Center. Alonzo Adams-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799203_1_20250407110657.jpg&q=80)
   
 
 Luka Doncic scored 30 points as the Los Angeles Lakers produced a devastating display of long-range shooting to score a surprising 126-99 blowout over the No1 ranked Oklahoma City Thunder.
@@ -480,7 +480,7 @@ Luka Doncic scored 30 points as the Los Angeles Lakers produced a devastating di
 
 # Foreigners run in Pyongyang Marathon, first in 6 years
 
-![Participants take part in the 31st Pyongyang International Marathon in Pyongyang. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799137_1_20250406204551.jpg&q=85)
+![Participants take part in the 31st Pyongyang International Marathon in Pyongyang. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799137_1_20250406204551.jpg&q=75)
   
 
 North Korea said on Sunday that foreign elite runners arrived to take part in the first Pyongyang Marathon in six years.
@@ -504,7 +504,7 @@ North Korea said on Sunday that foreign elite runners arrived to take part in th
 
 # Red Bull's Verstappen wins Japanese GP from Norris
 
-![Max Verstappen celebrates the win on the podium at Suzuka, Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799114_1_20250406151250.jpg&q=90)
+![Max Verstappen celebrates the win on the podium at Suzuka, Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799114_1_20250406151250.jpg&q=85)
   
 
 Four-time world champion Max Verstappen led from pole to chequered flag to win the Japanese Grand Prix on Sunday, his first victory of the 2025 season, with McLaren's Lando Norris second.
@@ -528,7 +528,7 @@ Four-time world champion Max Verstappen led from pole to chequered flag to win t
 
 # Romantic Warrior finishes second in top Dubai race
 
-![Romantic Warrior (no.8) came agonisingly close to winning the Dubai Turf. Photo courtesy of the Hong Kong Jockey Club.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799101_1_20250406120651.jpg&q=90)
+![Romantic Warrior (no.8) came agonisingly close to winning the Dubai Turf. Photo courtesy of the Hong Kong Jockey Club.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799101_1_20250406120651.jpg&q=80)
   
 
 Hong Kong racing royalty Romantic Warrior came up just short at the Dubai Turf, as trainer Danny Shum's champion was edged by the slimmest of margins by Soul Rush from Japan in the early hours of Sunday.
@@ -552,7 +552,7 @@ Hong Kong racing royalty Romantic Warrior came up just short at the Dubai Turf, 
 
 # Nick Rockett, at 33-1, wins the Grand National
 
-![Jockey Patrick Mullins reacts as he passes the finish line. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799082_1_20250406074831.jpg&q=90)
+![Jockey Patrick Mullins reacts as he passes the finish line. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799082_1_20250406074831.jpg&q=85)
   
 
 Nick Rockett, a 33-1 shot ridden by Patrick Mullins, won the Grand National steeplechase at Aintree on Saturday (April 5) in a top three sweep for horses trained by the Irish amateur jockey's father Willie.
@@ -624,7 +624,7 @@ Thomas Müller will leave Bayern Munich this summer after a 25-year career at th
 
 # Verstappen snatches 'insane' pole for Japan GP
 
-![Red Bull's Max Verstappen celebrates smashing the track record at Suzuka. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799043_1_20250405162226.jpg&q=90)
+![Red Bull's Max Verstappen celebrates smashing the track record at Suzuka. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799043_1_20250405162226.jpg&q=80)
   
 
 Four-time world champion Max Verstappen smashed the track record to snatch pole position for Sunday's Japanese Grand Prix ahead of McLaren's Lando Norris, as Yuki Tsunoda qualified a lowly 15th on his Red Bull debut.
@@ -648,7 +648,7 @@ Four-time world champion Max Verstappen smashed the track record to snatch pole 
 
 # Alex Ovechkin matches Gretzky's NHL record
 
-![Ovechkin tied Gretzky's monumental mark with a power-play goal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799014_1_20250405103308.jpg&q=90)
+![Ovechkin tied Gretzky's monumental mark with a power-play goal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799014_1_20250405103308.jpg&q=85)
   
 
 Alex Ovechkin scored twice to tie Wayne Gretzky's record of 894 NHL career goals on Friday, matching a mark that once seemed unassailable.
@@ -672,7 +672,7 @@ Alex Ovechkin scored twice to tie Wayne Gretzky's record of 894 NHL career goals
 
 # Van der Poel and Pogacar face off in Tour of Flanders
 
-![There are five ultra-long one-day bike races known as the Monuments, and the Tour of Flanders is considered the greatest. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799008_1_20250405095319.jpg&q=90)
+![There are five ultra-long one-day bike races known as the Monuments, and the Tour of Flanders is considered the greatest. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799008_1_20250405095319.jpg&q=80)
   
 
 Come rain or shine 750,000 fans are expected to turn out on Sunday for cycling's most revered one-day race, the Tour of Flanders, for a Tadej Pogacar and Mathieu van der Poel showdown.
@@ -720,7 +720,7 @@ Manchester City midfielder Kevin De Bruyne confirmed on Friday that he will leav
 
 # HK International Track Cup to attract 150 cyclists
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798942_1_20250404160739.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798942_1_20250404160739.jpg&q=75)
   
 
 One of the National Games test events – the Hong Kong International Track Cup – will be held from April 19 to 21, attracting professional cyclists from around the world.
@@ -768,7 +768,7 @@ Chelsea climbed to fourth place in the Premier League as Enzo Fernandez sealed a
 
 # USA to host 2031 Women's World Cup, UK in 2035
 
-![Spain are the current Fifa Women's World Cup champions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798854_1_20250403205634.jpg&q=80)
+![Spain are the current Fifa Women's World Cup champions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798854_1_20250403205634.jpg&q=60)
   
 
 The United States is the sole bidder for the 2031 Women's World Cup, and the United Kingdom is set to host the 2035 tournament, Fifa president Gianni Infantino announced on Thursday.
@@ -816,7 +816,7 @@ Tennis world number one Jannik Sinner's former physical trainer Umberto Ferrara 
 
 # SAR women's cycling team wins Tour of Thailand
 
-![The Hong Kong, China, team finished in an overall time of 19 hours, 43 minutes and 37 seconds. Photo courtesy of The Princess Maha Chakri Sirindhorn's Cup Tour of Thailand](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798818_1_20250403171524.jpg&q=80)
+![The Hong Kong, China, team finished in an overall time of 19 hours, 43 minutes and 37 seconds. Photo courtesy of The Princess Maha Chakri Sirindhorn's Cup Tour of Thailand](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798818_1_20250403171524.jpg&q=70)
   
 
 The Hong Kong, China, women's cycling team rode their way to victory at the three-day women's Tour of Thailand, while rising star Ceci Lee claimed second place in the individual general classification.
@@ -840,7 +840,7 @@ The Hong Kong, China, women's cycling team rode their way to victory at the thre
 
 # Heat sink Celtics for sixth straight win; Cavs roll on
 
-![Tyler Herro led the Heat with 25 points, as six other Miami players finished in double figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798766_1_20250403113553.jpg&q=90)
+![Tyler Herro led the Heat with 25 points, as six other Miami players finished in double figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798766_1_20250403113553.jpg&q=85)
 ![Donovan Mitchell's 27 points led the Cavs to their 61st win on the season. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798766_2_20250403113553.jpg&q=90)
   
 
@@ -914,7 +914,7 @@ Stuttgart set up a German Cup final clash with third-division Arminia Bielefeld 
 # Liverpool beat Everton as title looms; City cruise
 
 ![Diogo Jota scored the only goal of the match in Liverpool's win over Everton. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_1_20250403053524.jpg&q=90)
-![Jack Grealish scored his first league goal since December 2023 in the victory for City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_2_20250403053524.jpg&q=85)
+![Jack Grealish scored his first league goal since December 2023 in the victory for City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_2_20250403053524.jpg&q=80)
   
 
 Liverpool moved closer to the Premier League title with a 1-0 win in the Merseyside derby against Everton, while Manchester City beat Leicester 2-0 to bolster their bid to reach the Champions League.
@@ -938,8 +938,8 @@ Liverpool moved closer to the Premier League title with a 1-0 win in the Merseys
 
 # Curry drops 52 points in Warriors win over Grizzlies
 
-![Steph Curry drained 12 three-pointers in the Warriors' victory over Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798584_1_20250402114710.jpg&q=90)
-![Giannis Antetokounmpo's 37 points helped end a four-game losing skid for the Bucks. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798584_2_20250402114710.jpg&q=90)
+![Steph Curry drained 12 three-pointers in the Warriors' victory over Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798584_1_20250402114710.jpg&q=85)
+![Giannis Antetokounmpo's 37 points helped end a four-game losing skid for the Bucks. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798584_2_20250402114710.jpg&q=85)
   
 
 Stephen Curry scored 52 points and Draymond Green added a triple-double as the Golden State Warriors clinched a crucial 134-125 victory over the Memphis Grizzlies.
@@ -963,7 +963,7 @@ Stephen Curry scored 52 points and Draymond Green added a triple-double as the G
 
 # Bielefeld shock holders Leverkusen in German Cup
 
-![Bielefeld players celebrate winning their German Cup semi-final match against Bayern Leverkusen. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798544_1_20250402073801.jpg&q=90)
+![Bielefeld players celebrate winning their German Cup semi-final match against Bayern Leverkusen. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798544_1_20250402073801.jpg&q=85)
   
 
 German Cup holders Bayer Leverkusen suffered a shock 2-1 elimination at Arminia Bielefeld in the semi-finals of the competition.
@@ -987,7 +987,7 @@ German Cup holders Bayer Leverkusen suffered a shock 2-1 elimination at Arminia 
 
 # Real Madrid hold Real Sociedad in eight-goal thriller
 
-![Antonio Rudiger, right, was among the scorers for Real Madrid. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798540_2_20250402062922.jpg&q=90)
+![Antonio Rudiger, right, was among the scorers for Real Madrid. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798540_2_20250402062922.jpg&q=85)
   
 
 Real Madrid edged into the Copa del Rey final with a thrilling 4-4 draw against Real Sociedad after extra-time, securing a 5-4 aggregate semi-final victory.
@@ -1012,7 +1012,7 @@ Real Madrid edged into the Copa del Rey final with a thrilling 4-4 draw against 
 # Forest beat Man Utd; Saka scores on Arsenal return
 
 ![Nottingham Forest's Anthony Elanga scored the only goal of the match against United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798535_1_20250402054006.jpg&q=90)
-![Bukayo Saka scored in his first appearance with Arsenal since December. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798535_2_20250402054006.jpg&q=90)
+![Bukayo Saka scored in his first appearance with Arsenal since December. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798535_2_20250402054006.jpg&q=85)
   
 
 Nottingham Forest beat Manchester United 1-0 to close in on Champions League football next season as Bukayo Saka scored in Arsenal's 2-1 win over Fulham on his return from injury.
@@ -1060,8 +1060,8 @@ Hong Kong, China snooker star Ng On-yee said a decision by the government last w
 
 # Celtics, Thunder keep NBA winning streaks alive
 
-![Al Horford led the way for Boston with 26 points against Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798427_1_20250401125147.jpg&q=90)
-![Isaiah Joe came up big off the bench in the Thunder's win over the Bulls. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798427_2_20250401125400.jpg&q=90)
+![Al Horford led the way for Boston with 26 points against Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798427_1_20250401125147.jpg&q=85)
+![Isaiah Joe came up big off the bench in the Thunder's win over the Bulls. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798427_2_20250401125400.jpg&q=85)
   
 
 Veteran Al Horford turned back the clock to help the NBA champion Boston Celtics notch a ninth straight victory and nab a franchise first with a 117-103 win over the Grizzlies in Memphis.
@@ -1085,7 +1085,7 @@ Veteran Al Horford turned back the clock to help the NBA champion Boston Celtics
 
 # HK snooker star Ng defends British Open crown
 
-![The victory solidified Ng's hold on second position in the world rankings. Photo courtesy of World Snooker Tour](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798376_1_20250401085554.jpg&q=90)
+![The victory solidified Ng's hold on second position in the world rankings. Photo courtesy of World Snooker Tour](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798376_1_20250401085554.jpg&q=85)
   
 
 Hong Kong, China snooker player Ng On-yee on Monday defeated World No. 1 Mink Nutcharut of Thailand to defend her title at the British Open in Walsall, England.
@@ -1109,7 +1109,7 @@ Hong Kong, China snooker player Ng On-yee on Monday defeated World No. 1 Mink Nu
 
 # Braves' Profar suspended 80 games for doping violation
 
-![Profar agreed to a three-year deal with the Atlanta Braves in January. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798372_1_20250401083652.jpg&q=90)
+![Profar agreed to a three-year deal with the Atlanta Braves in January. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798372_1_20250401083652.jpg&q=85)
   
 
 Major League Baseball has suspended Atlanta Braves slugger Jurickson Profar for 80 games after he tested positive for the performance-enhancing chorionic gonadotropin (hCG), MLB announced.
@@ -1157,7 +1157,7 @@ Manchester City were dealt a major blow with leading scorer Erling Haaland set f
 
 # Cycling to adopt 23-team format for Grand Tours
 
-![The initiative for the Grand Tours has been rubber-stamped by the International Cycling Union, the sport's governing body. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798362_1_20250401071622.jpg&q=75)
+![The initiative for the Grand Tours has been rubber-stamped by the International Cycling Union, the sport's governing body. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798362_1_20250401071622.jpg&q=45)
   
 
 The Giro d'Italia, Tour de France and Vuelta a Espana will all involve 23 teams from this year, with the initiative rubber-stamped by the International Cycling Union.
@@ -1181,7 +1181,7 @@ The Giro d'Italia, Tour de France and Vuelta a Espana will all involve 23 teams 
 
 # McIlroy smashes into PGA Tour's US$100 million club
 
-![McIlroy in action in the first round of the Houston Open golf tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798360_1_20250401063902.jpg&q=90)
+![McIlroy in action in the first round of the Houston Open golf tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798360_1_20250401063902.jpg&q=85)
   
 
 Rory McIlroy has joined Tiger Woods in surpassing US$100 million in career earnings on the PGA Tour, becoming just the second player to do so.
@@ -1205,7 +1205,7 @@ Rory McIlroy has joined Tiger Woods in surpassing US$100 million in career earni
 
 # HK set to see Reds, Arsenal, Spurs and Milan in action
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798296_1_20250331174722.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798296_1_20250331174722.jpg&q=70)
   
 
 Four of the world’s top football teams will be coming to Hong Kong this summer for pre-season friendlies as they gear up for the 2025-26 season, organisers said on Monday.
@@ -1254,7 +1254,7 @@ Novak Djokovic faced a series of obstacles in the Miami Open final: a delay of m
 
 # Seven kicked out of NBA game after court 'brawl'
 
-![Pistons forward Ronald Holland drives towards the basket as Timberwolves center Naz Reid defends during the second quarter at Target Center in Minnesota. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798214_1_20250331103953.jpg&q=90)
+![Pistons forward Ronald Holland drives towards the basket as Timberwolves center Naz Reid defends during the second quarter at Target Center in Minnesota. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798214_1_20250331103953.jpg&q=85)
   
 
 Seven players and members of coaching staff were ejected after a wild brawl broke out during the Minnesota Timberwolves' 123-104 victory over the Detroit Pistons in the NBA.
@@ -1278,7 +1278,7 @@ Seven players and members of coaching staff were ejected after a wild brawl brok
 
 # Rashford lifts Villa into FA Cup semis; Man City roll
 
-![Marcus Rashford bagged a brace for Aston Villa in the win. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798189_1_20250331085621.jpg&q=90)
+![Marcus Rashford bagged a brace for Aston Villa in the win. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798189_1_20250331085621.jpg&q=80)
 ![Manchester City's Erling Haaland was substituted with an ankle injury in the 60th minute against Bournemouth. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798189_2_20250331085621.jpg&q=90)
   
 
@@ -1375,7 +1375,7 @@ Robert Lewandowski bagged a brace as Barcelona eased to a 4-1 victory over Giron
 
 # Argentina in seventh heaven over maiden HK title
 
-![New Zealand performed the haka following the victory over Australia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798137_2_20250330193653.jpg&q=85)
+![New Zealand performed the haka following the victory over Australia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798137_2_20250330193653.jpg&q=75)
   
 
 Argentina on Sunday captured the Hong Kong Rugby Sevens for the first time, defeating France in a hard-fought men's final at the Kai Tak Stadium.
@@ -1399,7 +1399,7 @@ Argentina on Sunday captured the Hong Kong Rugby Sevens for the first time, defe
 
 # 'Bigger house, bigger party' in new Kai Tak experience
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798130_2_20250330181531.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798130_2_20250330181531.jpg&q=85)
   
 
 The head of the Hong Kong, China Rugby Association, James Farndon, on Sunday hailed the first-ever Sevens at the Kai Tak Stadium, calling the event a massive success for the SAR.
@@ -1423,7 +1423,7 @@ The head of the Hong Kong, China Rugby Association, James Farndon, on Sunday hai
 
 # Hong Kong, China sweep Melrose Claymores
 
-![It's the second straight year that the Hong Kong, China men's team has won the Melrose Claymore. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798126_2_20250330171036.jpg&q=75)
+![It's the second straight year that the Hong Kong, China men's team has won the Melrose Claymore. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798126_2_20250330171036.jpg&q=45)
   
 
 Both the SAR men's and women's teams won an invitational in style at the first Hong Kong Sevens at Kai Tak Stadium on Sunday.

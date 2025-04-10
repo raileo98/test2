@@ -1,6 +1,30 @@
+# 共同民主黨前黨魁李在明宣布參加新一屆南韓總統選舉
+
+![李在明目前在不同機構的民調中領先。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799718_1_20250410102415.jpg&q=80)
+  
+
+南韓最大在野黨共同民主黨前黨魁李在明宣布，參加新一屆總統選舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799718-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799718-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799718-20250410.htm)
+
+---
+
 # 洛杉磯奧運將新增22個小項　將增設乒乓混合團體賽
 
-![國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799712_1_20250410093619.jpg&q=85)
+![國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799712_1_20250410093619.jpg&q=75)
   
 
 國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額，共設351個小項，較巴黎奧運會的329個小項增加22項，其中乒乓混合團體賽將作為新增小項登上洛杉磯奧運會舞台。
@@ -24,7 +48,7 @@
 
 # 《環看天下》：應對美國關稅威脅　分析：或促使中歐經貿回暖
 
-![今年前兩個月中歐班列累計到發176列，同比增長22.9%。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799707_1_20250410092107.jpg&q=90)
+![今年前兩個月中歐班列累計到發176列，同比增長22.9%。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799707_1_20250410092107.jpg&q=80)
   
 
 今年是中歐建交50周年，國務院總理李強日前同歐盟委員會主席馮德萊恩通電話。李強表示，中歐關係呈現穩中向好勢頭，中方願同歐方攜手努力，增進政治互信，拓展務實合作，並分享發展機遇。
@@ -48,7 +72,7 @@
 
 # 工總稱進出口商已無生意做　學者料美方欲與中方脫勾斷鏈
 
-![莊子雄說，進出口商都處於觀望態度；麥萃才認為，商界應該專注發展其他市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799704_1_20250410093313.jpg&q=80)
+![莊子雄說，進出口商都處於觀望態度；麥萃才認為，商界應該專注發展其他市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799704_1_20250410093313.jpg&q=65)
   
 
 美國總統特朗普宣布，即時上調對中國加徵的關稅至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。香港工業總會主席莊子雄表示，在貿易戰下，無論美方加徵多少關稅，數字上已經無影響，因為大家已經無可能再做生意，他形容美方非常不理性，進出口商都處於觀望態度。
@@ -72,7 +96,7 @@
 
 # 澤連斯基：烏克蘭「技術團隊」將於華盛頓與美方就礦產協議磋商
 
-![澤連斯基表示，烏克蘭的「技術團隊」將會在華盛頓與美方就礦產協議展開磋商。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799699_1_20250410100354.jpg&q=90)
+![澤連斯基表示，烏克蘭的「技術團隊」將會在華盛頓與美方就礦產協議展開磋商。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799699_1_20250410100354.jpg&q=85)
   
 
 烏克蘭媒體報道，總統澤連斯基表示，烏克蘭的「技術團隊」將會在美國首都華盛頓與美方就礦產協議展開磋商。
@@ -96,7 +120,7 @@
 
 # 商務部：李強剛與馮德萊恩通電話　中方願與歐方深化合作
 
-![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=75)
+![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=40)
   
 
 商務部部長王文濤表示，國務院總理李強剛剛與歐盟委員會主席馮德萊恩通電話，向外界傳遞積極資訊。表示中方願與歐方相向而行，共同落實好中歐領導人達成的重要共識，加強溝通交流，深化中歐貿易、投資和產業合作。
@@ -192,7 +216,7 @@
 
 # 英王查理斯三世與王后卡米拉到梵蒂岡與教宗會晤
 
-![查理斯三世與卡米拉到訪意大利。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799678_1_20250410034010.jpg&q=90)
+![查理斯三世與卡米拉到訪意大利。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799678_1_20250410034010.jpg&q=85)
   
 
 出訪意大利的英王查理斯三世與王后卡米拉突然前往梵蒂岡，與教宗方濟各會面。
@@ -264,7 +288,7 @@
 
 # 中方從中午起對美加徵84%關稅　文化和旅遊部對赴美遊客發提示
 
-![商務部表示，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799673_1_20250410012424.jpg&q=75)
+![商務部表示，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799673_1_20250410012424.jpg&q=40)
   
 
 中方進一步反制美國向中國產品徵收104%的關稅措施，今日中午起對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。
@@ -288,7 +312,7 @@
 
 # 中方稱美國對等關稅開錯方、吃錯藥　無助解決貿易不平衡問題
 
-![世界貿易組織召開貨物貿易理事會年度首次會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799672_1_20250410004211.jpg&q=85)
+![世界貿易組織召開貨物貿易理事會年度首次會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799672_1_20250410004211.jpg&q=80)
   
 
 世界貿易組織召開貨物貿易理事會年度首次會議，中方嚴重關切美國對等關稅措施及其惡劣影響，要求美方切實遵守世貿規則，避免對全球經濟和多邊貿易體制造成負面衝擊。
@@ -360,7 +384,7 @@
 
 # 國家文化和旅遊部提示中國遊客充分評估赴美旅遊風險　籲謹慎前往
 
-![國家文化和旅遊部對赴美中國遊客發布風險提示。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799660_1_20250409224238.jpg&q=75)
+![國家文化和旅遊部對赴美中國遊客發布風險提示。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799660_1_20250409224238.jpg&q=45)
   
 
 國家文化和旅遊部對赴美中國遊客發布風險提示。
@@ -384,7 +408,7 @@
 
 # 歐盟通過對美國進口產品的反制措施
 
-![歐盟27個成員國投票表決通過對美國進口產品的反制措施，可於下周二起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799657_1_20250409214502.jpg&q=85)
+![歐盟27個成員國投票表決通過對美國進口產品的反制措施，可於下周二起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799657_1_20250409214502.jpg&q=75)
   
 
 歐盟27個成員國投票表決通過對美國進口產品的反制措施，以回應美國上月12日宣布對歐盟的鋼鐵和鋁徵收關稅。有關措施可於下周二起生效。
@@ -527,7 +551,7 @@
 
 # 劉兆佳稱白皮書較中性沒有肆意批評美國　冀美方了解互利共贏本質
 
-![劉兆佳相信，中美貿易戰仍會持續一段時間，可能出現惡性循環。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799630_1_20250409175613.jpg&q=80)
+![劉兆佳相信，中美貿易戰仍會持續一段時間，可能出現惡性循環。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799630_1_20250409175613.jpg&q=90)
   
 
 國新辦發表《關於中美經貿關係若干問題的中方立場》白皮書，重申貿易戰沒有贏家，希望中美雙方通過平等對話磋商解決問題。全國港澳研究會顧問劉兆佳認為，中方希望通過白皮書，用數據及說理方式闡述中國立場，說明中美貿易實際上是相對比較平衡，表明中方無意打貿易戰，美國亦沒有理由對中國展開關稅戰，嚴重損害雙方經濟貿易，以至整體關係。
@@ -551,7 +575,7 @@
 
 # 多米尼加夜總會屋頂倒塌　最少98人死亡
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799619_1_20250409183356.jpg&q=70)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799619_1_20250409183356.jpg&q=35)
   
 
 多米尼加首都聖多明各一間夜總會屋頂倒塌，最少98人死亡，過百人受傷，死者包括當地一名省長以及美國職棒大聯盟的退役球星。
@@ -575,7 +599,7 @@
 
 # 中國救援隊包括香港隊員抵達北京　國家應急部在機場迎接
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799612_1_20250409164353.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799612_1_20250409164353.jpg&q=80)
   
 
 到緬甸參與地震救援行動的中國救援隊、中國國際救援隊和中國香港特區救援隊完成任務回國，他們乘坐的4架中國空軍飛機，下午約4時，抵達北京首都國際機場，國家應急部在機場舉行迎接儀式。
@@ -599,7 +623,7 @@
 
 # 物流業形容美國加徵關稅帶來毀滅性影響　可趁機開發不同地區市場
 
-![劉浩然表示，業界相信，未來數個月，公司營運上不容樂觀，但不會坐以待斃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799611_1_20250409163218.jpg&q=80)
+![劉浩然表示，業界相信，未來數個月，公司營運上不容樂觀，但不會坐以待斃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799611_1_20250409163218.jpg&q=70)
   
 
 美國對來自中國內地和香港的小額包裹關稅將增至90%，下月2日生效。香港貨運物流業協會主席劉浩然說，今次美國的做法，對所有電商平台出貨，可說是帶來毀滅性影響，涉及所有供應鏈及產品，小至手機殻，大至大型家電，甚至食品及其他民生日用品都會受影響。他說，業界相信，未來數個月，公司營運上不容樂觀，但不會坐以待斃。
@@ -647,7 +671,7 @@
 
 # 美俄代表團將在伊斯坦布爾再會談
 
-![俄方代表團2月底曾在美國駐伊斯坦布爾領事官邸與美方進行會談。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799569_1_20250409124812.jpg&q=80)
+![俄方代表團2月底曾在美國駐伊斯坦布爾領事官邸與美方進行會談。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799569_1_20250409124812.jpg&q=60)
   
 
 美俄代表團將在土耳其伊斯坦布爾就雙邊關係舉行第二輪會談。
@@ -671,7 +695,7 @@
 
 # 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
 
-![發言人指美國個別政客公然詆毁抹黑香港經貿辦，不僅干擾破壞港美正常交流合作，更暴露出其看不得香港安、見不得香港好的險惡用心。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799587_1_20250409154956.jpg&q=85)
+![發言人指美國個別政客公然詆毁抹黑香港經貿辦，不僅干擾破壞港美正常交流合作，更暴露出其看不得香港安、見不得香港好的險惡用心。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799587_1_20250409154956.jpg&q=75)
   
 
 針對美國個别政客再次推動有關法案，詆毁香港自治和法治，叫囂取消香港駐美經貿辦事處有關待遇甚至關閉辦事處，外交部駐港公署發言人表示強烈譴責和堅決反對。
@@ -719,7 +743,7 @@
 
 # 緬甸大地震增至逾3600人死亡　中國公民6死13傷
 
-![緬甸大地震增至超過3600人死亡，超過5000人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799566_1_20250409115358.jpg&q=80)
+![緬甸大地震增至超過3600人死亡，超過5000人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799566_1_20250409115358.jpg&q=55)
   
 
 緬甸大地震增至超過3600人死亡，超過5000人受傷，仍有100多人失蹤。中國駐緬甸大使館確認，地震至今造成中國公民6死13傷。
@@ -791,7 +815,7 @@
 
 # 多米尼加夜總會屋頂坍塌事故增至最少79死
 
-![多米尼加首都聖多明各一間夜總會屋頂坍塌事故。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799546_1_20250409102359.jpg&q=85)
+![多米尼加首都聖多明各一間夜總會屋頂坍塌事故。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799546_1_20250409102359.jpg&q=75)
   
 
 多米尼加首都聖多明各一間夜總會屋頂坍塌事故，增至最少79人死亡，死者包括多米尼加蒙特克里斯蒂省省長及美國職棒大聯盟退役球星，過百人送院。事故原因仍在調查。
@@ -818,7 +842,7 @@
 ![韓聯社報道，預料李在明最快會在明日宣布參選總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799542_1_20250409100124.jpg&q=90)
   
 
-南韓最大在野黨共同民主黨黨魁李在明宣布辭去黨主席職務，被視作為全力參選總統做準備。韓聯社預料李在明最快會在明日宣布參選。
+南韓最大在野黨共同民主黨黨魁李在明宣布辭去黨魁職務，被視作為全力參選總統做準備。韓聯社預料李在明最快會在明日宣布參選。
 
   
 
@@ -839,7 +863,7 @@
 
 # 林宣武指大幅增關稅構成很大打擊　中小企面對很大壓力
 
-![林宣武指中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799543_1_20250409102325.jpg&q=90)
+![林宣武指中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799543_1_20250409102325.jpg&q=85)
   
 
 香港付貨人委員會主席林宣武說面對關稅戰，特區政府已盡力協助企業，但中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產，但這個做法不知要「拖幾耐」，面對非常大的壓力。
@@ -863,7 +887,7 @@
 
 # 林健鋒稱港商面對美國徵稅感憤怒和無奈　部分企業到危急存亡之秋
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799540_1_20250409101756.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799540_1_20250409101756.jpg&q=85)
   
 
 美國白宮證實會對中國部分貨品徵收104%關稅，行會成員、立法會商界議員林健鋒形容美國現時的做法是「大石砸死蟹」，港商非常憤怒，但亦非常無奈。面對一個如此高的稅率，即使供應鏈重組，成本都會劇增。現時不少企業面對貨品出不到，即使製造完成但都收不到錢，大大影響現金流，與美國做生意的商家是真正步入寒冬。
@@ -887,7 +911,7 @@
 
 # 中國救援隊伍完成緬甸地震救援任務　啟程回國
 
-![緬甸曼德勒中國救援隊伍營地，緬甸領導人敏昂萊（前右二）日前慰問中國救援隊伍。（新華社資料圖片）。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799537_1_20250409094300.jpg&q=90)
+![緬甸曼德勒中國救援隊伍營地，緬甸領導人敏昂萊（前右二）日前慰問中國救援隊伍。（新華社資料圖片）。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799537_1_20250409094300.jpg&q=85)
   
 
 到緬甸開展地震救援的中國救援隊、中國國際救援隊和中國香港特區救援隊完成國際救援任務，乘坐4架中國空軍飛機從內比都啟程回國。
@@ -911,7 +935,7 @@
 
 # 中國駐巴拿馬使館︰中國從未干涉運河事務　美方應停止歪曲污蔑
 
-![中國駐巴拿馬使館發言人說，中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799532_1_20250409091302.jpg&q=75)
+![中國駐巴拿馬使館發言人說，中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799532_1_20250409091302.jpg&q=40)
   
 
 中國駐巴拿馬使館對美國國防部長赫格塞思訪問巴拿馬期間，就中國和中巴關係的言論發表聲明，指出中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務，敦促美方應停止對中國歪曲污蔑。
@@ -983,7 +1007,7 @@
 
 # 多米尼加夜總會屋頂坍塌事故增至最少66死　仍有人被困待救
 
-![約400名救援人員持續在瓦礫中搜尋生還者，戴著安全帽的工人在場挖掘。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799519_1_20250409073732.jpg&q=90)
+![約400名救援人員持續在瓦礫中搜尋生還者，戴著安全帽的工人在場挖掘。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799519_1_20250409073732.jpg&q=85)
   
 
 多米尼加首都聖多明各一間夜總會屋頂坍塌的事故，當局說增至最少66人死亡，包括一名政界人士及一名棒球明星，另有過百人受傷。
@@ -1007,7 +1031,7 @@
 
 # 特朗普稱關稅措施對其美國願景至關重要　推出後大量錢湧入美國
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799511_1_20250409073330.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799511_1_20250409073330.jpg&q=85)
   
 
 美國總統特朗普形容，自己近日公布的關稅措施具「爆炸性」，但他堅信有關措施對他的美國願景是至關重要。
@@ -1151,7 +1175,7 @@
 
 # 多米尼加夜總會屋頂坍塌增至最少27死　當局加緊救瓦礫下倖存者
 
-![事發時現場有歌手表演，屋頂突然坍塌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799500_1_20250409021258.jpg&q=80)
+![事發時現場有歌手表演，屋頂突然坍塌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799500_1_20250409021258.jpg&q=55)
   
 
 多米尼加首都聖多明各一間夜總會屋頂坍塌事故，當地傳媒報道增至最少27人死亡，超過130人送院。
@@ -1199,7 +1223,7 @@
 
 # 多米尼加夜總會屋頂倒塌　造成27死逾百人傷
 
-![多米尼加有夜總會的屋頂倒塌，救援人員在現場搜救。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799482_1_20250408212328.jpg&q=80)
+![多米尼加有夜總會的屋頂倒塌，救援人員在現場搜救。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799482_1_20250408212328.jpg&q=60)
   
 
 加勒比海國家多米尼加有夜總會的屋頂倒塌，造成至少27人死亡、過百人受傷。
@@ -1247,7 +1271,7 @@
 
 # 捷克總理社交平台帳號被黑客攻擊並發布虛假資訊
 
-![菲亞拉的社交平台帳號今早被黑客攻擊，並發布虛假資訊。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799471_1_20250408191732.jpg&q=90)
+![菲亞拉的社交平台帳號今早被黑客攻擊，並發布虛假資訊。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799471_1_20250408191732.jpg&q=85)
   
 
 捷克總理菲亞拉的社交平台「X」帳號被黑客攻擊，並發布虛假資訊。
@@ -1319,7 +1343,7 @@
 
 # 巴拿馬審計報告指長和港口特許經營權有多項違規
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799439_1_20250408181902.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799439_1_20250408181902.jpg&q=85)
   
 
 巴拿馬的審計報告指，授予長和旗下子公司，經營兩座港口的特許經營權，存在多項違規行為，違反合約條款，巴拿馬當局也未收到合約列明的12億美元欠款。有當地法律專家認為，如果總審計長確認特許經營權續約有違規行為，或最高法院宣布合約違憲，特許經營權可能會被撤銷。
@@ -1343,7 +1367,7 @@
 
 # 外交部：倘美方執意打關稅戰貿易戰　中方必將奉陪到底
 
-![外交部說，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799450_1_20250408171401.jpg&q=80)
+![外交部說，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799450_1_20250408171401.jpg&q=70)
   
 
 美國總統特朗普威脅升級對華關稅，警告若中方不撤回對美國加徵反制關稅的決定，美國會再向中國徵收五成關稅。
@@ -1391,7 +1415,7 @@
 
 # 優化新資本投資者入境計劃　當局料已批申請帶來逾270億元資金
 
-![劉凱旋有信心隨著加大推廣計劃，例如有東盟國家甚至歐洲和北美等地區，均有人申請。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799448_1_20250408182942.jpg&q=90)
+![劉凱旋有信心隨著加大推廣計劃，例如有東盟國家甚至歐洲和北美等地區，均有人申請。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799448_1_20250408182942.jpg&q=85)
   
 
 立法會舉行特別財務委員會會議，審核2025至26年度開支預算。在財經事務方面，有議員關注優化新資本投資者入境計劃的情況，當局說截至今年2月底，新計劃合共接獲918宗申請，已批出868宗申請的淨資產審查和386宗申請的投資規定審查，預計可為本港帶來超過270億元資金。由於新計劃的相關優化措施只推行一段短時間，政府會持續檢視申請人的投資情況，並會適時評估成效。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799448-20250408.htm)
-
----
-
-# 日本《外交藍皮書》重申擁竹島主權　南韓強烈抗議
-
-![日本發表年度《外交藍皮書》重申擁有竹島主權， 南韓外交部強烈抗議。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799434_1_20250408161045.jpg&q=90)
-  
-
-日本發表年度《外交藍皮書》，重申擁有竹島，即南韓稱為獨島的主權。 南韓外交部召見日本駐韓公使實生泰介，提出強烈抗議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm)
 
 ---

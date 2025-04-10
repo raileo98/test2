@@ -1,6 +1,54 @@
+# 共同民主黨前黨魁李在明宣布參加新一屆南韓總統選舉
+
+![李在明目前在不同機構的民調中領先。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799718_1_20250410102415.jpg&q=80)
+  
+
+南韓最大在野黨共同民主黨前黨魁李在明宣布，參加新一屆總統選舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799718-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799718-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799718-20250410.htm)
+
+---
+
+# 王文濤：中方願與包括東盟在內貿易夥伴加強溝通協調
+
+![王文濤表示，中方願與包括東盟在內的貿易夥伴一道，加強溝通協調。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799717_1_20250410102343.jpg&q=90)
+  
+
+在北京，商務部部長王文濤昨日與東盟輪值主席國、馬來西亞貿工部長扎夫魯視頻通話，雙方圍繞加強中馬和中國—東協經貿合作、共同應對美國加徵所謂「對等關稅」等問題交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm)
+
+---
+
 # 恒指升幅擴至逾900點　重上21000點以上
 
-![港股升幅擴大至逾900點，恒指重上21000點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799716_1_20250410100209.jpg&q=90)
+![港股升幅擴大至逾900點，恒指重上21000點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799716_1_20250410100209.jpg&q=80)
   
 
 港股升幅擴大逾900點，恒指重上21000點，較早時報21185點，升920點，升幅4.54%。
@@ -24,7 +72,7 @@
 
 # 內地3月通縮0.1%
 
-![內地3月居民消費價格指數（CPI）按年跌0.1%；首季亦跌0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799715_1_20250410095829.jpg&q=70)
+![內地3月居民消費價格指數（CPI）按年跌0.1%；首季亦跌0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799715_1_20250410095829.jpg&q=35)
   
 
 國家統計局公布，3月居民消費價格指數（CPI）按年跌0.1%，連跌兩個月，但跌幅較2月收窄0.6個百分點。食品價格跌1.4%，非食品價格升0.2%。
@@ -48,7 +96,7 @@
 
 # 陳美寶稱全速推展智慧綠色集體運輸系統項目
 
-![陳美寶說，當局亦正檢討與交通相關的收費和罰款，包括停車收費錶及交通違例事項定額罰款等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799714_1_20250410101213.jpg&q=85)
+![陳美寶說，當局亦正檢討與交通相關的收費和罰款，包括停車收費錶及交通違例事項定額罰款等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799714_1_20250410101213.jpg&q=80)
   
 
 運輸及物流局局長陳美寶表示，正在施工的東涌線延綫、小蠔灣站、屯門南延綫、古洞站和洪水橋站將在2027年起落成。北環綫主線的前期建造工程亦已展開，目標是於2034年落成。政府亦正全速推展智慧綠色集體運輸系統項目，目標是分別於今年就啟德項目招標，明年就東九龍及洪水橋／厦村及元朗南新發展區項目招標，希望於翌年批出合約。同時，力爭於今年內就南港島綫（西段）項目開展詳細規劃及設計。
@@ -72,7 +120,7 @@
 
 # 洛杉磯奧運將新增22個小項　將增設乒乓混合團體賽
 
-![國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799712_1_20250410093619.jpg&q=85)
+![國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799712_1_20250410093619.jpg&q=75)
   
 
 國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額，共設351個小項，較巴黎奧運會的329個小項增加22項，其中乒乓混合團體賽將作為新增小項登上洛杉磯奧運會舞台。
@@ -96,7 +144,7 @@
 
 # 人行逆回購操作659億元人民幣
 
-![人行進行659億元人民幣7日期逆回購操作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799710_1_20250410093001.jpg&q=90)
+![人行進行659億元人民幣7日期逆回購操作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799710_1_20250410093001.jpg&q=80)
   
 
 人民銀行公開市場進行659億元人民幣7日期逆回購操作，利率維持在1.5厘，對沖到期量後，單日淨回籠1575億元，連續兩日淨回籠。
@@ -120,7 +168,7 @@
 
 # 滬深股市初段造好　上證指數重上3200點
 
-![上證指數收復3200點，較早時報3213點，升26點，升幅0.82%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799713_1_20250410093659.jpg&q=90)
+![上證指數收復3200點，較早時報3213點，升26點，升幅0.82%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799713_1_20250410093659.jpg&q=80)
   
 
 滬深股市初段造好，上證指數收復3200點，較早時報3213點，升26點，升幅0.82%。
@@ -144,7 +192,7 @@
 
 # 恒指高開545點　科指升近3.7%
 
-![恒指在競價時段報20810點，升545點，升幅2.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799709_1_20250410092324.jpg&q=90)
+![恒指在競價時段報20810點，升545點，升幅2.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799709_1_20250410092324.jpg&q=80)
   
 
 港股跟隨亞太區股市高開，恒指在競價時段報20810點，升545點，升幅2.69%。
@@ -168,7 +216,7 @@
 
 # 《環看天下》：應對美國關稅威脅　分析：或促使中歐經貿回暖
 
-![今年前兩個月中歐班列累計到發176列，同比增長22.9%。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799707_1_20250410092107.jpg&q=90)
+![今年前兩個月中歐班列累計到發176列，同比增長22.9%。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799707_1_20250410092107.jpg&q=80)
   
 
 今年是中歐建交50周年，國務院總理李強日前同歐盟委員會主席馮德萊恩通電話。李強表示，中歐關係呈現穩中向好勢頭，中方願同歐方攜手努力，增進政治互信，拓展務實合作，並分享發展機遇。
@@ -216,7 +264,7 @@
 
 # 長江生命科技開市前停牌
 
-![長江生命科技開市前停牌，停牌前報0.48元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799703_1_20250410091007.jpg&q=90)
+![長江生命科技開市前停牌，停牌前報0.48元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799703_1_20250410091007.jpg&q=85)
   
 
 長江生命科技開市前停牌，停牌前報0.48元。
@@ -240,7 +288,7 @@
 
 # 指明潛逃者許穎婷被通緝　據悉其父母被帶往警署協助調查
 
-![據了解，許穎婷的父母被帶到警署協助調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799705_1_20250410093438.jpg&q=80)
+![據了解，許穎婷的父母被帶到警署協助調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799705_1_20250410093438.jpg&q=90)
   
 
 被警方通緝、列為指明危害國家安全罪行潛逃者的許穎婷，據了解，她的父母被帶到警署協助調查，調查有關許穎婷涉嫌勾結外部勢力危害國家安全的罪行，預計稍後完成調查後將離開警署。
@@ -264,7 +312,7 @@
 
 # 工總稱進出口商已無生意做　學者料美方欲與中方脫勾斷鏈
 
-![莊子雄說，進出口商都處於觀望態度；麥萃才認為，商界應該專注發展其他市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799704_1_20250410093313.jpg&q=80)
+![莊子雄說，進出口商都處於觀望態度；麥萃才認為，商界應該專注發展其他市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799704_1_20250410093313.jpg&q=65)
   
 
 美國總統特朗普宣布，即時上調對中國加徵的關稅至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。香港工業總會主席莊子雄表示，在貿易戰下，無論美方加徵多少關稅，數字上已經無影響，因為大家已經無可能再做生意，他形容美方非常不理性，進出口商都處於觀望態度。
@@ -288,7 +336,7 @@
 
 # 台股初段急升逾9%　鴻海及台積電升停
 
-![台灣加權指數初段報18972點，升1580點，升近9.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799702_1_20250410090500.jpg&q=90)
+![台灣加權指數初段報18972點，升1580點，升近9.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799702_1_20250410090500.jpg&q=85)
   
 
 台灣股市大幅反彈，終止多日跌勢。美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。
@@ -336,7 +384,7 @@
 
 # 澤連斯基：烏克蘭「技術團隊」將於華盛頓與美方就礦產協議磋商
 
-![澤連斯基表示，烏克蘭的「技術團隊」將會在華盛頓與美方就礦產協議展開磋商。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799699_1_20250410100354.jpg&q=90)
+![澤連斯基表示，烏克蘭的「技術團隊」將會在華盛頓與美方就礦產協議展開磋商。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799699_1_20250410100354.jpg&q=85)
   
 
 烏克蘭媒體報道，總統澤連斯基表示，烏克蘭的「技術團隊」將會在美國首都華盛頓與美方就礦產協議展開磋商。
@@ -360,7 +408,7 @@
 
 # 商務部：李強剛與馮德萊恩通電話　中方願與歐方深化合作
 
-![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=75)
+![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=40)
   
 
 商務部部長王文濤表示，國務院總理李強剛剛與歐盟委員會主席馮德萊恩通電話，向外界傳遞積極資訊。表示中方願與歐方相向而行，共同落實好中歐領導人達成的重要共識，加強溝通交流，深化中歐貿易、投資和產業合作。
@@ -408,7 +456,7 @@
 
 # 日股初段升近2%
 
-![日經指數較早時32325點，升611點，升幅1.93%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799696_1_20250410080607.jpg&q=85)
+![日經指數較早時32325點，升611點，升幅1.93%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799696_1_20250410080607.jpg&q=75)
   
 
 東京股市初段跟隨隔夜美股上升。
@@ -432,7 +480,7 @@
 
 # 聯儲局會議記錄：面對通脹上升和經濟增長放緩　或將面對艱難取捨
 
-![部分決策者指出，聯儲局未來或將面對艱難的取捨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799693_1_20250410074842.jpg&q=85)
+![部分決策者指出，聯儲局未來或將面對艱難的取捨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799693_1_20250410074842.jpg&q=75)
   
 
 美國聯儲局會議記錄顯示，決策者在上月會議上幾乎一致認為，美國經濟同時面臨通脹上升和經濟增長放緩的風險，部分決策者指出，聯儲局未來或將面對艱難的取捨。
@@ -456,7 +504,7 @@
 
 # 歐聯八強首回合　巴塞羅那4:0多蒙特　聖日耳門3:1維拉
 
-![巴塞羅那今仗有利雲度夫斯基（右二）連續攻入兩球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799692_1_20250410073427.jpg&q=90)
+![巴塞羅那今仗有利雲度夫斯基（右二）連續攻入兩球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799692_1_20250410073427.jpg&q=80)
   
 
 歐聯八強首回合，巴塞羅那4:0大勝多蒙特，巴黎聖日耳門3:1反勝阿士東維拉。
@@ -480,7 +528,7 @@
 
 # 美元兌日圓和瑞士法郎反彈逾1%
 
-![美元兌日圓和瑞士法郎等，美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799690_1_20250410071102.jpg&q=90)
+![美元兌日圓和瑞士法郎等，美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799690_1_20250410071102.jpg&q=80)
   
 
 美元兌日圓和瑞士法郎等避險貨幣反彈，美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。
@@ -528,7 +576,7 @@
 
 # 金價升3%或以上　市場憂中美貿易緊張局勢進一步升級
 
-![金價升3%或以上，受避險資金推動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799687_1_20250410054033.jpg&q=90)
+![金價升3%或以上，受避險資金推動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799687_1_20250410054033.jpg&q=80)
   
 
 金價升3%或以上，受避險資金推動，市場擔心中美貿易緊張局勢進一步升級。
@@ -624,7 +672,7 @@
 
 # 道指急升2962點　納指飆逾12%　美國暫緩多國高額對等關稅
 
-![美股急升，美國暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799683_1_20250410052450.jpg&q=90)
+![美股急升，美國暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799683_1_20250410052450.jpg&q=85)
   
 
 美股急升，美國總統特朗普表示，對中國加徵的關稅稅率提升至125%，但暫緩對其他國家徵收較高稅率的對等關稅90日。
@@ -696,7 +744,7 @@
 
 # 英王查理斯三世與王后卡米拉到梵蒂岡與教宗會晤
 
-![查理斯三世與卡米拉到訪意大利。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799678_1_20250410034010.jpg&q=90)
+![查理斯三世與卡米拉到訪意大利。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799678_1_20250410034010.jpg&q=85)
   
 
 出訪意大利的英王查理斯三世與王后卡米拉突然前往梵蒂岡，與教宗方濟各會面。
@@ -792,7 +840,7 @@
 
 # 中方從中午起對美加徵84%關稅　文化和旅遊部對赴美遊客發提示
 
-![商務部表示，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799673_1_20250410012424.jpg&q=75)
+![商務部表示，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799673_1_20250410012424.jpg&q=40)
   
 
 中方進一步反制美國向中國產品徵收104%的關稅措施，今日中午起對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。
@@ -816,7 +864,7 @@
 
 # 中方稱美國對等關稅開錯方、吃錯藥　無助解決貿易不平衡問題
 
-![世界貿易組織召開貨物貿易理事會年度首次會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799672_1_20250410004211.jpg&q=85)
+![世界貿易組織召開貨物貿易理事會年度首次會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799672_1_20250410004211.jpg&q=80)
   
 
 世界貿易組織召開貨物貿易理事會年度首次會議，中方嚴重關切美國對等關稅措施及其惡劣影響，要求美方切實遵守世貿規則，避免對全球經濟和多邊貿易體制造成負面衝擊。
@@ -888,7 +936,7 @@
 
 # 救援隊指揮官：隊員體能消耗嚴重獲特許缺勤　隊員讚揚搜救犬表現
 
-![​香港特區救援隊完成緬甸地震災區搜救任務，指揮官趙汝珏透露，今次出發前只花15分鐘就成功召集隊員。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799669_1_20250410001423.jpg&q=90)
+![​香港特區救援隊完成緬甸地震災區搜救任務，指揮官趙汝珏透露，今次出發前只花15分鐘就成功召集隊員。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799669_1_20250410001423.jpg&q=85)
   
 
 ​香港特區救援隊完成緬甸地震災區搜救任務，晚上返抵本港。特區救援隊指揮官趙汝珏表示，在救援期間經歷過4次餘震，要緊急撤離，又提到緬甸日間超過40度，晚間亦超過30度，導致隊員體能消耗嚴重，未能很好休息。隊員由周四起享有4天的特許缺勤。
@@ -912,7 +960,7 @@
 
 # 特區救援隊返港迎接儀式　李家超：無私付出　香港驕傲
 
-![李家超逐一與救援隊員握手致謝，歡迎他們安全回港。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799666_2_20250409232552.jpg&q=80)
+![李家超逐一與救援隊員握手致謝，歡迎他們安全回港。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799666_2_20250409232552.jpg&q=90)
   
 
 特區救援隊完成緬甸地震災區搜救任務，返抵本港，政府晚上在機場舉行迎接儀式。行政長官李家超逐一與救援隊員握手致謝，歡迎他們安全回港。李家超致辭時，代表政府及香港市民感謝救援隊全體隊員，讚揚救援隊的勇氣和無私，充分展現他們無懼挑戰、救急扶危的專業精神，形容是香港、政府和市民的驕傲。
@@ -936,7 +984,7 @@
 
 # 東江水被指大腸桿菌含量超標　發展局指內容以偏概全
 
-![發展局反駁有網上媒體報道聲稱東江水大腸桿菌含量超標，認為有關內容以偏概全。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799665_1_20250409225457.jpg&q=90)
+![發展局反駁有網上媒體報道聲稱東江水大腸桿菌含量超標，認為有關內容以偏概全。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799665_1_20250409225457.jpg&q=85)
   
 
 發展局反駁有網上媒體報道聲稱東江水大腸桿菌含量超標，認為有關內容以偏概全，強調香港接收的東江水水質完全符合國家就有關飲用水訂定的最高標準，水務署一直嚴密監察香港的食水水質，監測結果顯示食水樣本完全符合香港食水標準。
@@ -960,7 +1008,7 @@
 
 # 美國2月批發庫存按月增長0.3%合乎預期
 
-![美國2月批發銷售轉升2.4%，扭轉1月的下跌0.9%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799664_1_20250409224524.jpg&q=80)
+![美國2月批發銷售轉升2.4%，扭轉1月的下跌0.9%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799664_1_20250409224524.jpg&q=60)
   
 
 美國2月批發庫存按月增長0.3%，與初值相同，合乎市場預期。
@@ -984,7 +1032,7 @@
 
 # 特許經營權被指違規　巴拿馬港口公司稱不符事實
 
-![特許經營權被指違規，巴拿馬港口公司稱不符事實。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799663_1_20250409223909.jpg&q=85)
+![特許經營權被指違規，巴拿馬港口公司稱不符事實。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799663_1_20250409223909.jpg&q=75)
   
 
 巴拿馬的審計報告指，授予長和旗下子公司經營兩座港口的特許經營權，存在多項違規行為，違反合約條款。長和旗下的巴拿馬港口公司發表聲明反駁。
@@ -1008,7 +1056,7 @@
 
 # 國家教育部發布赴美留學預警
 
-![國家教育部發布赴美留學預警。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799662_1_20250409230648.jpg&q=90)
+![國家教育部發布赴美留學預警。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799662_1_20250409230648.jpg&q=80)
   
 
 國家教育部發布赴美留學預警。
@@ -1032,7 +1080,7 @@
 
 # 消息指警方再發現有人兜售Coldplay黃牛票將票控一男子
 
-![據了解，警方再發現有人懷疑兜售Coldplay演唱會「黃牛票」，將作票控。（資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799661_1_20250409224036.jpg&q=85)
+![據了解，警方再發現有人懷疑兜售Coldplay演唱會「黃牛票」，將作票控。（資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799661_1_20250409224036.jpg&q=75)
   
 
 英國樂隊Coldplay第二晚在啟德體育園主場館舉行演唱會。據了解，警方再發現有人懷疑兜售「黃牛票」，將作票控。
@@ -1056,7 +1104,7 @@
 
 # 國家文化和旅遊部提示中國遊客充分評估赴美旅遊風險　籲謹慎前往
 
-![國家文化和旅遊部對赴美中國遊客發布風險提示。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799660_1_20250409224238.jpg&q=75)
+![國家文化和旅遊部對赴美中國遊客發布風險提示。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799660_1_20250409224238.jpg&q=45)
   
 
 國家文化和旅遊部對赴美中國遊客發布風險提示。
@@ -1104,7 +1152,7 @@
 
 # 歐盟通過對美國進口產品的反制措施
 
-![歐盟27個成員國投票表決通過對美國進口產品的反制措施，可於下周二起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799657_1_20250409214502.jpg&q=85)
+![歐盟27個成員國投票表決通過對美國進口產品的反制措施，可於下周二起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799657_1_20250409214502.jpg&q=75)
   
 
 歐盟27個成員國投票表決通過對美國進口產品的反制措施，以回應美國上月12日宣布對歐盟的鋼鐵和鋁徵收關稅。有關措施可於下周二起生效。
@@ -1224,7 +1272,7 @@
 
 # 衞生署：過去5年共接種逾800萬劑流感疫苗　沒有相關死亡個案
 
-![徐樂堅說，傳統的滅活疫苗已沿用數十年，疫苗經過反覆試驗及品質檢測，證實非常安全可靠。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799651_1_20250409212340.jpg&q=80)
+![徐樂堅說，傳統的滅活疫苗已沿用數十年，疫苗經過反覆試驗及品質檢測，證實非常安全可靠。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799651_1_20250409212340.jpg&q=90)
   
 
 衞生署表示，香港現時使用的流感疫苗，包括滅活流感疫苗、重組流感疫苗和減活流感疫苗，都是安全和有效，過去5年本港共接種超過800萬劑流感疫苗，沒有接獲因接種流感疫苗後的死亡個案。
@@ -1272,7 +1320,7 @@
 
 # 政府稱將研究加強西貢東壩小巴服務
 
-![政府稱，將審視情況看看如何能加強東霸小巴交通服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799649_1_20250409213158.jpg&q=80)
+![政府稱，將審視情況看看如何能加強東霸小巴交通服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799649_1_20250409213158.jpg&q=90)
   
 
 政府表示，將研究加強西貢萬宜水庫東壩的小巴服務。在立法會財委會特別會議上，選委界議員陸瀚民指出，政府推動生態旅遊，但近日萬宜水庫東壩出現交通亂象問題，包括有「黑的」亂收車資、有旅客要從東壩乘搭快艇到西貢碼頭離開等，詢問當局有何措施應對。
@@ -1296,7 +1344,7 @@
 
 # 17歲少女乙型流感併發腦病變　情況嚴重
 
-![衞生防護中心指出，感染乙流感的少女有接種本年度的季節性流感疫苗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799648_1_20250409212830.jpg&q=80)
+![衞生防護中心指出，感染乙流感的少女有接種本年度的季節性流感疫苗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799648_1_20250409212830.jpg&q=90)
   
 
 一名17歲少女感染乙型流感併發腦病變，目前仍然留醫，情況嚴重。她有接種本年度的季節性流感疫苗，至於她就讀的學校近日沒有出現流感爆發的情況。
@@ -1320,7 +1368,7 @@
 
 # 政府稱未能估算市場何時完全消化寫字樓供應　檢討商業地擬增彈性
 
-![發展局考慮將部分商業用地改劃作住宅用途，檢視位置包括洪水橋/厦村、東涌東新市鎮擴展區、沙田石門及九龍東等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799647_1_20250409213916.jpg&q=65)
+![發展局考慮將部分商業用地改劃作住宅用途，檢視位置包括洪水橋/厦村、東涌東新市鎮擴展區、沙田石門及九龍東等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799647_1_20250409213916.jpg&q=35)
   
 
 發展局表示，政府近年積極招商引資，落戶香港的企業會增加對寫字樓的需求。由於需求是動態和受制於很多因素，未能估算市場何時能完全消化寫字樓供應。發展局書面回覆立法會議員提問時表示，差餉物業估價署上月公布初步統計數字顯示，今年私人寫字樓的預測總落成量約為30萬9千米，明年則有11萬6千平方米。
@@ -1344,7 +1392,7 @@
 
 # 特區政府稱絕不代美國收所謂關稅　稍後公布暫停處理寄美郵遞安排
 
-![特區政府發言人批評，美國不再奉行自由貿易，肆意破壞國際共同建立的世貿組織規則。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799646_1_20250409205506.jpg&q=90)
+![特區政府發言人批評，美國不再奉行自由貿易，肆意破壞國際共同建立的世貿組織規則。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799646_1_20250409205506.jpg&q=80)
   
 
 特區政府強烈反對和不滿美國向香港產品進一步加徵所謂對等關稅，以及由5月2日起取消香港產品的小額免稅待遇，並調高付運美國而內載貨品的郵件需繳納的關稅。
@@ -1368,7 +1416,7 @@
 
 # 中國移動香港斥資約11.96億元入股香港寬頻成大股東之一
 
-![中國移動香港斥資約11.96億元入股香港寬頻，成為公司大股東之一。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799645_1_20250409194356.jpg&q=90)
+![中國移動香港斥資約11.96億元入股香港寬頻，成為公司大股東之一。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799645_1_20250409194356.jpg&q=85)
   
 
 香港寬頻公布，中國移動香港斥資約11.96億元入股。交易完成後，中移動香港將持有香港寬頻約15.46%經擴大已發行股本，成為公司大股東之一。
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799645-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799645-20250409.htm)
-
----
-
-# 商務部將十多間美國企業列出口管制和不可靠實體清單
-
-![商務部公布，將12家美國實體列入出口管制管控名單，將6家涉對台軍售的美國企業列入不可靠實體清單。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799643_1_20250409192259.jpg&q=90)
-  
-
-商務部公布，將12家美國實體列入出口管制管控名單，禁止對其出口兩用物項。這些實體存在可能危害中國國家安全和利益的行為，任何出口經營者不得違反上述規定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799643-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799643-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799643-20250409.htm)
-
----
-
-# 商務部：中方在世貿組織追加起訴美國升級對華關稅
-
-![商務部指，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799642_1_20250409191832.jpg&q=80)
-  
-
-商務部指，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799642-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799642-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799642-20250409.htm)
 
 ---

@@ -1,6 +1,54 @@
+# 王文濤：中方願與包括東盟在內貿易夥伴加強溝通協調
+
+![王文濤表示，中方願與包括東盟在內的貿易夥伴一道，加強溝通協調。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799717_1_20250410102343.jpg&q=90)
+  
+
+在北京，商務部部長王文濤昨日與東盟輪值主席國、馬來西亞貿工部長扎夫魯視頻通話，雙方圍繞加強中馬和中國—東協經貿合作、共同應對美國加徵所謂「對等關稅」等問題交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm)
+
+---
+
+# 內地3月通縮0.1%
+
+![內地3月居民消費價格指數（CPI）按年跌0.1%；首季亦跌0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799715_1_20250410095829.jpg&q=35)
+  
+
+國家統計局公布，3月居民消費價格指數（CPI）按年跌0.1%，連跌兩個月，但跌幅較2月收窄0.6個百分點。食品價格跌1.4%，非食品價格升0.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm)
+
+---
+
 # 《環看天下》：應對美國關稅威脅　分析：或促使中歐經貿回暖
 
-![今年前兩個月中歐班列累計到發176列，同比增長22.9%。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799707_1_20250410092107.jpg&q=90)
+![今年前兩個月中歐班列累計到發176列，同比增長22.9%。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799707_1_20250410092107.jpg&q=80)
   
 
 今年是中歐建交50周年，國務院總理李強日前同歐盟委員會主席馮德萊恩通電話。李強表示，中歐關係呈現穩中向好勢頭，中方願同歐方攜手努力，增進政治互信，拓展務實合作，並分享發展機遇。
@@ -24,7 +72,7 @@
 
 # 商務部：李強剛與馮德萊恩通電話　中方願與歐方深化合作
 
-![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=75)
+![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=40)
   
 
 商務部部長王文濤表示，國務院總理李強剛剛與歐盟委員會主席馮德萊恩通電話，向外界傳遞積極資訊。表示中方願與歐方相向而行，共同落實好中歐領導人達成的重要共識，加強溝通交流，深化中歐貿易、投資和產業合作。
@@ -48,7 +96,7 @@
 
 # 中方從中午起對美加徵84%關稅　文化和旅遊部對赴美遊客發提示
 
-![商務部表示，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799673_1_20250410012424.jpg&q=75)
+![商務部表示，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799673_1_20250410012424.jpg&q=40)
   
 
 中方進一步反制美國向中國產品徵收104%的關稅措施，今日中午起對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。
@@ -72,7 +120,7 @@
 
 # 中方稱美國對等關稅開錯方、吃錯藥　無助解決貿易不平衡問題
 
-![世界貿易組織召開貨物貿易理事會年度首次會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799672_1_20250410004211.jpg&q=85)
+![世界貿易組織召開貨物貿易理事會年度首次會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799672_1_20250410004211.jpg&q=80)
   
 
 世界貿易組織召開貨物貿易理事會年度首次會議，中方嚴重關切美國對等關稅措施及其惡劣影響，要求美方切實遵守世貿規則，避免對全球經濟和多邊貿易體制造成負面衝擊。
@@ -96,7 +144,7 @@
 
 # 國家教育部發布赴美留學預警
 
-![國家教育部發布赴美留學預警。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799662_1_20250409230648.jpg&q=90)
+![國家教育部發布赴美留學預警。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799662_1_20250409230648.jpg&q=80)
   
 
 國家教育部發布赴美留學預警。
@@ -120,7 +168,7 @@
 
 # 國家文化和旅遊部提示中國遊客充分評估赴美旅遊風險　籲謹慎前往
 
-![國家文化和旅遊部對赴美中國遊客發布風險提示。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799660_1_20250409224238.jpg&q=75)
+![國家文化和旅遊部對赴美中國遊客發布風險提示。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799660_1_20250409224238.jpg&q=45)
   
 
 國家文化和旅遊部對赴美中國遊客發布風險提示。
@@ -240,7 +288,7 @@
 
 # 商務部：中方在世貿組織追加起訴美國升級對華關稅
 
-![商務部指，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799642_1_20250409191832.jpg&q=80)
+![商務部指，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799642_1_20250409191832.jpg&q=55)
   
 
 商務部指，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。
@@ -311,7 +359,7 @@
 
 # 外交部：若美方執意打貿易戰將奉陪到底
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799625_1_20250409182350.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799625_1_20250409182350.jpg&q=75)
   
 
 在北京，外交部發言人回應美國再對中國進口貨品加徵關稅時表示，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底，強調會繼續採取堅決有力措施，維護自身的正當權益。
@@ -383,7 +431,7 @@
 
 # 劉兆佳稱白皮書較中性沒有肆意批評美國　冀美方了解互利共贏本質
 
-![劉兆佳相信，中美貿易戰仍會持續一段時間，可能出現惡性循環。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799630_1_20250409175613.jpg&q=80)
+![劉兆佳相信，中美貿易戰仍會持續一段時間，可能出現惡性循環。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799630_1_20250409175613.jpg&q=90)
   
 
 國新辦發表《關於中美經貿關係若干問題的中方立場》白皮書，重申貿易戰沒有贏家，希望中美雙方通過平等對話磋商解決問題。全國港澳研究會顧問劉兆佳認為，中方希望通過白皮書，用數據及說理方式闡述中國立場，說明中美貿易實際上是相對比較平衡，表明中方無意打貿易戰，美國亦沒有理由對中國展開關稅戰，嚴重損害雙方經濟貿易，以至整體關係。
@@ -455,7 +503,7 @@
 
 # 中國救援隊包括香港隊員抵達北京　國家應急部在機場迎接
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799612_1_20250409164353.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799612_1_20250409164353.jpg&q=80)
   
 
 到緬甸參與地震救援行動的中國救援隊、中國國際救援隊和中國香港特區救援隊完成任務回國，他們乘坐的4架中國空軍飛機，下午約4時，抵達北京首都國際機場，國家應急部在機場舉行迎接儀式。
@@ -575,7 +623,7 @@
 
 # 國務院發表中美經貿關係白皮書　重申貿易戰沒贏家保護主義沒出路
 
-![白皮書表示，中方始終認為，中美經貿關係的本質是互利共贏。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799596_1_20250409152142.jpg&q=85)
+![白皮書表示，中方始終認為，中美經貿關係的本質是互利共贏。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799596_1_20250409152142.jpg&q=75)
   
 
 國新辦發布《關於中美經貿關係若干問題的中方立場》白皮書，指出中方始終認為中美經貿關係的本質是互利共贏，作為發展階段、經濟制度不同的兩個大國，中美雙方在經貿合作中出現分歧和磨擦是正常，關鍵要尊重彼此利益和重大關切，通過對話協商找到妥善解決問題的辦法。
@@ -601,7 +649,7 @@
 
 # 特區救援隊完成在緬甸災區搜救行動　收拾裝備準備回港
 
-![特區救援隊經過連日在緬甸地震災區的搜救行動，正準備回港。（消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799594_1_20250409150210.jpg&q=85)
+![特區救援隊經過連日在緬甸地震災區的搜救行動，正準備回港。（消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799594_1_20250409150210.jpg&q=80)
   
 
 消防處表示，特區救援隊經過連日在緬甸地震災區的搜救行動，正忙於收拾裝備，準備回港。
@@ -649,7 +697,7 @@
 
 # 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
 
-![發言人指美國個別政客公然詆毁抹黑香港經貿辦，不僅干擾破壞港美正常交流合作，更暴露出其看不得香港安、見不得香港好的險惡用心。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799587_1_20250409154956.jpg&q=85)
+![發言人指美國個別政客公然詆毁抹黑香港經貿辦，不僅干擾破壞港美正常交流合作，更暴露出其看不得香港安、見不得香港好的險惡用心。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799587_1_20250409154956.jpg&q=75)
   
 
 針對美國個别政客再次推動有關法案，詆毁香港自治和法治，叫囂取消香港駐美經貿辦事處有關待遇甚至關閉辦事處，外交部駐港公署發言人表示強烈譴責和堅決反對。
@@ -673,7 +721,7 @@
 
 # 緬甸大地震增至逾3600人死亡　中國公民6死13傷
 
-![緬甸大地震增至超過3600人死亡，超過5000人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799566_1_20250409115358.jpg&q=80)
+![緬甸大地震增至超過3600人死亡，超過5000人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799566_1_20250409115358.jpg&q=55)
   
 
 緬甸大地震增至超過3600人死亡，超過5000人受傷，仍有100多人失蹤。中國駐緬甸大使館確認，地震至今造成中國公民6死13傷。
@@ -745,7 +793,7 @@
 
 # 台灣宜蘭縣發生5.8級地震　台北有明顯震感
 
-![台灣宜蘭縣發生5.8級地震　台北有明顯震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799549_1_20250409102149.jpg&q=90)
+![台灣宜蘭縣發生5.8級地震　台北有明顯震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799549_1_20250409102149.jpg&q=85)
   
 
 台灣氣象部門表示，台灣東北部宜蘭縣早上9時53分發生5.8 級地震，震源深度72.4公里，震央位於宜蘭縣蘇澳鎮，台北亦有明顯震感，暫時未有傷亡及損毀報告。
@@ -769,7 +817,7 @@
 
 # 中國駐巴拿馬使館︰中國從未干涉運河事務　美方應停止歪曲污蔑
 
-![中國駐巴拿馬使館發言人說，中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799532_1_20250409091302.jpg&q=75)
+![中國駐巴拿馬使館發言人說，中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799532_1_20250409091302.jpg&q=40)
   
 
 中國駐巴拿馬使館對美國國防部長赫格塞思訪問巴拿馬期間，就中國和中巴關係的言論發表聲明，指出中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務，敦促美方應停止對中國歪曲污蔑。
@@ -889,7 +937,7 @@
 
 # 陳國基將赴京　迎接中國救援隊包括香港隊員由緬甸回國
 
-![陳國基將赴京出席迎接中國救援隊隊員、包括香港隊員由緬甸回國的儀式。圖為中國救援隊。（香港消防社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799490_1_20250408233804.jpg&q=85)
+![陳國基將赴京出席迎接中國救援隊隊員、包括香港隊員由緬甸回國的儀式。圖為中國救援隊。（香港消防社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799490_1_20250408233804.jpg&q=75)
   
 
 政務司司長陳國基明日早上前赴北京，出席迎接中國救援隊隊員包括香港隊員，由緬甸回國的儀式。
@@ -985,7 +1033,7 @@
 
 # 人形機器人周日北京參加「半馬」
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799435_1_20250408182633.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799435_1_20250408182633.jpg&q=85)
   
 
 多個人形機器人周日將在北京亦莊參加「半馬」賽事，將與3萬多名人類選手共同出賽，是全球首次「人機共跑馬拉松」。
@@ -1009,7 +1057,7 @@
 
 # 外交部：倘美方執意打關稅戰貿易戰　中方必將奉陪到底
 
-![外交部說，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799450_1_20250408171401.jpg&q=80)
+![外交部說，如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799450_1_20250408171401.jpg&q=70)
   
 
 美國總統特朗普威脅升級對華關稅，警告若中方不撤回對美國加徵反制關稅的決定，美國會再向中國徵收五成關稅。
@@ -1057,7 +1105,7 @@
 
 # 葉劉淑儀：中國已預備好應對美國關稅措施　長遠將成為贏家
 
-![葉劉淑儀表示，長遠而言，中國在貿易、技術和道德層面都會是贏家。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799429_1_20250408153932.jpg&q=80)
+![葉劉淑儀表示，長遠而言，中國在貿易、技術和道德層面都會是贏家。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799429_1_20250408153932.jpg&q=90)
   
 
 美國對包括中國在內的全球大部分國家和地區徵收對等關稅，行政會議召集人、新民黨主席葉劉淑儀表示，中國已準備好如何應對，美國總統特朗普將自由貿易和多邊體系的領導者角色讓給中國，長遠而言，中國在貿易、技術和道德層面都會是贏家。
@@ -1176,7 +1224,7 @@
 
 # 李家超：加快融入國家發展大局　與更多國家簽訂自貿協定
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799367_1_20250408102452.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799367_1_20250408102452.jpg&q=85)
   
 
 行政長官李家超表示，美國宣布對多個貿易夥伴徵收所謂對等關稅，對外貿易的企業尤其是中小企以及跨境電商等，短期內無可避免會受到影響。
@@ -1200,7 +1248,7 @@
 
 # 陳國基稱將引導市民特別是年輕一代深入認識香港抗戰歷史
 
-![陳國基昨日下午聯同「愛國主義教育工作小組」成員到沙頭角烏蛟騰，實地考察其中一條沙頭角抗戰文物徑。（陳國基社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799366_1_20250408102413.jpg&q=40)
+![陳國基昨日下午聯同「愛國主義教育工作小組」成員到沙頭角烏蛟騰，實地考察其中一條沙頭角抗戰文物徑。（陳國基社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799366_1_20250408102413.jpg&q=20)
   
 
 今年是抗戰勝利80周年，特區政府將舉辦一系列紀念活動。政務司司長陳國基昨日下午聯同「愛國主義教育工作小組」成員到沙頭角烏蛟騰，實地考察其中一條沙頭角抗戰文物徑。
@@ -1224,7 +1272,7 @@
 
 # 莊太量料美國或加快減息步伐　又稱特朗普害怕中國反制
 
-![莊太量估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799357_1_20250408102235.jpg&q=85)
+![莊太量估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799357_1_20250408102235.jpg&q=75)
   
 
 美國引發的貿易戰震盪全球股市，清明節長周末過後，港股單日跌超過3000點，創歷來最大點數跌幅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量在本台節目《千禧年代》說，估計港股短期內會繼續波動，不確定性仍在，認為這段時間最好暫時不要入市。他估計美國減息的步伐可能會加快，反而通脹問題不會是美國目前最關注的情況，因此應留意未來聯儲局的動向。
@@ -1248,7 +1296,7 @@
 
 # 美威脅升級對華關稅　商務部：中方必將奉陪到底
 
-![發言人表示，美方對華加徵所謂「對等關稅」毫無根據，是典型的單邊霸凌做法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799354_1_20250408091435.jpg&q=75)
+![發言人表示，美方對華加徵所謂「對等關稅」毫無根據，是典型的單邊霸凌做法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799354_1_20250408091435.jpg&q=40)
   
 
 在北京，商務部表示，堅決反對美方威脅進一步對華加徵50%關稅，如果美方升級關稅措施落地，中方將堅決採取反制措施維護自身權益。
@@ -1272,7 +1320,7 @@
 
 # 人民日報署名文章：施壓和威脅絕不是同中方打交道的正確方式
 
-![人民日報發表署名文章強調中方從不惹事，但也不怕事。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799346_1_20250408091208.jpg&q=85)
+![人民日報發表署名文章強調中方從不惹事，但也不怕事。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799346_1_20250408091208.jpg&q=75)
   
 
 人民日報發表署名文章，批評美方所謂「對等關稅」實質上是強權政治的表現，搞的是「美國獨霸」。強調中方從不惹事，但也不怕事，認為施壓和威脅絕不是同中方打交道的正確方式。
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799292-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799292-20250407.htm)
-
----
-
-# 陳茂波：金融體系穩健交易暢順有序　政府嚴防金融風險
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799287_1_20250407183131.jpg&q=90)
-  
-
-財政司司長陳茂波表示，本港股市今日下跌超過3千點，全日成交6200億元，是反映了環球悲觀的投資情緒，但他指港匯仍然非常強勁，香港金融體系仍然相當穩健，交易暢順有秩序進行，沒有發現任何對香港市場造成系統性影響的不正常行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799287-20250407.htm)
-
----
-
-# 文旅部稱清明節小長假國內出遊總花費逾575億元人民幣
-
-![文旅部稱清明節小長假逾1.26億人次國內出遊。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799243_1_20250407145821.jpg&q=80)
-  
-
-中國文化和旅遊部數據顯示，清明節假期3天，國內出遊1億2千6百萬人次，增長6.3%；國內出遊總花費超過575億元人民幣，增長6.7%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799243-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799243-20250407.htm](https://news.rthk.hk/rthk/ch/component/k2/1799243-20250407.htm)
 
 ---

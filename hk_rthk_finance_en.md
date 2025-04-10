@@ -24,7 +24,7 @@ Stocks surged in Hong Kong on Thursday after US President Donald Trump announced
 
 # Wall Street soars on Trump tariff pause
 
-![All three major indices on Wall Street made dramatic gains after Donald Trump changed course. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799682_1_20250410051523.jpg&q=90)
+![All three major indices on Wall Street made dramatic gains after Donald Trump changed course. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799682_1_20250410051523.jpg&q=85)
   
 
 Wall Street stocks rocketed to close solidly higher on Wednesday, with dramatic advances on all three major indexes as US President Donald Trump delayed steep new tariffs hours after they took effect.
@@ -48,7 +48,7 @@ Wall Street stocks rocketed to close solidly higher on Wednesday, with dramatic 
 
 # Hang Seng Index bucks downward trend
 
-![The Hang Seng Index closes up 0.68 percent on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799622_1_20250409170856.jpg&q=75)
+![The Hang Seng Index closes up 0.68 percent on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799622_1_20250409170856.jpg&q=40)
   
 
 Equities tumbled on Wednesday after US President Donald Trump ramped up his trade war by hitting China with tariffs of more than 100 percent.
@@ -72,7 +72,7 @@ Equities tumbled on Wednesday after US President Donald Trump ramped up his trad
 
 # Risk-off mode on as new US duties curb appetites
 
-![The Hang Seng Index has been volatile amid a tit-for-tat tariffs fight that may escalate even further after Donald Trump's 50 percent levy takes effect on Wednesday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799583_1_20250409143912.jpg&q=80)
+![The Hang Seng Index has been volatile amid a tit-for-tat tariffs fight that may escalate even further after Donald Trump's 50 percent levy takes effect on Wednesday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799583_1_20250409143912.jpg&q=70)
   
 
 The 50 percent in extra US duties levied on imports from China on Wednesday have further accelerated deleveraging by investors.
@@ -96,7 +96,7 @@ The 50 percent in extra US duties levied on imports from China on Wednesday have
 
 # 'HK well-prepared to face any trade disruptions'
 
-![HKTDC's Irina Fan says Hong Kong's diversified trade links will help it withstand any pressure from new US tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799560_1_20250409111312.jpg&q=75)
+![HKTDC's Irina Fan says Hong Kong's diversified trade links will help it withstand any pressure from new US tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799560_1_20250409111312.jpg&q=50)
   
 
 A senior official with the Hong Kong Trade Development Council (HKTDC) on Wednesday said the SAR would be resilient in the face of ongoing uncertainty from the new tariffs imposed by the Trump administration.
@@ -120,7 +120,7 @@ A senior official with the Hong Kong Trade Development Council (HKTDC) on Wednes
 
 # Hong Kong stocks plunge more than 3pc at open
 
-![Hong Kong stocks dropped further, after recovering just over one percent the previous day, following Monday's 13.2 percent dive. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799529_1_20250409085033.jpg&q=75)
+![Hong Kong stocks dropped further, after recovering just over one percent the previous day, following Monday's 13.2 percent dive. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799529_1_20250409085033.jpg&q=50)
   
 
 Mainland and Hong Kong shares fell at the open on Wednesday as the US trade war escalated, following Washington's decision to impose 104 percent tariffs on Chinese goods, starting around noon, Hong Kong time.
@@ -168,7 +168,7 @@ Wall Street stocks tumbled again on Tuesday as initially successful efforts to r
 
 # HK stocks end with slight rebound
 
-![The Hang Seng Index ended the day 299.38 points, or 1.51 percent, higher at 20,127.68. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799430_2_20250408171407.jpg&q=80)
+![The Hang Seng Index ended the day 299.38 points, or 1.51 percent, higher at 20,127.68. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799430_2_20250408171407.jpg&q=65)
   
 
 Asian and European markets battled on Tuesday to recover from the previous day's tariff-fuelled collapse, though Donald Trump's warning of more measures against China and Beijing's vow to "fight to the end" raised concerns of a spiralling trade war.
@@ -192,7 +192,7 @@ Asian and European markets battled on Tuesday to recover from the previous day's
 
 # Seeds of joy on China's farms in field of tariffs woe
 
-![Customs officers inspect imported soybeans in Binzhou, Shandong, with the Trump tariffs set to put paid to US exports to China. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799433_1_20250408160927.jpg&q=85)
+![Customs officers inspect imported soybeans in Binzhou, Shandong, with the Trump tariffs set to put paid to US exports to China. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799433_1_20250408160927.jpg&q=70)
   
 
 Chinese agricultural stocks rose sharply on Tuesday as investors bet tariffs would limit US agricultural imports and boost domestic producers, defying a broader market crash sparked by the escalating Sino-US trade war.
@@ -216,7 +216,7 @@ Chinese agricultural stocks rose sharply on Tuesday as investors bet tariffs wou
 
 # Any Trump bid to weaken greenback 'set to fail'
 
-![Donald Trump will find it extremely hard to get China and Europe to consent to a devaluation for the greenback after antagonising them with his tariffs' move. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799408_1_20250408135600.jpg&q=90)
+![Donald Trump will find it extremely hard to get China and Europe to consent to a devaluation for the greenback after antagonising them with his tariffs' move. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799408_1_20250408135600.jpg&q=80)
   
 
 Any American attempt to pull off a 1985 Plaza Accord-type coordinated depreciation of the US dollar likely won't work as it would require the consent of China and Europe, Japan's former top currency diplomat Naoyuki Shinohara said on Tuesday.
@@ -240,7 +240,7 @@ Any American attempt to pull off a 1985 Plaza Accord-type coordinated depreciati
 
 # Hong Kong stocks bounce back at opening
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799371_1_20250408103918.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799371_1_20250408103918.jpg&q=55)
   
 
 The Hang Seng Index gained 329.22 points, or 1.66 percent, to open at 20,157.52 points on Tuesday.
@@ -264,7 +264,7 @@ The Hang Seng Index gained 329.22 points, or 1.66 percent, to open at 20,157.52 
 
 # Tokyo's Nikkei up 5.8pc as US tariffs fuel volatility
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799360_1_20250408093028.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799360_1_20250408093028.jpg&q=55)
   
 
 Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after plunging 7.8 percent the previous day, as US tariffs fuel market volatility.
@@ -312,7 +312,7 @@ China's central bank said on Tuesday it supported sovereign wealth fund Central 
 
 # Beijing 'won't cave in' to 50pc Trump tariff threat
 
-![The Commerce Ministry describes threats of higher US tariffs as "a mistake on top of a mistake". File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799351_2_20250408163005.jpg&q=80)
+![The Commerce Ministry describes threats of higher US tariffs as "a mistake on top of a mistake". File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799351_2_20250408163005.jpg&q=65)
   
 
 China said it would never accept the "blackmail nature" of the United States after Washington escalated tariff threats against the nation, the Ministry of Commerce said on Tuesday.
@@ -336,7 +336,7 @@ China said it would never accept the "blackmail nature" of the United States aft
 
 # JPMorgan Chase CEO warns tariffs will slow growth
 
-![JPMorgan Chase CEO Jamie Dimon described Trump's tariffs as one of several factors that could boost inflation. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799345_1_20250408084713.jpg&q=90)
+![JPMorgan Chase CEO Jamie Dimon described Trump's tariffs as one of several factors that could boost inflation. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799345_1_20250408084713.jpg&q=85)
   
 
 JPMorgan Chase CEO Jamie Dimon warned on Monday that US President Donald Trump's tariffs will likely lift inflation, describing himself as "very cautious" in light of the rising recession risk.
@@ -360,7 +360,7 @@ JPMorgan Chase CEO Jamie Dimon warned on Monday that US President Donald Trump's
 
 # Wall Street closes mostly lower but no big sell-off
 
-![The Dow Jones and the S&P 500 both closed less than a percentage lower, while the Nasdaq rose slightly. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799327_1_20250408051648.jpg&q=90)
+![The Dow Jones and the S&P 500 both closed less than a percentage lower, while the Nasdaq rose slightly. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799327_1_20250408051648.jpg&q=85)
   
 
 Wall Street stocks finished mostly lower on Monday following a volatile session amid rising recession worries due to US President Donald Trump's trade wars.
@@ -384,7 +384,7 @@ Wall Street stocks finished mostly lower on Monday following a volatile session 
 
 # Wild swings on Wall Street amid tariff fears
 
-![All three major US indices were at more than one-year lows in early trading on Monday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799307_1_20250407222802.jpg&q=85)
+![All three major US indices were at more than one-year lows in early trading on Monday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799307_1_20250407222802.jpg&q=80)
   
 
 Wall Street stocks opened sharply lower on Monday amid worries that a trade war induced by US President Donald Trump's tariffs will spark a global economic slowdown.
@@ -408,7 +408,7 @@ Wall Street stocks opened sharply lower on Monday amid worries that a trade war 
 
 # HK market functioning normally amid sell-off: FS
 
-![Paul Chan says investors should exercise caution going forward as market fluctuations are expected to continue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799293_1_20250407191203.jpg&q=80)
+![Paul Chan says investors should exercise caution going forward as market fluctuations are expected to continue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799293_1_20250407191203.jpg&q=90)
   
 
 Financial Secretary Paul Chan said the Hong Kong stock market and the local currency remain robust and strong, after the US tariffs triggered the biggest single-day sell-off for the Hang Seng Index on record.
@@ -456,7 +456,7 @@ Small-time investors in Hong Kong were left reeling on Monday as US President Do
 
 # Black Monday hit for stocks on tariffs chaos
 
-![The Hang Seng Index ends 13.22 percent down at 19,828.30. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799241_4_20250407172158.jpg&q=85)
+![The Hang Seng Index ends 13.22 percent down at 19,828.30. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799241_4_20250407172158.jpg&q=75)
   
 
 Asian and European equities collapsed on a black Monday for markets after China hammered the United States with its own hefty tariffs, ramping up a trade war many fear could spark a recession.
@@ -480,7 +480,7 @@ Asian and European equities collapsed on a black Monday for markets after China 
 
 # 'Govt will stay vigilant over market changes'
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799235_1_20250407134313.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799235_1_20250407134313.jpg&q=85)
   
 
 Under Secretary for Financial Services and the Treasury Joseph Chan said on Monday the government will pay close attention to the stock market and ensure that the city remains financially stable.
@@ -504,7 +504,7 @@ Under Secretary for Financial Services and the Treasury Joseph Chan said on Mond
 
 # Hang Seng Index slumps on US tariff sell-off
 
-![Hong Kong's benchmark fell by over 9 percent at the start of trading. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799185_1_20250407093759.jpg&q=65)
+![Hong Kong's benchmark fell by over 9 percent at the start of trading. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799185_1_20250407093759.jpg&q=35)
   
 
 Financial markets in Hong Kong and across the border dived on Monday as markets around the world crumbled in the face of a widening global trade war and fears it will unleash a deep recession.
@@ -528,7 +528,7 @@ Financial markets in Hong Kong and across the border dived on Monday as markets 
 
 # Nikkei plunges on Trump tariff concerns
 
-![A display shows the sharp decline in the Nikkei average stock price. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799177_1_20250407084857.jpg&q=90)
+![A display shows the sharp decline in the Nikkei average stock price. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799177_1_20250407084857.jpg&q=80)
   
 
 Japan's Nikkei share index plunged further on Monday, as US futures pointed to additional losses on Wall Street over President Donald Trump's punishing tariffs.
@@ -600,7 +600,7 @@ Billionaire US presidential adviser Elon Musk said on Saturday he hoped Europe a
 
 # Tariffs to raise inflation, cool growth: Fed Chair
 
-![Jerome Powell said on Friday that he expected the current uncertainty to decline in the coming months. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798991_1_20250405044209.jpg&q=90)
+![Jerome Powell said on Friday that he expected the current uncertainty to decline in the coming months. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798991_1_20250405044209.jpg&q=80)
   
 
 US President Donald Trump's tariffs risk higher unemployment and will likely cause inflation to rise and growth to slow, Federal Reserve Chair Jerome Powell said on Friday.
@@ -720,7 +720,7 @@ Wall Street led a global markets bloodbath on Thursday as countries around the w
 
 # Stocks, US dollar and oil sink, as gold hits high
 
-![Wall Street's main indices opened sharply lower, with the Nasdaq falling more than four percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798865_1_20250403221424.jpg&q=85)
+![Wall Street's main indices opened sharply lower, with the Nasdaq falling more than four percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798865_1_20250403221424.jpg&q=75)
   
 
 Stock markets and the dollar tumbled on Thursday after President Donald Trump's latest tariffs salvo against countries worldwide, fanning a trade war that many fear will spark recession and ramp up inflation.
@@ -744,8 +744,8 @@ Stock markets and the dollar tumbled on Thursday after President Donald Trump's 
 
 # HK stocks joins markets in seeing red from tariffs
 
-![Stocks in Hong Kong ended the day down 1.52 percent at 22,849.81. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_1_20250403170035.jpg&q=80)
-![The Nikkei pared its losses to close 2.8 percent down. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_2_20250403170035.jpg&q=90)
+![Stocks in Hong Kong ended the day down 1.52 percent at 22,849.81. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_1_20250403170035.jpg&q=50)
+![The Nikkei pared its losses to close 2.8 percent down. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_2_20250403170035.jpg&q=80)
   
 
 Equity markets tumbled on Thursday after Donald Trump delivered a "haymaker" blow with sweeping tariffs against US partners and rivals, fanning a global trade war that many fear will spark recessions and ramp up inflation.
@@ -769,7 +769,7 @@ Equity markets tumbled on Thursday after Donald Trump delivered a "haymaker" blo
 
 # Tariffs will rebound on US: economists
 
-![The punitive 54 percent tariffs heaped on Chinese exports from such ports as Qingdao in Shandong can be counterbalanced by pro-active promotions of domestic consumption, says an economist. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798796_1_20250403160427.jpg&q=40)
+![The punitive 54 percent tariffs heaped on Chinese exports from such ports as Qingdao in Shandong can be counterbalanced by pro-active promotions of domestic consumption, says an economist. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798796_1_20250403160427.jpg&q=15)
   
 
 The latest tariffs imposed by the United States will add to the country's own economic pains, complicate already heightened global trade and geopolitical tensions, and result in a backlash from many nations, according to economists.
@@ -817,7 +817,7 @@ European Commission President Ursula von der Leyen described US President Donald
 
 # Hong Kong stocks fall more than 2pc on Trump tariffs
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798744_1_20250403092553.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798744_1_20250403092553.jpg&q=50)
   
 
 Hong Kong stocks sank more than two percent in opening trades on Thursday after US President Donald Trump announced sweeping tariffs against trade partners, including 34 percent on imports from China.
@@ -913,7 +913,7 @@ Donald Trump's trade tariffs on close ally Australia are "not the act of a frien
 
 # Wall Street rises in another jittery day
 
-![More volatility is expected, with US futures moving decisively lower late Wednesday after Trump announced his tariffs plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798722_1_20250403060921.jpg&q=75)
+![More volatility is expected, with US futures moving decisively lower late Wednesday after Trump announced his tariffs plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798722_1_20250403060921.jpg&q=50)
   
 
 US stocks whipped through another dizzying day on Wednesday in the final hours before President Donald Trump’s unveiling of tariffs promised as part of his Liberation Day.
@@ -937,7 +937,7 @@ US stocks whipped through another dizzying day on Wednesday in the final hours b
 
 # Hong Kong stocks close lower
 
-![The Hang Seng Index finished down 0.02 percent at 23,202. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798640_1_20250402164851.jpg&q=60)
+![The Hang Seng Index finished down 0.02 percent at 23,202. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798640_1_20250402164851.jpg&q=25)
   
 
 Hong Kong stocks ended lower on Wednesday, with the benchmark Hang Seng Index down 0.02 percent at 23,202.
@@ -985,7 +985,7 @@ The Hang Seng Index lost 39.53 points, or 0.17 percent, to open at 23,167 points
 
 # Wall Street braces for 'Liberation Day'
 
-![All the nervousness in the market helped push the price of gold to records - it briefly topped US$3,175 per ounce. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798541_1_20250402064055.jpg&q=85)
+![All the nervousness in the market helped push the price of gold to records - it briefly topped US$3,175 per ounce. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798541_1_20250402064055.jpg&q=75)
   
 
 US stocks finished mixed on Tuesday on a quiet trading day as investors braced for Donald Trump's tariff announcement, which he has dubbed "Liberation Day".
@@ -1033,7 +1033,7 @@ Hong Kong stocks ended higher on Tuesday, with the benchmark Hang Seng Index up 
 
 # Stocks market maker plans to expand in Central
 
-![Jane Street is said to be in talks with Hongkong Land to take over two more floors in Central. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798414_1_20250401120606.jpg&q=85)
+![Jane Street is said to be in talks with Hongkong Land to take over two more floors in Central. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798414_1_20250401120606.jpg&q=75)
   
 
 Jane Street, one of the world's largest quant trading firms and market makers, is planning a sharp increase in Hong Kong office space, two people familiar with the matter said.
@@ -1057,7 +1057,7 @@ Jane Street, one of the world's largest quant trading firms and market makers, i
 
 # Tesla faces backlash over Musk, weakening demand
 
-![Sales of Tesla EVs are slowing in Europe amid a growing backlash against its CEO Elon Musk over his political views. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798413_1_20250401120524.jpg&q=90)
+![Sales of Tesla EVs are slowing in Europe amid a growing backlash against its CEO Elon Musk over his political views. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798413_1_20250401120524.jpg&q=80)
   
 
 Tesla investors are bracing for a drop in first-quarter vehicle deliveries as a backlash against CEO Elon Musk's politics exacerbates weakening demand for the electric vehicle maker's lineup.
@@ -1081,7 +1081,7 @@ Tesla investors are bracing for a drop in first-quarter vehicle deliveries as a 
 
 # Hong Kong stocks rise ahead of Trump tariffs
 
-![US President Donald Trump will announces his new tariff regime on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798391_1_20250401101418.jpg&q=65)
+![US President Donald Trump will announces his new tariff regime on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798391_1_20250401101418.jpg&q=35)
   
 
 The Hang Seng Index gained 97.53 points, or 0.42 percent, to open at 23,217.11 points on Tuesday, as the market prepares for more news about US tariffs.
@@ -1153,7 +1153,7 @@ US stocks shook off some early gloom about Donald Trump's imminent tariff announ
 
 # Retail sales slip again in February
 
-![Hong Kong's retail sales dropped by 13 percent year on year in February, partly due to high pre-festival spending from the Lunar New Year holiday falling in the same month last year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798288_1_20250331172638.jpg&q=90)
+![Hong Kong's retail sales dropped by 13 percent year on year in February, partly due to high pre-festival spending from the Lunar New Year holiday falling in the same month last year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798288_1_20250331172638.jpg&q=85)
   
 
 Hong Kong's retail sales suffered a notable decline last month, dropping by 13 percent year on year partially due to the different timing of the Lunar New Year holiday, according to official figures.
@@ -1177,7 +1177,7 @@ Hong Kong's retail sales suffered a notable decline last month, dropping by 13 p
 
 # Hong Kong stocks close lower
 
-![The Hang Seng Index finished down 1.3 percent at 23,119. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798291_1_20250331172815.jpg&q=55)
+![The Hang Seng Index finished down 1.3 percent at 23,119. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798291_1_20250331172815.jpg&q=25)
   
 
 Hong Kong stocks ended lower on Monday, with the benchmark Hang Seng Index down 1.3 percent at 23,119.
@@ -1201,7 +1201,7 @@ Hong Kong stocks ended lower on Monday, with the benchmark Hang Seng Index down 
 
 # China's factory PMI expands at fastest pace in a year
 
-![Official data shows the purchasing managers' index for manufacturing was up 0.3 percentage points from February. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798209_1_20250331101633.jpg&q=80)
+![Official data shows the purchasing managers' index for manufacturing was up 0.3 percentage points from February. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798209_1_20250331101633.jpg&q=65)
   
 
 China's manufacturing activity expanded at the fastest pace in a year in March, an official factory survey showed on Monday, in a positive sign for the world's second-largest economy as it deals with an escalating US trade war.
@@ -1225,7 +1225,7 @@ China's manufacturing activity expanded at the fastest pace in a year in March, 
 
 # Hong Kong stocks open slightly lower at opening
 
-![On Monday, official data showed the mainland's manufacturing activity expanding at its fastest pace in a year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798185_1_20250331104203.jpg&q=75)
+![On Monday, official data showed the mainland's manufacturing activity expanding at its fastest pace in a year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798185_1_20250331104203.jpg&q=50)
   
 
 The Hang Seng Index lost 0.94 percent to open at 23,207 points on Monday.
@@ -1249,7 +1249,7 @@ The Hang Seng Index lost 0.94 percent to open at 23,207 points on Monday.
 
 # Four large state-owned banks recapitalise
 
-![The fundraising will boost the ability of the banks to bolster the real economy. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798177_1_20250331072356.jpg&q=90)
+![The fundraising will boost the ability of the banks to bolster the real economy. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798177_1_20250331072356.jpg&q=80)
   
 
 Four of the mainland's largest state-owned banks said on Sunday they plan to raise a combined 520 billion yuan (US$71.60 billion) in private placements from investors, including the Ministry of Finance (MOF), after Beijing pledged to help them support the economy.
@@ -1273,7 +1273,7 @@ Four of the mainland's largest state-owned banks said on Sunday they plan to rai
 
 # Wall Street tumbles over economy, inflation fears
 
-![All three major indices closed sharply lower, with the Dow tumbling 1.7 percent, the S&P 500 losing 2 percent and Nasdaq diving 2.7 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797974_1_20250329070631.jpg&q=75)
+![All three major indices closed sharply lower, with the Dow tumbling 1.7 percent, the S&P 500 losing 2 percent and Nasdaq diving 2.7 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797974_1_20250329070631.jpg&q=45)
   
 
 Stock markets plunged Friday as a closely watched US inflation reading heated up amid intensifying concerns over fallout from US President Donald Trump's incoming wave of tariffs.
@@ -1297,7 +1297,7 @@ Stock markets plunged Friday as a closely watched US inflation reading heated up
 
 # MTR fares to freeze under adjustment mechanism
 
-![While MTR fares will freeze for 2025-26, commuters could face a steep hike next year after 3.36 percent of adjustments are brought forward. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797892_1_20250328173801.jpg&q=90)
+![While MTR fares will freeze for 2025-26, commuters could face a steep hike next year after 3.36 percent of adjustments are brought forward. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797892_1_20250328173801.jpg&q=85)
   
 
 There is relief for MTR passengers after the fare adjustment formula – which takes into account factors such as inflation and median household income – showed that fares would freeze for the coming year.
@@ -1321,7 +1321,7 @@ There is relief for MTR passengers after the fare adjustment formula – which t
 
 # Hong Kong stocks close lower
 
-![The Hang Seng Index finished down 0.7 percent at 23,426. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797890_1_20250328170005.jpg&q=80)
+![The Hang Seng Index finished down 0.7 percent at 23,426. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797890_1_20250328170005.jpg&q=60)
   
 
 Hong Kong stocks ended lower on Friday, with the benchmark Hang Seng Index down 0.7 percent at 23,426.
@@ -1345,7 +1345,7 @@ Hong Kong stocks ended lower on Friday, with the benchmark Hang Seng Index down 
 
 # HK stock swings propel derivatives trade to highs
 
-![The number of outstanding futures and options contracts on the city's bourse has surpassed the record set last year by 70 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797841_1_20250328124759.jpg&q=80)
+![The number of outstanding futures and options contracts on the city's bourse has surpassed the record set last year by 70 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797841_1_20250328124759.jpg&q=70)
   
 
 Big swings in stock markets and hedge fund activity have propelled Hong Kong's derivative trading to unprecedented highs.
@@ -1369,7 +1369,7 @@ Big swings in stock markets and hedge fund activity have propelled Hong Kong's d
 
 # Autos lead market losses after Trump's new tariffs
 
-![A line of Porsche cars is displayed outside a dealership in Edmonton, Canada. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797782_1_20250328071224.jpg&q=85)
+![A line of Porsche cars is displayed outside a dealership in Edmonton, Canada. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797782_1_20250328071224.jpg&q=75)
   
 
 Automakers were battered on Thursday as stock markets fell on both sides of the Atlantic after US President Donald Trump announced significant tariffs on imported vehicles and parts, pressing ahead with tough trade policies many fear will spark a recession.
@@ -1393,7 +1393,7 @@ Automakers were battered on Thursday as stock markets fell on both sides of the 
 
 # Hong Kong stocks close higher
 
-![The Hang Seng Index finished up 0.4 percent at 23,578. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797701_1_20250327165821.jpg&q=75)
+![The Hang Seng Index finished up 0.4 percent at 23,578. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797701_1_20250327165821.jpg&q=45)
   
 
 Hong Kong stocks ended higher on Thursday, with the benchmark Hang Seng Index up 0.4 percent at 23,578.
@@ -1417,7 +1417,7 @@ Hong Kong stocks ended higher on Thursday, with the benchmark Hang Seng Index up
 
 # S Korea braces for tariffs hit on auto sector
 
-![Kia cars await shipment to overseas markets in Pyeongtaek, South Korea. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797671_1_20250327140201.jpg&q=90)
+![Kia cars await shipment to overseas markets in Pyeongtaek, South Korea. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797671_1_20250327140201.jpg&q=85)
   
 
 South Korea's auto sector is expected to face "considerable difficulties" when US import tariffs on cars announced by President Donald Trump take effect and the government plans an emergency response by April, the industry minister said.

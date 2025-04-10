@@ -72,7 +72,7 @@ Hong Kong, China Sanda martial artist Leung Yu-hong triumphed at the 10th Sanda 
 
 # US backtracks on some food aid cuts: UN
 
-![A WFP distribution centre in Chad, one of eight countries where the US is ending emergency funding. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799695_1_20250410080414.jpg&q=90)
+![A WFP distribution centre in Chad, one of eight countries where the US is ending emergency funding. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799695_1_20250410080414.jpg&q=85)
   
 
 The United States has backtracked on emergency food aid cuts it announced for 14 countries, restoring assistance to six of them, the UN's World Food Program said on Wednesday.
@@ -96,7 +96,7 @@ The United States has backtracked on emergency food aid cuts it announced for 14
 
 # Israel says its seizing 'large areas' of Gaza
 
-![Palestinian rescuers work at the site of an Israeli strike on a residential area in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799691_1_20250410071647.jpg&q=60)
+![Palestinian rescuers work at the site of an Israeli strike on a residential area in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799691_1_20250410071647.jpg&q=25)
   
 
 Israel said on Wednesday its troops were seizing "large areas" in Gaza and making the Palestinian territory "smaller and more isolated", as an air strike on a residential block killed at least 23 people.
@@ -144,7 +144,7 @@ The French government has cut its growth forecast for 2025 because of the uncert
 
 # Wall Street soars on Trump tariff pause
 
-![All three major indices on Wall Street made dramatic gains after Donald Trump changed course. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799682_1_20250410051523.jpg&q=90)
+![All three major indices on Wall Street made dramatic gains after Donald Trump changed course. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799682_1_20250410051523.jpg&q=85)
   
 
 Wall Street stocks rocketed to close solidly higher on Wednesday, with dramatic advances on all three major indexes as US President Donald Trump delayed steep new tariffs hours after they took effect.
@@ -168,7 +168,7 @@ Wall Street stocks rocketed to close solidly higher on Wednesday, with dramatic 
 
 # Deaths mount in Dominican Republic nightclub disaster
 
-![Rescue teams working at the Jet Set nightclub a day after the collapse of its roof in Santo Domingo. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799679_1_20250410034524.jpg&q=60)
+![Rescue teams working at the Jet Set nightclub a day after the collapse of its roof in Santo Domingo. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799679_1_20250410034524.jpg&q=30)
   
 
 Relatives of people trapped under the rubble of a Dominican Republic nightclub that collapsed, killing over 120, waited anxiously for news on Wednesday as hopes of finding their loved ones alive began to fade.
@@ -216,7 +216,7 @@ US President Donald Trump abruptly backed down on Wednesday in his global trade 
 
 # Premier League claims fifth Champions League spot
 
-![Arsenal's shock 3-0 win over 15-time European champions Real Madrid in the first leg of their quarter-final included two stunning free kicks from Declan Rice. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799668_1_20250410001250.jpg&q=80)
+![Arsenal's shock 3-0 win over 15-time European champions Real Madrid in the first leg of their quarter-final included two stunning free kicks from Declan Rice. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799668_1_20250410001250.jpg&q=60)
   
 
 Arsenal's 3-0 win over Real Madrid means at least five Premier League teams will play in next season's Champions League, the English top flight confirmed on Wednesday.
@@ -240,7 +240,7 @@ Arsenal's 3-0 win over Real Madrid means at least five Premier League teams will
 
 # SAR rescue team returns home from Myanmar
 
-![The government holds a welcome-home ceremony for the SAR rescue team at Chek Lap Kok airport. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799667_1_20250409230545.jpg&q=90)
+![The government holds a welcome-home ceremony for the SAR rescue team at Chek Lap Kok airport. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799667_1_20250409230545.jpg&q=85)
   
 
 The SAR's search and rescue team on Wednesday night returned home from Myanmar, where they supported relief efforts following a devastating earthquake that struck the country last month.
@@ -264,7 +264,7 @@ The SAR's search and rescue team on Wednesday night returned home from Myanmar, 
 
 # EU greenlights first set of tariffs hitting back at US
 
-![Europe's response to Trump's latest tariffs salvo yet to be announced. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799659_1_20250409220122.jpg&q=85)
+![Europe's response to Trump's latest tariffs salvo yet to be announced. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799659_1_20250409220122.jpg&q=75)
   
 
 The EU on Wednesday adopted its first measures hitting back at US President Donald Trump's tariffs, targeting more than 20 billion euros of US products including soybeans, motorcycles and beauty products.
@@ -288,7 +288,7 @@ The EU on Wednesday adopted its first measures hitting back at US President Dona
 
 # China condemns US bill that threatens HKETOs
 
-![Beijing says certain US politicians should stop interfering in Hong Kong affairs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799653_1_20250409201808.jpg&q=85)
+![Beijing says certain US politicians should stop interfering in Hong Kong affairs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799653_1_20250409201808.jpg&q=75)
   
 
 Beijing on Wednesday denounced the reintroduction of a United States bill that threatens closures of Hong Kong's Economic and Trade Offices (ETO) in the country.
@@ -312,7 +312,7 @@ Beijing on Wednesday denounced the reintroduction of a United States bill that t
 
 # Beijing announces 50pc tariff increase on US goods
 
-![China is to impose 84 percent tariffs on US goods from April 10. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799644_1_20250409193243.jpg&q=85)
+![China is to impose 84 percent tariffs on US goods from April 10. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799644_1_20250409193243.jpg&q=75)
   
 
 China will increase tariffs on US goods by 50 percent, bringing it to a total of 84 percent, the finance ministry said on Wednesday.
@@ -360,7 +360,7 @@ Gaza's civil defence agency said an Israeli strike on a residential building in 
 
 # Hezbollah 'ready for talks on disarmament'
 
-![Israeli military exhibit seized Hezbollah weapons, without specifying when and where they were confiscated, near the border with Lebanon last year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799628_1_20250409180051.jpg&q=90)
+![Israeli military exhibit seized Hezbollah weapons, without specifying when and where they were confiscated, near the border with Lebanon last year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799628_1_20250409180051.jpg&q=85)
   
 
 As calls for Lebanon's Hezbollah to disarm gain momentum, a senior official from the group said it is ready to hold talks with the Lebanese president about its weapons if Israel withdraws from south Lebanon and stops its strikes.
@@ -384,7 +384,7 @@ As calls for Lebanon's Hezbollah to disarm gain momentum, a senior official from
 
 # Rescue teams return to Beijing from quake-hit Myanmar
 
-![The teams arrived at the Beijing Capital International Airport at about 4pm. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799620_1_20250409165725.jpg&q=90)
+![The teams arrived at the Beijing Capital International Airport at about 4pm. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799620_1_20250409165725.jpg&q=80)
   
 
 Search and rescue teams from Hong Kong and the mainland returned to Beijing on Wednesday afternoon after completing their missions in quake-hit Myanmar.
@@ -408,7 +408,7 @@ Search and rescue teams from Hong Kong and the mainland returned to Beijing on W
 
 # Hang Seng Index bucks downward trend
 
-![The Hang Seng Index closes up 0.68 percent on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799622_1_20250409170856.jpg&q=75)
+![The Hang Seng Index closes up 0.68 percent on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799622_1_20250409170856.jpg&q=40)
   
 
 Equities tumbled on Wednesday after US President Donald Trump ramped up his trade war by hitting China with tariffs of more than 100 percent.
@@ -432,7 +432,7 @@ Equities tumbled on Wednesday after US President Donald Trump ramped up his trad
 
 # Small parcels tariff triples in Trump escalation
 
-![Small parcels sent from Hong Kong after May 2 and before June 1 will be subject to a US$75 levy and US$150 after that. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799614_2_20250409164405.jpg&q=85)
+![Small parcels sent from Hong Kong after May 2 and before June 1 will be subject to a US$75 levy and US$150 after that. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799614_2_20250409164405.jpg&q=75)
   
 
 The US tariff on small goods parcels sent from mainland China and Hong Kong has been tripled in the latest escalation by US President Donald Trump of the ongoing trade war between the world’s two biggest economies.
@@ -456,7 +456,7 @@ The US tariff on small goods parcels sent from mainland China and Hong Kong has 
 
 # Revamped HK$2 subsidy scheme to take effect earlier
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799608_1_20250409161316.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799608_1_20250409161316.jpg&q=90)
   
 
 The government said changes to the HK$2 transport subsidy scheme will be in place sooner than expected.
@@ -504,7 +504,7 @@ China said on Wednesday it is verifying reports of Chinese nationals being captu
 
 # 'China has firm will to take countermeasures'
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799607_1_20250409160409.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799607_1_20250409160409.jpg&q=65)
   
 
 The Commerce Ministry said China will resolutely take countermeasures and fight till the end if the United States insists on further escalating economic and trade restrictive measures, with firm will and abundant means.
@@ -552,7 +552,7 @@ President Xi Jinping has made a key speech at a government meeting in Beijing, w
 
 # China-US trade ties mutually beneficial: white paper
 
-![The white paper says the world anticipates China-US cooperation to generate more development opportunities. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799602_1_20250409154105.jpg&q=90)
+![The white paper says the world anticipates China-US cooperation to generate more development opportunities. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799602_1_20250409154105.jpg&q=80)
   
 
 China-US economic and trade relations are mutually beneficial and win-win in nature, and cooperation benefits both sides while confrontation harms both, said a white paper released by the State Council Information Office on Wednesday.
@@ -600,7 +600,7 @@ Social worker Jackie Chen was on Wednesday handed a three-year, nine-month priso
 
 # Risk-off mode on as new US duties curb appetites
 
-![The Hang Seng Index has been volatile amid a tit-for-tat tariffs fight that may escalate even further after Donald Trump's 50 percent levy takes effect on Wednesday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799583_1_20250409143912.jpg&q=80)
+![The Hang Seng Index has been volatile amid a tit-for-tat tariffs fight that may escalate even further after Donald Trump's 50 percent levy takes effect on Wednesday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799583_1_20250409143912.jpg&q=70)
   
 
 The 50 percent in extra US duties levied on imports from China on Wednesday have further accelerated deleveraging by investors.
@@ -624,7 +624,7 @@ The 50 percent in extra US duties levied on imports from China on Wednesday have
 
 # MTR warns of Tung Chung-Sunny Bay service disruption
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799574_1_20250409122315.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799574_1_20250409122315.jpg&q=85)
   
 
 Train services between Tung Chung and Sunny Bay will end earlier next Saturday to make way for track diversion work as part of the line's extension, MTR officials said on Wednesday.
@@ -648,7 +648,7 @@ Train services between Tung Chung and Sunny Bay will end earlier next Saturday t
 
 # Shai holds court as Lakers sink after Doncic ejection
 
-![Oklahoma City Thunder guards shut down Pau Gasol of the Los Angeles Lakers in the midst of a shot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799573_1_20250409122147.jpg&q=90)
+![Oklahoma City Thunder guards shut down Pau Gasol of the Los Angeles Lakers in the midst of a shot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799573_1_20250409122147.jpg&q=85)
   
 
 Shai Gilgeous-Alexander scored 42 points as the Oklahoma City Thunder bounced back to defeat the Los Angeles Lakers 136-120 in a hard-fought battle that saw Luka Doncic controversially ejected in the fourth quarter.
@@ -672,7 +672,7 @@ Shai Gilgeous-Alexander scored 42 points as the Oklahoma City Thunder bounced ba
 
 # New technologies can speed up housing projects: govt
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799568_1_20250409120045.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799568_1_20250409120045.jpg&q=90)
   
 
 Secretary for Housing Winnie Ho said new construction technologies can speed up housing projects and that residents living in substandard subdivided flats will not go homeless amid policy changes.
@@ -720,7 +720,7 @@ A fire at a nursing home in Hebei province has left 20 people dead, local author
 
 # HK exporters 'furious over Trump tariffs'
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799561_1_20250409111723.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799561_1_20250409111723.jpg&q=85)
   
 
 A commercial-sector lawmaker said on Wednesday US President Donald Trump's tariffs on China are an act of bullying.
@@ -744,7 +744,7 @@ A commercial-sector lawmaker said on Wednesday US President Donald Trump's tarif
 
 # 'HK well-prepared to face any trade disruptions'
 
-![HKTDC's Irina Fan says Hong Kong's diversified trade links will help it withstand any pressure from new US tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799560_1_20250409111312.jpg&q=75)
+![HKTDC's Irina Fan says Hong Kong's diversified trade links will help it withstand any pressure from new US tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799560_1_20250409111312.jpg&q=50)
   
 
 A senior official with the Hong Kong Trade Development Council (HKTDC) on Wednesday said the SAR would be resilient in the face of ongoing uncertainty from the new tariffs imposed by the Trump administration.
@@ -792,7 +792,7 @@ Leung Chai-yan, the elder daughter of former SAR chief executive CY Leung, has d
 
 # Zverev suffers shock exit at Monte-Carlo Masters
 
-![Alexander Zverev crashed out in his opening match against Italy's Matteo Berrettini. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799545_1_20250409100453.jpg&q=90)
+![Alexander Zverev crashed out in his opening match against Italy's Matteo Berrettini. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799545_1_20250409100453.jpg&q=85)
   
 
 Top seed Alexander Zverev crashed out in his opening match of the Monte-Carlo Masters with Italy's Matteo Berrettini as defending champion Stefanos Tsitsipas and Britain's Jack Draper both advanced.
@@ -816,7 +816,7 @@ Top seed Alexander Zverev crashed out in his opening match of the Monte-Carlo Ma
 
 # Late Frattesi strike gives Inter edge over Bayern
 
-![Inter Milan seized control with a dramatic 2-1 victory over Bayern Munich. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799544_1_20250409095949.jpg&q=85)
+![Inter Milan seized control with a dramatic 2-1 victory over Bayern Munich. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799544_1_20250409095949.jpg&q=75)
   
 
 An 88th-minute Davide Frattesi goal took Inter Milan to a 2-1 win at Bayern Munich, giving the Italians the edge after the first leg of their Champions League quarter-final.
@@ -840,7 +840,7 @@ An 88th-minute Davide Frattesi goal took Inter Milan to a 2-1 win at Bayern Muni
 
 # Arsenal stun Real Madrid with Rice's free-kick magic
 
-![Arsenal delivered a dominant 3-nil victory against reigning titleholders Real Madrid. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799541_1_20250409095732.jpg&q=85)
+![Arsenal delivered a dominant 3-nil victory against reigning titleholders Real Madrid. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799541_1_20250409095732.jpg&q=80)
   
 
 Mikel Arteta admitted Arsenal defied the odds with their stunning 3-0 win against Real Madrid as Declan Rice's free-kick magic left the Champions League holders in disarray.
@@ -864,7 +864,7 @@ Mikel Arteta admitted Arsenal defied the odds with their stunning 3-0 win agains
 
 # Hong Kong stocks plunge more than 3pc at open
 
-![Hong Kong stocks dropped further, after recovering just over one percent the previous day, following Monday's 13.2 percent dive. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799529_1_20250409085033.jpg&q=75)
+![Hong Kong stocks dropped further, after recovering just over one percent the previous day, following Monday's 13.2 percent dive. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799529_1_20250409085033.jpg&q=50)
   
 
 Mainland and Hong Kong shares fell at the open on Wednesday as the US trade war escalated, following Washington's decision to impose 104 percent tariffs on Chinese goods, starting around noon, Hong Kong time.
@@ -936,7 +936,7 @@ US President Donald Trump's "reciprocal" tariffs on dozens of countries took eff
 
 # Trump signs order to 'turbocharge' coal mining in US
 
-![President Trump speaks next to coal industry workers, on the day he signs energy-related executive orders at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799521_1_20250409073316.jpg&q=90)
+![President Trump speaks next to coal industry workers, on the day he signs energy-related executive orders at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799521_1_20250409073316.jpg&q=80)
   
 
 US President Donald Trump on Tuesday signed executive orders to "turbocharge coal mining" in the country, seeking to "more than double" electricity production to keep up with power-hungry artificial intelligence technology.
@@ -960,7 +960,7 @@ US President Donald Trump on Tuesday signed executive orders to "turbocharge coa
 
 # At least 98 dead in Dominican Republic roof collapse
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799520_1_20250409073023.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799520_1_20250409073023.jpg&q=60)
   
 
 Rescuers raced to find survivors on Tuesday among the rubble of a Dominican Republic nightclub where at least 98 people, including a Major League Baseball star, were killed when the roof collapsed.
@@ -1008,7 +1008,7 @@ Wall Street stocks tumbled again on Tuesday as initially successful efforts to r
 
 # Grand National winning jockey Mullins suspended
 
-![Disciplinary officials found Patrick Mullins had used his whip one above the permitted level of seven from the final fence. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799506_1_20250409031635.jpg&q=85)
+![Disciplinary officials found Patrick Mullins had used his whip one above the permitted level of seven from the final fence. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799506_1_20250409031635.jpg&q=75)
   
 
 Patrick Mullins has been given an eight-day suspension after he was found to have breached whip rules when riding Nick Rockett to Grand National glory on Saturday.
@@ -1056,7 +1056,7 @@ The Denver Nuggets, mired in a four-game losing streak as the NBA playoffs appro
 
 # UN chief says Gaza transformed into 'killing field'
 
-![Antonio Guterres also raised the alarm about the situation in the West Bank. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799501_1_20250409013523.jpg&q=90)
+![Antonio Guterres also raised the alarm about the situation in the West Bank. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799501_1_20250409013523.jpg&q=85)
   
 
 United Nations Secretary-General Antonio Guterres said on Tuesday that Gaza had become "a killing field," blaming Israel for blocking aid and failing in its "unequivocal obligations" to meet the needs of the Palestinian territory's residents.
@@ -1128,7 +1128,7 @@ Referees at this year's Club World Cup will be equipped with body cameras and in
 
 # Deadly nightclub disaster rocks Dominican Republic
 
-![Rescue staff find a survivor at the Jet Set nightclub in Santo Domingo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799484_1_20250408221231.jpg&q=90)
+![Rescue staff find a survivor at the Jet Set nightclub in Santo Domingo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799484_1_20250408221231.jpg&q=85)
   
 
 Rescuers were on Tuesday racing to find survivers among the rubble of a Dominican Republic night club where at least 18 people died and dozens were hurt in an early-morning roof collapse.
@@ -1152,7 +1152,7 @@ Rescuers were on Tuesday racing to find survivers among the rubble of a Dominica
 
 # Fans delight as Coldplay kick off HK tour
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799473_1_20250408193720.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799473_1_20250408193720.jpg&q=80)
   
 
 There was fanfare at the Kai Tak Stadium on Tuesday evening as Coldplay kicked off the first of four concerts in Hong Kong on its current world tour.
@@ -1176,7 +1176,7 @@ There was fanfare at the Kai Tak Stadium on Tuesday evening as Coldplay kicked o
 
 # Tram fares to go up on May 12
 
-![Tram fares for those aged 12 and above will rise by 30 cents to HK$3.30. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799459_1_20250408181035.jpg&q=85)
+![Tram fares for those aged 12 and above will rise by 30 cents to HK$3.30. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799459_1_20250408181035.jpg&q=75)
   
 
 Tram fares will go up by up to 15 percent starting from May 12.
@@ -1200,7 +1200,7 @@ Tram fares will go up by up to 15 percent starting from May 12.
 
 # HK to target creative industry in strategic push
 
-![Financial Secretary Paul Chan, centre back row, says more than 80 strategic enterprises have set up in Hong Kong in the past two years. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799460_1_20250408181322.jpg&q=90)
+![Financial Secretary Paul Chan, centre back row, says more than 80 strategic enterprises have set up in Hong Kong in the past two years. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799460_1_20250408181322.jpg&q=80)
   
 
 Financial Secretary Paul Chan said on Tuesday the Office for Attracting Strategic Enterprises, OASES, will seek to attract cultural enterprises in the future in a way that combines innovation and technology with artistry.
@@ -1224,7 +1224,7 @@ Financial Secretary Paul Chan said on Tuesday the Office for Attracting Strategi
 
 # HK stocks end with slight rebound
 
-![The Hang Seng Index ended the day 299.38 points, or 1.51 percent, higher at 20,127.68. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799430_2_20250408171407.jpg&q=80)
+![The Hang Seng Index ended the day 299.38 points, or 1.51 percent, higher at 20,127.68. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799430_2_20250408171407.jpg&q=65)
   
 
 Asian and European markets battled on Tuesday to recover from the previous day's tariff-fuelled collapse, though Donald Trump's warning of more measures against China and Beijing's vow to "fight to the end" raised concerns of a spiralling trade war.
@@ -1296,7 +1296,7 @@ English Premier League giants Manchester United on Tuesday announced that they'l
 
 # Seeds of joy on China's farms in field of tariffs woe
 
-![Customs officers inspect imported soybeans in Binzhou, Shandong, with the Trump tariffs set to put paid to US exports to China. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799433_1_20250408160927.jpg&q=85)
+![Customs officers inspect imported soybeans in Binzhou, Shandong, with the Trump tariffs set to put paid to US exports to China. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799433_1_20250408160927.jpg&q=70)
   
 
 Chinese agricultural stocks rose sharply on Tuesday as investors bet tariffs would limit US agricultural imports and boost domestic producers, defying a broader market crash sparked by the escalating Sino-US trade war.
@@ -1368,7 +1368,7 @@ China on Tuesday condemned US Vice President JD Vance as "ignorant and impolite"
 
 # Any Trump bid to weaken greenback 'set to fail'
 
-![Donald Trump will find it extremely hard to get China and Europe to consent to a devaluation for the greenback after antagonising them with his tariffs' move. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799408_1_20250408135600.jpg&q=90)
+![Donald Trump will find it extremely hard to get China and Europe to consent to a devaluation for the greenback after antagonising them with his tariffs' move. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799408_1_20250408135600.jpg&q=80)
   
 
 Any American attempt to pull off a 1985 Plaza Accord-type coordinated depreciation of the US dollar likely won't work as it would require the consent of China and Europe, Japan's former top currency diplomat Naoyuki Shinohara said on Tuesday.
@@ -1416,7 +1416,7 @@ A transport worker convicted of rioting and wounding with intent in Yuen Long in
 
 # YouTuber's flash visit 'shows HK is fun'
 
-![Rosanna Law says anyone can have fun in Hong Kong as long as they follow the rules. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799398_1_20250408122906.jpg&q=80)
+![Rosanna Law says anyone can have fun in Hong Kong as long as they follow the rules. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799398_1_20250408122906.jpg&q=90)
   
 
 YouTube streamer IShowSpeed's flash visit to the city last week shows that Hong Kong is safe, fun and open, according to Secretary for Culture, Sports and Tourism Rosanna Law.
