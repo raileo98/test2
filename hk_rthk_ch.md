@@ -1,3 +1,27 @@
+# 習近平：中國與拉美關係進入新階段　樹立南南合作典範
+
+![習近平指出，中拉關係歷經國際風雲變幻考驗，已經進入平等、互利、創新、開放、惠民的新階段。（新華社資料圖片）](https://wsrv.nl/?n=-1&w=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799758_1_20250410135938.jpg&q=85)
+  
+
+拉美和加勒比國家共同體第九屆峰會在輪值主席國洪都拉斯舉行，國家主席習近平向峰會致賀信。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799758-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799758-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799758-20250410.htm)
+
+---
+
 # 報道：內地決策層今日召開重要會議　討論推出更多經濟刺激政策
 
 ![據報內地決策層今日召開重要會議，討論推出更多經濟刺激政策，聚焦樓市、消費和科技創新等領域。（新華社資料圖片）](https://wsrv.nl/?n=-1&w=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799753_1_20250410131146.jpg&q=75)
@@ -308,7 +332,7 @@
 
 # 恒指半日升幅收窄至364點　成交逾2400億元
 
-![恒指中午收市報20628點，升364點，升幅1.8%。（恒指公司圖片）](https://wsrv.nl/?n=-1&w=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799737_1_20250410121013.jpg&q=80)
+![恒指中午收市報20628點，升364點，升幅1.8%。（周國安攝）](https://wsrv.nl/?n=-1&w=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799737_2_20250410140146.jpg&q=90)
   
 
 美國對中國加徵的關稅稅率提升至125%，但暫緩對其他國家徵收較高稅率的對等關稅90日，港股跟隨外圍高開500多點後，升幅最多擴大至近950點，高位見21211點，臨近中午收市升幅收窄。恒生指數中午收市報20628點，升364點，升幅1.8%，主板半日成交額2454億元。
