@@ -1,3 +1,27 @@
+# 商務部：對話必須在相互尊重基礎上以平等方式進行
+
+![發言人重申，中方的立場明確和一貫，談判大門敞開，但對話必須在相互尊重的基礎上以平等方式進行。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799772_1_20250410154014.jpg&q=90)
+  
+
+在北京，商務部發言人表示，中方不惹事也不怕事，中國人民和世界人民的正當發展權利不容剝奪，中國和世界各國主權安全發展利益不容侵犯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm)
+
+---
+
 # 商務部：面對美國霸凌關稅　中方將堅定不移推進高水平對外開放
 
 ![商務部下午召開新聞發布會。（中國網直播截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799769_1_20250410151926.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799367-20250408.htm)
-
----
-
-# 陳國基稱將引導市民特別是年輕一代深入認識香港抗戰歷史
-
-![陳國基昨日下午聯同「愛國主義教育工作小組」成員到沙頭角烏蛟騰，實地考察其中一條沙頭角抗戰文物徑。（陳國基社交網站圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799366_1_20250408102413.jpg&q=25)
-  
-
-今年是抗戰勝利80周年，特區政府將舉辦一系列紀念活動。政務司司長陳國基昨日下午聯同「愛國主義教育工作小組」成員到沙頭角烏蛟騰，實地考察其中一條沙頭角抗戰文物徑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799366-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799366-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799366-20250408.htm)
 
 ---
