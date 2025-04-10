@@ -290,7 +290,7 @@ async def process_article(fg, category, article):
         imgList = set()
         images = article_soup.select('.items_content .imgPhotoAfterLoad')
         for image in images:
-            raw_img_url = 'https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src'])
+            raw_img_url = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src'])
             imgUrl = modify_image_url(raw_img_url, 99).replace('_S_', '_L_').replace('_M_', '_L_').replace('_L_', '_')
             imgList.add(imgUrl)
             latest_imgUrl = await optimize_image_quality(imgUrl)
@@ -305,7 +305,7 @@ async def process_article(fg, category, article):
                     match = re.search(r"videoThumbnail\s{0,1000}=\s{0,1000}'(.*)'", script.text)
                     if match:
                         video_thumbnail = match.group(1)
-                        raw_img_url = 'https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail)
+                        raw_img_url = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail)
                         imgUrl = modify_image_url(raw_img_url, 99).replace('_S_', '_L_').replace('_M_', '_L_').replace('_L_', '_')
                         imgList.add(imgUrl)
                         latest_imgUrl = await optimize_image_quality(imgUrl)
