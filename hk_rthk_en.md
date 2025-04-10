@@ -1,3 +1,27 @@
+# China and EU vow to strengthen trade ties
+
+![Commerce Minister Wang Wentao urged China and the EU to jointly safeguard the rules-based multilateral trading system. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799711_1_20250410093209.jpg&q=90)
+  
+
+China and the European Union have exchanged views on strengthening their economic and trade cooperation in response to US tariffs, the Ministry of Commerce said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799711-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799711-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799711-20250410.htm)
+
+---
+
 # Local stocks surge after Trump tariff reversal
 
 ![Hong Kong stocks open 2.69 percent higher in tariff relief rally. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799708_1_20250410092223.jpg&q=90)
@@ -1411,29 +1435,5 @@ YouTube streamer IShowSpeed's flash visit to the city last week shows that Hong 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm)
-
----
-
-# Beijing prepared for US tariff retaliation: Regina Ip
-
-![Regina Ip said the SAR government should come up with policies in case of a global recession. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799392_1_20250408122043.jpg&q=90)
-  
-
-The central government is well prepared and has a broad arsenal to respond to any further tariff escalation by US President Donald Trump, according to Executive Council convenor Regina Ip.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799392-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799392-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799392-20250408.htm)
 
 ---

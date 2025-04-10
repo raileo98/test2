@@ -1,3 +1,27 @@
+# China and EU vow to strengthen trade ties
+
+![Commerce Minister Wang Wentao urged China and the EU to jointly safeguard the rules-based multilateral trading system. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799711_1_20250410093209.jpg&q=90)
+  
+
+China and the European Union have exchanged views on strengthening their economic and trade cooperation in response to US tariffs, the Ministry of Commerce said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799711-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799711-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799711-20250410.htm)
+
+---
+
 # China condemns US bill that threatens HKETOs
 
 ![Beijing says certain US politicians should stop interfering in Hong Kong affairs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799653_1_20250409201808.jpg&q=85)
@@ -1415,29 +1439,5 @@ Foreign Minister Wang Yi will meet top French diplomat Jean-Noel Barrot on Thurs
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm)
-
----
-
-# Trump hints at lower tariffs for China over TikTok
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
-  
-
-US President Donald Trump said on Wednesday he would be willing to reduce tariffs to get a deal done with TikTok's Chinese parent ByteDance to sell the short video app used by 170 million Americans.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm)
 
 ---

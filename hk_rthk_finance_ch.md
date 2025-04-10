@@ -1,3 +1,99 @@
+# 恒指升幅擴至逾900點　重上21000點以上
+
+![港股升幅擴大至逾900點，恒指重上21000點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799716_1_20250410100209.jpg&q=90)
+  
+
+港股升幅擴大逾900點，恒指重上21000點，較早時報21185點，升920點，升幅4.54%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799716-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799716-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799716-20250410.htm)
+
+---
+
+# 內地3月通縮0.1%
+
+![內地3月居民消費價格指數（CPI）按年跌0.1%；首季亦跌0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799715_1_20250410095829.jpg&q=70)
+  
+
+國家統計局公布，3月居民消費價格指數（CPI）按年跌0.1%，連跌兩個月，但跌幅較2月收窄0.6個百分點。食品價格跌1.4%，非食品價格升0.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm)
+
+---
+
+# 陳美寶稱全速推展智慧綠色集體運輸系統項目
+
+![陳美寶說，當局亦正檢討與交通相關的收費和罰款，包括停車收費錶及交通違例事項定額罰款等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799714_1_20250410101213.jpg&q=85)
+  
+
+運輸及物流局局長陳美寶表示，正在施工的東涌線延綫、小蠔灣站、屯門南延綫、古洞站和洪水橋站將在2027年起落成。北環綫主線的前期建造工程亦已展開，目標是於2034年落成。政府亦正全速推展智慧綠色集體運輸系統項目，目標是分別於今年就啟德項目招標，明年就東九龍及洪水橋／厦村及元朗南新發展區項目招標，希望於翌年批出合約。同時，力爭於今年內就南港島綫（西段）項目開展詳細規劃及設計。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799714-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799714-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799714-20250410.htm)
+
+---
+
+# 人行逆回購操作659億元人民幣
+
+![人行進行659億元人民幣7日期逆回購操作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799710_1_20250410093001.jpg&q=90)
+  
+
+人民銀行公開市場進行659億元人民幣7日期逆回購操作，利率維持在1.5厘，對沖到期量後，單日淨回籠1575億元，連續兩日淨回籠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799710-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799710-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799710-20250410.htm)
+
+---
+
 # 滬深股市初段造好　上證指數重上3200點
 
 ![上證指數收復3200點，較早時報3213點，升26點，升幅0.82%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799713_1_20250410093659.jpg&q=90)
@@ -694,6 +790,30 @@
 
 ---
 
+# 政府稱未能估算市場何時完全消化寫字樓供應　檢討商業地擬增彈性
+
+![發展局考慮將部分商業用地改劃作住宅用途，檢視位置包括洪水橋/厦村、東涌東新市鎮擴展區、沙田石門及九龍東等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799647_1_20250409213916.jpg&q=65)
+  
+
+發展局表示，政府近年積極招商引資，落戶香港的企業會增加對寫字樓的需求。由於需求是動態和受制於很多因素，未能估算市場何時能完全消化寫字樓供應。發展局書面回覆立法會議員提問時表示，差餉物業估價署上月公布初步統計數字顯示，今年私人寫字樓的預測總落成量約為30萬9千米，明年則有11萬6千平方米。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm)
+
+---
+
 # 中國移動香港斥資約11.96億元入股香港寬頻成大股東之一
 
 ![中國移動香港斥資約11.96億元入股香港寬頻，成為公司大股東之一。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799645_1_20250409194356.jpg&q=90)
@@ -1315,125 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799578-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799578-20250409.htm)
-
----
-
-# 日股及台股跌幅擴至近5%至逾6%　日圓及金價升約1%
-
-![日股及台股跌幅擴大至近5%至6%以上。南韓股市跌1.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799576_1_20250409125307.jpg&q=90)
-  
-
-美國的對等關稅生效，金融市場波動加大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799576-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799576-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799576-20250409.htm)
-
----
-
-# 恒指半日跌312點
-
-![恒指半日收報19815點，跌312點，跌幅1.55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799571_1_20250409121028.jpg&q=90)
-  
-
-貿易戰陰霾下，港股下挫，但收復早段大部分跌勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799571-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799571-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799571-20250409.htm)
-
----
-
-# 內地股市半日升逾0.2%至0.6%
-
-![上證指數半日收報3152點，升7點，升幅0.24%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799563_1_20250409114027.jpg&q=90)
-  
-
-滬深股市低開高走。軍工裝備、半導體股上升；旅遊及酒店相關股份下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799563-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799563-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799563-20250409.htm)
-
----
-
-# 亞開行料美國關稅將拖累今明兩年亞洲發展中國家經濟表現
-
-![ADB表示，美國實施全面關稅可能令亞洲發展中國家今年經濟增速下跌約三分之一個百分點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799562_1_20250409113115.jpg&q=90)
-  
-
-亞洲開發銀行(ADB)表示，美國實施全面關稅可能令亞洲發展中國家今年經濟增速減少約三分之一個百分點，明年減少1個百分點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799562-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799562-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799562-20250409.htm)
-
----
-
-# 日本央行：正仔細分析關稅如何影響經濟和物價
-
-![植田和男表示，正仔細分析關稅將如何影響日本經濟和物價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799559_1_20250409110537.jpg&q=85)
-  
-
-日本央行總裁植田和男表示，美國的汽車關稅和對等關稅，導致國內外經濟不確定加劇，正仔細分析關稅將如何影響日本經濟和物價。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799559-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799559-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799559-20250409.htm)
 
 ---

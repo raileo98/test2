@@ -1,3 +1,123 @@
+# 恒指升幅擴至逾900點　重上21000點以上
+
+![港股升幅擴大至逾900點，恒指重上21000點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799716_1_20250410100209.jpg&q=90)
+  
+
+港股升幅擴大逾900點，恒指重上21000點，較早時報21185點，升920點，升幅4.54%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799716-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799716-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799716-20250410.htm)
+
+---
+
+# 內地3月通縮0.1%
+
+![內地3月居民消費價格指數（CPI）按年跌0.1%；首季亦跌0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799715_1_20250410095829.jpg&q=70)
+  
+
+國家統計局公布，3月居民消費價格指數（CPI）按年跌0.1%，連跌兩個月，但跌幅較2月收窄0.6個百分點。食品價格跌1.4%，非食品價格升0.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm)
+
+---
+
+# 陳美寶稱全速推展智慧綠色集體運輸系統項目
+
+![陳美寶說，當局亦正檢討與交通相關的收費和罰款，包括停車收費錶及交通違例事項定額罰款等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799714_1_20250410101213.jpg&q=85)
+  
+
+運輸及物流局局長陳美寶表示，正在施工的東涌線延綫、小蠔灣站、屯門南延綫、古洞站和洪水橋站將在2027年起落成。北環綫主線的前期建造工程亦已展開，目標是於2034年落成。政府亦正全速推展智慧綠色集體運輸系統項目，目標是分別於今年就啟德項目招標，明年就東九龍及洪水橋／厦村及元朗南新發展區項目招標，希望於翌年批出合約。同時，力爭於今年內就南港島綫（西段）項目開展詳細規劃及設計。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799714-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799714-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799714-20250410.htm)
+
+---
+
+# 洛杉磯奧運將新增22個小項　將增設乒乓混合團體賽
+
+![國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799712_1_20250410093619.jpg&q=85)
+  
+
+國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額，共設351個小項，較巴黎奧運會的329個小項增加22項，其中乒乓混合團體賽將作為新增小項登上洛杉磯奧運會舞台。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799712-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799712-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799712-20250410.htm)
+
+---
+
+# 人行逆回購操作659億元人民幣
+
+![人行進行659億元人民幣7日期逆回購操作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799710_1_20250410093001.jpg&q=90)
+  
+
+人民銀行公開市場進行659億元人民幣7日期逆回購操作，利率維持在1.5厘，對沖到期量後，單日淨回籠1575億元，連續兩日淨回籠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799710-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799710-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799710-20250410.htm)
+
+---
+
 # 滬深股市初段造好　上證指數重上3200點
 
 ![上證指數收復3200點，較早時報3213點，升26點，升幅0.82%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799713_1_20250410093659.jpg&q=90)
@@ -216,9 +336,10 @@
 
 # 澤連斯基：烏克蘭「技術團隊」將於華盛頓與美方就礦產協議磋商
 
+![澤連斯基表示，烏克蘭的「技術團隊」將會在華盛頓與美方就礦產協議展開磋商。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799699_1_20250410100354.jpg&q=90)
   
 
-烏克蘭媒體報道，烏克蘭總統澤連斯基表示，烏克蘭的「技術團隊」將會在美國首都華盛頓與美方就礦產協議展開磋商。
+烏克蘭媒體報道，總統澤連斯基表示，烏克蘭的「技術團隊」將會在美國首都華盛頓與美方就礦產協議展開磋商。
 
   
 
@@ -1314,125 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799642-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799642-20250409.htm)
-
----
-
-# 金融學院：金融機構目前GenA.I.著眼點並非取代部分工種
-
-![馮殷諾（左）稱金融機構目前視人工智能為提升效率、簡化工序的工具。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799641_1_20250409190933.jpg&q=90)
-  
-
-金融學院轄下香港貨幣及金融研究中心，就金融服務業應用生成式人工智能（GenA.I.）發表報告顯示，金融機構積極應用GenA.I.，以提升生產力及營運效率，當中以大型機構應用率較高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799641-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799641-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799641-20250409.htm)
-
----
-
-# 中方再反制　宣布對原產於美國所有進口產品再加徵50%關稅
-
-![公告說，美方升級對華關稅的做法是錯上加錯，嚴重侵犯中國正當權益，嚴重損害以規則為基礎的多邊貿易體制。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799640_1_20250409191410.jpg&q=90)
-  
-
-國務院關稅稅則委員會發布公告，自4月10日12時01分起，對原產於美國的進口商品，加徵關稅的稅率，由34%提高至84%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799640-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799640-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799640-20250409.htm)
-
----
-
-# 政府提醒市民切勿誤信以人工智能偽造特首推介投資計劃短片
-
-![政府表示，有人在網上以以人工智能偽造行政長官推介投資計劃的短片，提醒市民切勿誤信。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799639_1_20250409234029.jpg&q=90)
-  
-
-政府表示，有人在網上以以人工智能偽造行政長官推介投資計劃的短片，提醒市民切勿誤信，並強烈譴責不法分子發放虛假投資信息，事件已轉交警方跟進調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799639-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799639-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799639-20250409.htm)
-
----
-
-# 「兩蚊兩折」提早明年4月實施　有議員稱難接受
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799617_1_20250409185244.jpg&q=90)
-  
-
-《財政預算案》宣布調整二元乘車優惠計劃」，勞工及福利局局長孫玉菡指，「兩蚊兩折」優惠將提前至明年4月實施，每月240程上限則要後年才能落實。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799617-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799617-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799617-20250409.htm)
-
----
-
-# 美國10年期國債孳息率急升　分析：未清楚受短線或基本因素影響
-
-![陸庭龍認為，近期美國債息「短息跌長息高」，但當前市況混亂，仍未清楚受短線或基本因素影響。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799638_1_20250409185206.jpg&q=90)
-  
-
-美國指標10年期國債孳息率大幅抽升，在亞洲時段曾升至曾抽升至4.5厘以上，30年期國債收益率亦曾急升至近5厘，若情況持續，將創下1981年來最嚴重拋售潮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 洛杉磯奧運將新增22個小項　將增設乒乓混合團體賽
+
+![國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799712_1_20250410093619.jpg&q=85)
+  
+
+國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額，共設351個小項，較巴黎奧運會的329個小項增加22項，其中乒乓混合團體賽將作為新增小項登上洛杉磯奧運會舞台。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799712-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799712-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799712-20250410.htm)
+
+---
+
 # 《環看天下》：應對美國關稅威脅　分析：或促使中歐經貿回暖
 
 ![今年前兩個月中歐班列累計到發176列，同比增長22.9%。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799707_1_20250410092107.jpg&q=90)
@@ -48,9 +72,10 @@
 
 # 澤連斯基：烏克蘭「技術團隊」將於華盛頓與美方就礦產協議磋商
 
+![澤連斯基表示，烏克蘭的「技術團隊」將會在華盛頓與美方就礦產協議展開磋商。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799699_1_20250410100354.jpg&q=90)
   
 
-烏克蘭媒體報道，烏克蘭總統澤連斯基表示，烏克蘭的「技術團隊」將會在美國首都華盛頓與美方就礦產協議展開磋商。
+烏克蘭媒體報道，總統澤連斯基表示，烏克蘭的「技術團隊」將會在美國首都華盛頓與美方就礦產協議展開磋商。
 
   
 
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799434-20250408.htm)
-
----
-
-# 外交部：中方繼續與有關各方溝通協調　推動解決伊朗核問題
-
-![林劍表示，中方將繼續與有關各方溝通協調，推動達成兼顧各方合理關切的伊朗核問題解決方案。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799442_1_20250408164818.jpg&q=90)
-  
-
-中國、伊朗及俄羅斯昨天起一連兩日，在莫斯科舉行三方磋商，討論伊朗核問題。在北京，外交部發言人林劍表示，中方堅信通過政治外交途徑解決伊朗核問題是唯一正確的選擇，支持俄方主辦今次磋商。中方將繼續與有關各方溝通協調，推動達成兼顧各方合理關切的伊朗核問題解決方案，以維護國際核不擴散體系，維護中東地區的和平穩定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799442-20250408.htm)
 
 ---
