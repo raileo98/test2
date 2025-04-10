@@ -1,3 +1,27 @@
+# 美俄代表在伊斯坦布爾會談　商議恢復兩國外交使團運作正常化
+
+![美俄代表團2月27日亦曾在伊斯坦布爾舉行會談。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799770_1_20250410152006.jpg&q=55)
+  
+
+美國與俄羅斯代表團在土耳其伊斯坦布爾，就恢復兩國外交使團運作正常化舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799770-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799770-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799770-20250410.htm)
+
+---
+
 # 入境處第五次奪得全球最佳機場出入境服務大獎
 
   
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799471-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799471-20250408.htm)
-
----
-
-# 美軍將於沖繩嘉手納基地部署大型無人機
-
-![美軍將於沖繩嘉手納基地部署大型無人機](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799453_1_20250408172251.jpg&q=90)
-  
-
-美軍將於日本沖繩嘉手納空軍基地部署大型無人機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799453-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799453-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799453-20250408.htm)
 
 ---

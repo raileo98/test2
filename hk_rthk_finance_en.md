@@ -1,3 +1,27 @@
+# AI to turbocharge fintech growth in Asia: Paul Chan
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799750_1_20250410130359.jpg&q=90)
+  
+
+Financial Secretary Paul Chan said on Thursday the integration of artificial intelligence technology into the fintech industry could help turbocharge financial development across Asia.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799750-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799750-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799750-20250410.htm)
+
+---
+
 # Lego opens US$1bn factory in Vietnam
 
 ![The new Vietnam factory is the Danish company's sixth worldwide and its second in Asia. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799734_1_20250410114928.jpg&q=85)
@@ -1412,29 +1436,5 @@ There is relief for MTR passengers after the fare adjustment formula – which t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 0.7 percent at 23,426. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797890_1_20250328170005.jpg&q=40)
-  
-
-Hong Kong stocks ended lower on Friday, with the benchmark Hang Seng Index down 0.7 percent at 23,426.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797890-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797890-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797890-20250328.htm)
 
 ---
