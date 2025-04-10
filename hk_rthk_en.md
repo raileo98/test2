@@ -1,3 +1,27 @@
+# Govt mulls fishing rules relaxation to boost tourism
+
+![Rosanna Law says the government will consider increasing the number of yacht docking spaces in Victoria Harbour. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799779_1_20250410161655.jpg&q=1)
+  
+
+Authorities have said they will make it easier for people to cook freshly caught fish on boats, as part of a push to promote island hopping tourism.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799779-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799779-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799779-20250410.htm)
+
+---
+
 # Postal bank in 10tn yuan backing for private firms
 
 ![Postal Savings Bank is setting aside at least three trillion yuan for technology innovators and over three trillion yuan for the agricultural sector. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799782_1_20250410162210.jpg&q=85)
@@ -1411,29 +1435,5 @@ US President Donald Trump's "reciprocal" tariffs on dozens of countries took eff
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm)
-
----
-
-# Trump signs order to 'turbocharge' coal mining in US
-
-![President Trump speaks next to coal industry workers, on the day he signs energy-related executive orders at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799521_1_20250409073316.jpg&q=75)
-  
-
-US President Donald Trump on Tuesday signed executive orders to "turbocharge coal mining" in the country, seeking to "more than double" electricity production to keep up with power-hungry artificial intelligence technology.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799521-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799521-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799521-20250409.htm)
 
 ---

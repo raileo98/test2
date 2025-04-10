@@ -1,3 +1,27 @@
+# Govt mulls fishing rules relaxation to boost tourism
+
+![Rosanna Law says the government will consider increasing the number of yacht docking spaces in Victoria Harbour. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799779_1_20250410161655.jpg&q=1)
+  
+
+Authorities have said they will make it easier for people to cook freshly caught fish on boats, as part of a push to promote island hopping tourism.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799779-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799779-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799779-20250410.htm)
+
+---
+
 # Manufacturers call for support measures amid trade war
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799768_1_20250410151436.jpg&q=80)
@@ -1411,29 +1435,5 @@ The president of the Chinese Manufacturers' Association of Hong Kong has voiced 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm)
-
----
-
-# Hong Kong calls on US to withdraw 'bullying' tariffs
-
-![The SAR government says it'll take actions to defend the city's legitimate rights. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798851_1_20250403202459.jpg&q=75)
-  
-
-The SAR government has expressed strong disapproval and discontent over the United States for imposing a fresh round of tariffs and cancelling a duty-free exemption on small parcels.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm)
 
 ---
