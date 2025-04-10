@@ -1,3 +1,27 @@
+# 商務部：將幫助出口遇阻外貿企業開拓國内市場
+
+![何詠前說，中國超大規模市場潛力不斷釋放，穩經濟、穩外貿政策接續發力，中國外貿有信心、有底氣應對各種風險挑戰。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799776_1_20250410155921.jpg&q=90)
+  
+
+在北京，商務部新聞發言人何詠前表示，美方對中國濫施關稅，嚴重侵犯中方的正當權益，抑制雙邊貿易，對中國的外貿企業造成負面影響，中方將堅定不移辦好自己的事，以中國的確定性，對沖外部環境的不確定性，商務部將會幫助出口遇阻的外貿企業開拓國内市場，用好消費品以舊換新政策，深入開展内外貿一體化工作等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799776-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799776-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799776-20250410.htm)
+
+---
+
 # 外交部：若美方執意打關稅戰、貿易戰　中方必將奉陪到底
 
 ![林劍批評美方出於一己之私，將關稅作為極限施壓、謀取私利的武器，是與整個世界作對。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799773_1_20250410154756.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm)
-
----
-
-# 入境處稱特區護照可為港人提供海外利益安全保障
-
-![入境處職員稱，出外旅行攜帶印有國徽的特區護照，可為港人提供海外利益安全保障。（保安局片段截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799403_1_20250408153549.jpg&q=90)
-  
-
-今年4月15日是「全民國家安全教育日」十周年，六支紀律部隊和兩個輔助隊伍先後發布影片，介紹部門具意義的國家安全物品。今日由入境處職員介紹特區護照，指出外旅行攜帶印有國徽的特區護照，可為港人提供海外利益安全保障。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799403-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799403-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799403-20250408.htm)
 
 ---

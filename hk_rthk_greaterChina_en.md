@@ -1,9 +1,9 @@
-# China to follow through to the end: commerce ministry
+# China to follow through to the end: Commerce Ministry
 
-![The commerce ministry says the nation will hedge against uncertainty coming from the external environment. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799775_1_20250410155326.jpg&q=80)
+![The Commerce Ministry says the nation will hedge against uncertainty coming from the external environment. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799775_1_20250410155326.jpg&q=80)
   
 
-The commerce ministry on Thursday said China will continue taking countermeasures to safeguard the country's sovereignty, security and development interests, emphasising that protectionism is a one-way road.
+The Commerce Ministry on Thursday said China will continue taking countermeasures to safeguard the country's sovereignty, security and development interests, emphasising that protectionism is a one-way road.
 
   
 
