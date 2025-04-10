@@ -1,3 +1,27 @@
+# 商務部：對話必須在相互尊重基礎上以平等方式進行
+
+![何詠前重申，中方的立場明確和一貫，談判大門敞開，但對話必須在相互尊重的基礎上以平等方式進行。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799772_1_20250410154014.jpg&q=90)
+  
+
+在北京，商務部發言人表示，中方不惹事也不怕事，中國人民和世界人民的正當發展權利不容剝奪，中國和世界各國主權安全發展利益不容侵犯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm)
+
+---
+
 # 歐洲股市上升　德股升逾8%
 
 ![法蘭克福DAX指數較早時報 21249點，升1579點，升幅8.03%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799771_1_20250410152732.jpg&q=90)
