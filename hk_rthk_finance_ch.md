@@ -1,3 +1,27 @@
+# 歐洲股市上升　德股升逾8%
+
+![法蘭克福DAX指數較早時報 21249點，升1579點，升幅8.03%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799771_1_20250410152732.jpg&q=90)
+  
+
+歐洲主要股市早段顯著上揚。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799771-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799771-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799771-20250410.htm)
+
+---
+
 # 滬深股市高收逾1%至2%
 
 ![上證指數一度升1.7%，收報3223點，升36點，升幅1.16%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799765_1_20250410150827.jpg&q=85)
@@ -311,6 +335,7 @@
 
 # 5項新措施打擊傀儡戶口　將修例推動銀行之間分享戶口資料
 
+![金管局聯同警方及香港銀行公會採取聯合措施，打擊傀儡戶口網絡。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799741_1_20250410153516.jpg&q=90)
   
 
 金管局聯同警方及香港銀行公會採取聯合措施，打擊傀儡戶口網絡。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799638-20250409.htm)
-
----
-
-# 港股倒升逾100點收市　分析料後市關注寬鬆貨幣政策何時推出
-
-![港股先低後高，恒生指數跌逾800點後，最終倒升逾100點收市。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799634_1_20250409185636.jpg&q=90)
-  
-
-港股先低後高，恒生指數跌逾800點後，最終倒升逾100點收市，跟隨內地股市升反彈。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799634-20250409.htm)
 
 ---

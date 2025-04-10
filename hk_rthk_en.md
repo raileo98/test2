@@ -1,9 +1,33 @@
-# US tariffs fundamentally wrong, finance chief says
+# Manufacturers call for support measures amid trade war
 
-![The Financial Secretary Paul Chan says that the US reciprocal tariffs are both politically and historically wrong. Photo: Courtesy of Government Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799756_1_20250410134156.jpg&q=80)
+![The Chinese Manufacturers' Association says Hong Kong should expand economic and trade cooperation with countries in the Middle East and Africa. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799768_1_20250410151436.jpg&q=80)
   
 
-Financial Secretary Paul Chan on Thursday slammed the latest US "reciprocal tariffs", which had earlier been imposed before being paused, as "fundamentally wrong", both politically, economically, and historically.
+The Chinese Manufacturers' Association on Thursday urged the SAR administration to roll out support measures to help enterprises with stabilising their working capital amid the global trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm)
+
+---
+
+# US tariffs fundamentally wrong, finance chief says
+
+![Financial Secretary Paul Chan says that the US reciprocal tariffs are both politically and historically wrong. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799756_1_20250410134156.jpg&q=80)
+  
+
+Financial Secretary Paul Chan on Thursday slammed the latest US "reciprocal tariffs", which had earlier been imposed before being paused, as "fundamentally wrong" politically, economically and historically.
 
   
 
@@ -48,7 +72,7 @@ US President Donald Trump has signed an executive order lifting water-pressure r
 
 # Authorities doing more to tackle scams, mule accounts
 
-![The HKMA's Raymond Chan says further measures will be taken to tackle scammers and their use of mule accounts. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799754_1_20250410132043.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799754_1_20250410132043.jpg&q=90)
   
 
 Authorities on Thursday said they are stepping up efforts to tackle scam syndicates and their use of mule accounts to launder funds.
@@ -1411,29 +1435,5 @@ Wall Street stocks tumbled again on Tuesday as initially successful efforts to r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799508-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799508-20250409.htm)
-
----
-
-# Grand National winning jockey Mullins suspended
-
-![Disciplinary officials found Patrick Mullins had used his whip one above the permitted level of seven from the final fence. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799506_1_20250409031635.jpg&q=70)
-  
-
-Patrick Mullins has been given an eight-day suspension after he was found to have breached whip rules when riding Nick Rockett to Grand National glory on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799506-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799506-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799506-20250409.htm)
 
 ---

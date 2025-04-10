@@ -1,9 +1,33 @@
-# US tariffs fundamentally wrong, finance chief says
+# Manufacturers call for support measures amid trade war
 
-![The Financial Secretary Paul Chan says that the US reciprocal tariffs are both politically and historically wrong. Photo: Courtesy of Government Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799756_1_20250410134156.jpg&q=80)
+![The Chinese Manufacturers' Association says Hong Kong should expand economic and trade cooperation with countries in the Middle East and Africa. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799768_1_20250410151436.jpg&q=80)
   
 
-Financial Secretary Paul Chan on Thursday slammed the latest US "reciprocal tariffs", which had earlier been imposed before being paused, as "fundamentally wrong", both politically, economically, and historically.
+The Chinese Manufacturers' Association on Thursday urged the SAR administration to roll out support measures to help enterprises with stabilising their working capital amid the global trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm)
+
+---
+
+# US tariffs fundamentally wrong, finance chief says
+
+![Financial Secretary Paul Chan says that the US reciprocal tariffs are both politically and historically wrong. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799756_1_20250410134156.jpg&q=80)
+  
+
+Financial Secretary Paul Chan on Thursday slammed the latest US "reciprocal tariffs", which had earlier been imposed before being paused, as "fundamentally wrong" politically, economically and historically.
 
   
 
@@ -24,7 +48,7 @@ Financial Secretary Paul Chan on Thursday slammed the latest US "reciprocal tari
 
 # Authorities doing more to tackle scams, mule accounts
 
-![The HKMA's Raymond Chan says further measures will be taken to tackle scammers and their use of mule accounts. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799754_1_20250410132043.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799754_1_20250410132043.jpg&q=90)
   
 
 Authorities on Thursday said they are stepping up efforts to tackle scam syndicates and their use of mule accounts to launder funds.
@@ -1411,29 +1435,5 @@ The president of the Chinese Manufacturers' Association of Hong Kong has voiced 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm)
-
----
-
-# Hong Kong calls on US to withdraw 'bullying' tariffs
-
-![The SAR government says it'll take actions to defend the city's legitimate rights. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798851_1_20250403202459.jpg&q=75)
-  
-
-The SAR government has expressed strong disapproval and discontent over the United States for imposing a fresh round of tariffs and cancelling a duty-free exemption on small parcels.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm)
 
 ---
