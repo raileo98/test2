@@ -53,7 +53,7 @@ retries = niquests.adapters.Retry(total=2, backoff_factor=1)
 session = CachedSession(
     allowable_methods=('GET', 'HEAD'),  # 支援的 HTTP 方法
     resolver="doh://mozilla.cloudflare-dns.com/dns-query",  # 使用 DoH 解析 DNS
-    pool_connections=1,  # 連線池設定
+    pool_connections=12,  # 連線池設定
     pool_maxsize=10000,
     maxsize=10000,
     max_size=10000,
