@@ -1,3 +1,49 @@
+# 盧金榮支持國家堅定立場維護自身合法權益
+
+  
+
+廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm)
+
+---
+
+# 李家超籲僑界於國際輿論場全力發聲一同推廣自由貿易
+
+  
+
+行政長官李家超表示，最近美國單方面宣布所謂對等關稅，破壞全球共同建立的自由貿易體系規則，大搞單邊主義，滿口歪理霸淩，違背經濟規律，嚴重踐踏及侮辱多邊貿易體系。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm)
+
+---
+
 # 美俄代表在伊斯坦布爾會談　商議恢復兩國外交使團運作正常化
 
 ![美俄代表團2月27日亦曾在伊斯坦布爾舉行會談。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799770_1_20250410152006.jpg&q=55)
@@ -24,6 +70,7 @@
 
 # 入境處第五次奪得全球最佳機場出入境服務大獎
 
+![郭俊峯（左）表示，能夠五度獲得殊榮，是對入境處秉承提供最優質出入境服務理念的肯定。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799767_1_20250410162039.jpg&q=85)
   
 
 入境處在國際專業航空運輸研究機構Skytrax的年度旅客意見調查，贏得2025年度全球最佳機場出入境服務大獎，是入境處第五次獲得該項殊榮。
@@ -1385,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799482-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799482-20250408.htm)
-
----
-
-# 李強：中歐應加強溝通協調　維護自由開放貿易投資
-
-![國務院總理李強說中歐應加強溝通協調、擴大相互開放，維護自由開放的貿易投資。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799470_1_20250408191709.jpg&q=90)
-  
-
-國務院總理李強與歐盟委員會主席馮德萊恩通電話，討論貿易和中歐關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799470-20250408.htm)
-
----
-
-# 捷克總理社交平台帳號被黑客攻擊並發布虛假資訊
-
-![菲亞拉的社交平台帳號今早被黑客攻擊，並發布虛假資訊。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799471_1_20250408191732.jpg&q=85)
-  
-
-捷克總理菲亞拉的社交平台「X」帳號被黑客攻擊，並發布虛假資訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799471-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799471-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799471-20250408.htm)
 
 ---

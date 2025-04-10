@@ -1,3 +1,26 @@
+# 曼聯訪港門票390至2990元　明午12時起購票通網站發售
+
+  
+
+英超球隊曼聯將於5月30日晚上8時，在香港大球場對陣中國香港足球代表隊，門票明日中午12時起在購票通網站發售，票價介乎390至2990元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799785-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799785-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799785-20250410.htm)
+
+---
+
 # 洛杉磯奧運將新增22個小項　將增設乒乓混合團體賽
 
 ![國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799712_1_20250410093619.jpg&q=75)
@@ -1434,29 +1457,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797779-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797779-20250328.htm)
-
----
-
-# 酒吧業料七欖帶來2千萬額外收益　旺角尖沙咀營業額或升三至四成
-
-![錢雋永說，球迷村提早關閉，場館設有完善交通配套接駁港島、九龍各區，方便觀眾散場後繼續消遣，有利刺激九龍及港島各區酒吧的生意。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797741_2_20250328094421.jpg&q=60)
-  
-
-香港國際七人欖球賽將於明日起，一連三日在啟德體育園舉行，香港酒吧業協會主席錢雋永說，預料賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益，九龍城區的酒吧營業額有望較平日上升四至五成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm)
 
 ---

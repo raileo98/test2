@@ -1,3 +1,73 @@
+# 曼聯訪港門票390至2990元　明午12時起購票通網站發售
+
+  
+
+英超球隊曼聯將於5月30日晚上8時，在香港大球場對陣中國香港足球代表隊，門票明日中午12時起在購票通網站發售，票價介乎390至2990元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799785-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799785-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799785-20250410.htm)
+
+---
+
+# 港股高收417點　手機設備及關稅敏感股造好
+
+![恒生指數收市報20681點，升417點，升幅2.06%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799781_1_20250410162123.jpg&q=45)
+  
+
+港股連升3個交易日。美國對中國加徵的關稅稅率提升至125%，但暫緩對其他國家徵收較高稅率的對等關稅90日，港股初段曾跟隨外圍急升，最多曾升近950點，高位見21211點，其後升幅收窄。恒生指數收市報20681點，升417點，升幅2.06%，主板成交額逾3955億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799781-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799781-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799781-20250410.htm)
+
+---
+
+# 李家超籲僑界於國際輿論場全力發聲一同推廣自由貿易
+
+  
+
+行政長官李家超表示，最近美國單方面宣布所謂對等關稅，破壞全球共同建立的自由貿易體系規則，大搞單邊主義，滿口歪理霸淩，違背經濟規律，嚴重踐踏及侮辱多邊貿易體系。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm)
+
+---
+
 # 美俄代表在伊斯坦布爾會談　商議恢復兩國外交使團運作正常化
 
 ![美俄代表團2月27日亦曾在伊斯坦布爾舉行會談。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799770_1_20250410152006.jpg&q=55)
@@ -24,6 +94,7 @@
 
 # 康文署邀請有意贊助國慶煙花匯演機構下月2日或以前遞交申請
 
+![康文署邀請有意贊助的機構，於下月2日或以前遞交申請。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799778_1_20250410162412.jpg&q=75)
   
 
 國慶煙花匯演10月1日舉行，康文署邀請有意贊助的機構，於下月2日或以前遞交申請。
@@ -215,6 +286,7 @@
 
 # 入境處第五次奪得全球最佳機場出入境服務大獎
 
+![郭俊峯（左）表示，能夠五度獲得殊榮，是對入境處秉承提供最優質出入境服務理念的肯定。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799767_1_20250410162039.jpg&q=85)
   
 
 入境處在國際專業航空運輸研究機構Skytrax的年度旅客意見調查，贏得2025年度全球最佳機場出入境服務大獎，是入境處第五次獲得該項殊榮。

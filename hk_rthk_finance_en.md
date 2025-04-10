@@ -1,3 +1,27 @@
+# Postal bank in 10tn yuan backing for private firms
+
+![Postal Savings Bank is setting aside at least three trillion yuan for technology innovators and over three trillion yuan for the agricultural sector. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799782_1_20250410162210.jpg&q=85)
+  
+
+Postal Savings Bank of China has announced a commitment to provide no less than 10 trillion yuan in financing to private businesses over the next five years, reinforcing its dedication to supporting the country's private sector amid economic headwinds.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799782-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799782-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799782-20250410.htm)
+
+---
+
 # AI to turbocharge fintech growth in Asia: Paul Chan
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799750_1_20250410130359.jpg&q=90)
@@ -1412,29 +1436,5 @@ Stock markets plunged Friday as a closely watched US inflation reading heated up
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm)
-
----
-
-# MTR fares to freeze under adjustment mechanism
-
-![While MTR fares will freeze for 2025-26, commuters could face a steep hike next year after 3.36 percent of adjustments are brought forward. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797892_1_20250328173801.jpg&q=85)
-  
-
-There is relief for MTR passengers after the fare adjustment formula – which takes into account factors such as inflation and median household income – showed that fares would freeze for the coming year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm)
 
 ---

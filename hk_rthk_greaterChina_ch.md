@@ -1,3 +1,49 @@
+# 盧金榮支持國家堅定立場維護自身合法權益
+
+  
+
+廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm)
+
+---
+
+# 李家超籲僑界於國際輿論場全力發聲一同推廣自由貿易
+
+  
+
+行政長官李家超表示，最近美國單方面宣布所謂對等關稅，破壞全球共同建立的自由貿易體系規則，大搞單邊主義，滿口歪理霸淩，違背經濟規律，嚴重踐踏及侮辱多邊貿易體系。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm)
+
+---
+
 # 商務部：將幫助出口遇阻外貿企業開拓國内市場
 
 ![何咏前說，中國超大規模市場潛力不斷釋放，穩經濟、穩外貿政策接續發力，中國外貿有信心、有底氣應對各種風險挑戰。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799776_1_20250410155921.jpg&q=90)
@@ -1386,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799418-20250408.htm)
-
----
-
-# 外交部：美方所作所為沒體現認真對話意願
-
-![外交部發言人林劍表示，美方所作所為沒有體現出想要認真對話的意願。（外交部網頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799415_1_20250408144306.jpg&q=90)
-  
-
-在北京，外交部被問到中美會否就貿易問題會談或談判，發言人林劍表示，美方的所作所為沒有體現出想要認真對話的意願。美方如果真的想談，就應該拿出平等、尊重、互惠的態度。如果美方置兩國和國際社會的利益於不顧，執意打關稅戰、貿易戰，中方必將奉陪到底。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799415-20250408.htm)
-
----
-
-# 外交部強烈譴責美國威脅升級對華關稅　批評是經濟霸凌
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799411_2_20250408162316.jpg&q=90)
-  
-
-美國總統特朗普威脅升級對華關稅。在北京，外交部發言人林劍表示，美方濫施關稅嚴重侵犯各國的正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球的經濟秩序穩定，是典型的單邊主義、保護主義、經濟霸凌，遭到國際社會普遍反對。中方對此強烈譴責，堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799411-20250408.htm)
 
 ---

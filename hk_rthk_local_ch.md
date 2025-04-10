@@ -1,5 +1,75 @@
+# 盧金榮支持國家堅定立場維護自身合法權益
+
+  
+
+廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm)
+
+---
+
+# 曼聯訪港門票390至2990元　明午12時起購票通網站發售
+
+  
+
+英超球隊曼聯將於5月30日晚上8時，在香港大球場對陣中國香港足球代表隊，門票明日中午12時起在購票通網站發售，票價介乎390至2990元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799785-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799785-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799785-20250410.htm)
+
+---
+
+# 李家超籲僑界於國際輿論場全力發聲一同推廣自由貿易
+
+  
+
+行政長官李家超表示，最近美國單方面宣布所謂對等關稅，破壞全球共同建立的自由貿易體系規則，大搞單邊主義，滿口歪理霸淩，違背經濟規律，嚴重踐踏及侮辱多邊貿易體系。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm)
+
+---
+
 # 康文署邀請有意贊助國慶煙花匯演機構下月2日或以前遞交申請
 
+![康文署邀請有意贊助的機構，於下月2日或以前遞交申請。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799778_1_20250410162412.jpg&q=75)
   
 
 國慶煙花匯演10月1日舉行，康文署邀請有意贊助的機構，於下月2日或以前遞交申請。
@@ -47,6 +117,7 @@
 
 # 入境處第五次奪得全球最佳機場出入境服務大獎
 
+![郭俊峯（左）表示，能夠五度獲得殊榮，是對入境處秉承提供最優質出入境服務理念的肯定。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799767_1_20250410162039.jpg&q=85)
   
 
 入境處在國際專業航空運輸研究機構Skytrax的年度旅客意見調查，贏得2025年度全球最佳機場出入境服務大獎，是入境處第五次獲得該項殊榮。
@@ -1359,77 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799594-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799594-20250409.htm)
-
----
-
-# 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
-
-![發言人指美國個別政客公然詆毁抹黑香港經貿辦，不僅干擾破壞港美正常交流合作，更暴露出其看不得香港安、見不得香港好的險惡用心。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799587_1_20250409154956.jpg&q=80)
-  
-
-針對美國個别政客再次推動有關法案，詆毁香港自治和法治，叫囂取消香港駐美經貿辦事處有關待遇甚至關閉辦事處，外交部駐港公署發言人表示強烈譴責和堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm)
-
----
-
-# 發展局稱3片區面積大有很多空間發展具規模渡假設施
-
-![發展局指3片區地方面積大，可以有很多空間發展具規模的渡假設施，包括不同元素，可以行山、釣魚、住宿等不同選擇。（立法會文件）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799586_1_20250409141008.jpg&q=75)
-  
-
-發展局就3個生態旅遊發展片區項目，邀請發展商提交意向書，分別是前南丫島石礦場用地、南大嶼生態康樂走廊，以及尖鼻咀及白泥的生態旅遊發展項目，目標最快明年下半年就項目招標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799586-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799586-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799586-20250409.htm)
-
----
-
-# 會計師公會：美國關稅政策會計行業有危有機
-
-![歐振興說，會計業正面臨前所未有的轉型。（張詩民攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799585_1_20250409135536.jpg&q=90)
-  
-
-香港會計師公會會長歐振興表示，貿易戰影響市場資金部署，短期為金融市場帶來波動，仍需視乎關稅政策後續發展及如何落實 ，但對會計行業是有危有機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799585-20250409.htm)
 
 ---

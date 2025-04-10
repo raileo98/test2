@@ -1,3 +1,73 @@
+# 盧金榮支持國家堅定立場維護自身合法權益
+
+  
+
+廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm)
+
+---
+
+# 港股高收417點　手機設備及關稅敏感股造好
+
+![恒生指數收市報20681點，升417點，升幅2.06%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799781_1_20250410162123.jpg&q=45)
+  
+
+港股連升3個交易日。美國對中國加徵的關稅稅率提升至125%，但暫緩對其他國家徵收較高稅率的對等關稅90日，港股初段曾跟隨外圍急升，最多曾升近950點，高位見21211點，其後升幅收窄。恒生指數收市報20681點，升417點，升幅2.06%，主板成交額逾3955億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799781-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799781-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799781-20250410.htm)
+
+---
+
+# 李家超籲僑界於國際輿論場全力發聲一同推廣自由貿易
+
+  
+
+行政長官李家超表示，最近美國單方面宣布所謂對等關稅，破壞全球共同建立的自由貿易體系規則，大搞單邊主義，滿口歪理霸淩，違背經濟規律，嚴重踐踏及侮辱多邊貿易體系。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm)
+
+---
+
 # 甯漢豪稱今年內將完成沙嶺數據園用地改劃程序
 
 ![甯漢豪說，下半年起會就三個「片區開發」試點陸續招標。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799774_1_20250410160444.jpg&q=80)
@@ -1364,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm)
-
----
-
-# 政府稱未能估算市場何時完全消化寫字樓供應　檢討商業地擬增彈性
-
-![發展局考慮將部分商業用地改劃作住宅用途，檢視位置包括洪水橋/厦村、東涌東新市鎮擴展區、沙田石門及九龍東等。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799647_1_20250409213916.jpg&q=45)
-  
-
-發展局表示，政府近年積極招商引資，落戶香港的企業會增加對寫字樓的需求。由於需求是動態和受制於很多因素，未能估算市場何時能完全消化寫字樓供應。發展局書面回覆立法會議員提問時表示，差餉物業估價署上月公布初步統計數字顯示，今年私人寫字樓的預測總落成量約為30萬9千米，明年則有11萬6千平方米。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm)
-
----
-
-# 中國移動香港斥資約11.96億元入股香港寬頻成大股東之一
-
-![中國移動香港斥資約11.96億元入股香港寬頻，成為公司大股東之一。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799645_1_20250409194356.jpg&q=90)
-  
-
-香港寬頻公布，中國移動香港斥資約11.96億元入股。交易完成後，中移動香港將持有香港寬頻約15.46%經擴大已發行股本，成為公司大股東之一。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799645-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799645-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799645-20250409.htm)
-
----
-
-# 金融學院：金融機構目前GenA.I.著眼點並非取代部分工種
-
-![馮殷諾（左）稱金融機構目前視人工智能為提升效率、簡化工序的工具。（張詩民攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799641_1_20250409190933.jpg&q=80)
-  
-
-金融學院轄下香港貨幣及金融研究中心，就金融服務業應用生成式人工智能（GenA.I.）發表報告顯示，金融機構積極應用GenA.I.，以提升生產力及營運效率，當中以大型機構應用率較高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799641-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799641-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799641-20250409.htm)
 
 ---

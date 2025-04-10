@@ -1,3 +1,27 @@
+# Postal bank in 10tn yuan backing for private firms
+
+![Postal Savings Bank is setting aside at least three trillion yuan for technology innovators and over three trillion yuan for the agricultural sector. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799782_1_20250410162210.jpg&q=85)
+  
+
+Postal Savings Bank of China has announced a commitment to provide no less than 10 trillion yuan in financing to private businesses over the next five years, reinforcing its dedication to supporting the country's private sector amid economic headwinds.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799782-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799782-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799782-20250410.htm)
+
+---
+
 # China to follow through to the end: Commerce Ministry
 
 ![The Commerce Ministry says the nation will hedge against uncertainty coming from the external environment. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799775_1_20250410155326.jpg&q=80)
@@ -1415,29 +1439,5 @@ The chairman of Polytechnic University (PolyU)'s governing council on Thursday s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm)
-
----
-
-# Beijing warns of 'no winners' over new Trump tariffs
-
-![BYD cars await loading onto one of the company's roll-on/roll-off export vessels in Suzhou this year. China says US tariffs on foreign-made cars won't help Washington solve its own problems. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797697_1_20250327163138.jpg&q=55)
-  
-
-China warned on Thursday a trade war would have "no winners" after US President Donald Trump announced 25 percent import tariffs on foreign-made cars.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797697-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797697-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797697-20250327.htm)
 
 ---
