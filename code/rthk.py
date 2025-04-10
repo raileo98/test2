@@ -46,9 +46,6 @@ def setup_environment():
 class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
     pass
 
-# 設定重試機制：最多重試 2 次，每次間隔時間增加
-retries = niquests.adapters.Retry(total=2, backoff_factor=1)
-
 # 建立網路請求的 Session，包含緩存和 QUIC 支援
 session = CachedSession(
     allowable_methods=('GET', 'HEAD'),  # 支援的 HTTP 方法
@@ -60,7 +57,10 @@ session = CachedSession(
     backend='redis',  # 緩存後端使用 Redis
     happy_eyeballs=True  # 加快連線速度
 )
-adapter = niquests.adapters.HTTPAdapter(max_retries=retries)
+
+# 設定重試機制：最多重試 2 次，每次間隔時間增加
+retries = niquests.adapters.Retry(total=2, backoff_factor=1)
+adapter = niquests.adapters.HTTPAdapter(max_retries=retries, pool_connections=12, pool_maxsize=10000)
 session.mount("https://", adapter=adapter)
 session.mount("http://", adapter=adapter)
 session.trust_env = False  # 不使用系統代理
