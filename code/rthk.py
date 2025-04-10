@@ -164,7 +164,7 @@ def modify_image_url(imageUrl, new_quality):
     query_params['q'] = [str(new_quality)]
     new_query = urllib.parse.urlencode(query_params, doseq=True)
     new_url = urllib.parse.urlunparse(parsed_url._replace(query=new_query))
-    new_url = new_url.replace('n=-1&w=480', 'n=-1&we&w=480')  # 修正特定參數
+    new_url = new_url.replace('n=-1&w=720', 'n=-1&we&w=720')  # 修正特定參數
     return new_url
 
 async def optimize_image_quality(imgUrl):
@@ -291,7 +291,7 @@ async def process_article(fg, category, article):
         imgList = set()
         images = article_soup.select('.items_content .imgPhotoAfterLoad')
         for image in images:
-            raw_img_url = 'https://wsrv.nl/?n=-1&we&w=480&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src'])
+            raw_img_url = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src'])
             imgUrl = modify_image_url(raw_img_url, 99).replace('_S_', '_L_').replace('_M_', '_L_').replace('_L_', '_')
             imgList.add(imgUrl)
             latest_imgUrl = await optimize_image_quality(imgUrl)
@@ -306,7 +306,7 @@ async def process_article(fg, category, article):
                     match = re.search(r"videoThumbnail\s{0,1000}=\s{0,1000}'(.*)'", script.text)
                     if match:
                         video_thumbnail = match.group(1)
-                        raw_img_url = 'https://wsrv.nl/?n=-1&we&w=480&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail)
+                        raw_img_url = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail)
                         imgUrl = modify_image_url(raw_img_url, 99).replace('_S_', '_L_').replace('_M_', '_L_').replace('_L_', '_')
                         imgList.add(imgUrl)
                         latest_imgUrl = await optimize_image_quality(imgUrl)
