@@ -46,21 +46,22 @@ def setup_environment():
 class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
     pass
 
+poolConn = 1
+poolSize = 10000
+
 # 建立網路請求的 Session，包含緩存和 QUIC 支援
 session = CachedSession(
-    allowable_methods=('GET', 'HEAD'),  # 支援的 HTTP 方法
+    # allowable_methods=('GET', 'HEAD'),  # 支援的 HTTP 方法
     resolver="doh://mozilla.cloudflare-dns.com/dns-query",  # 使用 DoH 解析 DNS
-    pool_connections=12,  # 連線池設定
-    pool_maxsize=10000,
-    maxsize=10000,
-    max_size=10000,
+    pool_connections=poolConn,  # 連線池設定
+    pool_maxsize=poolSize,
     backend='redis',  # 緩存後端使用 Redis
-    happy_eyeballs=True  # 加快連線速度
+    happy_eyeballs=True,  # 加快連線速度
 )
 
 # 設定重試機制：最多重試 2 次，每次間隔時間增加
 retries = niquests.adapters.Retry(total=2, backoff_factor=1)
-adapter = niquests.adapters.HTTPAdapter(max_retries=retries, pool_connections=12, pool_maxsize=10000)
+adapter = niquests.adapters.HTTPAdapter(max_retries=retries, pool_connections=poolConn, pool_maxsize=poolSize)
 session.mount("https://", adapter=adapter)
 session.mount("http://", adapter=adapter)
 session.trust_env = False  # 不使用系統代理
