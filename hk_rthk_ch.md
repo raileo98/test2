@@ -1,3 +1,73 @@
+# 業界指美再加關稅影響物流鏈　有立法會議員料重塑供應鏈
+
+  
+
+美國總統特朗普宣布，即時上調對中國加徵的關稅至125%。香港貨運物流業協會主席劉浩然說，關稅影響太大，廠商都擔驚受怕，寧願出少些貨，在連鎖反應下，物流鏈包括空運及海運都出現問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm)
+
+---
+
+# 陳美寶稱正籌備約車統一平台　持續打擊非法載客取酬
+
+  
+
+立法會財委會繼續舉行特別會議。選委會界議員吳傑莊表示，5支的士車隊須於7月前運作，關注當局有否更多資源協助車隊提升市民體驗，以及會否調整網約車合法化管理框架。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799720-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799720-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799720-20250410.htm)
+
+---
+
+# 日股半日飆升2639點
+
+![日經指數半日收報34353點，升2639點，升幅8.32%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799719_1_20250410103606.jpg&q=75)
+  
+
+東京股市顯著造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799719-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799719-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799719-20250410.htm)
+
+---
+
 # 共同民主黨前黨魁李在明宣布參加新一屆南韓總統選舉
 
 ![李在明目前在不同機構的民調中領先。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799718_1_20250410102415.jpg&q=80)
@@ -1363,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799648-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799648-20250409.htm)
-
----
-
-# 政府稱未能估算市場何時完全消化寫字樓供應　檢討商業地擬增彈性
-
-![發展局考慮將部分商業用地改劃作住宅用途，檢視位置包括洪水橋/厦村、東涌東新市鎮擴展區、沙田石門及九龍東等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799647_1_20250409213916.jpg&q=35)
-  
-
-發展局表示，政府近年積極招商引資，落戶香港的企業會增加對寫字樓的需求。由於需求是動態和受制於很多因素，未能估算市場何時能完全消化寫字樓供應。發展局書面回覆立法會議員提問時表示，差餉物業估價署上月公布初步統計數字顯示，今年私人寫字樓的預測總落成量約為30萬9千米，明年則有11萬6千平方米。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799647-20250409.htm)
-
----
-
-# 特區政府稱絕不代美國收所謂關稅　稍後公布暫停處理寄美郵遞安排
-
-![特區政府發言人批評，美國不再奉行自由貿易，肆意破壞國際共同建立的世貿組織規則。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799646_1_20250409205506.jpg&q=80)
-  
-
-特區政府強烈反對和不滿美國向香港產品進一步加徵所謂對等關稅，以及由5月2日起取消香港產品的小額免稅待遇，並調高付運美國而內載貨品的郵件需繳納的關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799646-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799646-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799646-20250409.htm)
-
----
-
-# 中國移動香港斥資約11.96億元入股香港寬頻成大股東之一
-
-![中國移動香港斥資約11.96億元入股香港寬頻，成為公司大股東之一。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799645_1_20250409194356.jpg&q=85)
-  
-
-香港寬頻公布，中國移動香港斥資約11.96億元入股。交易完成後，中移動香港將持有香港寬頻約15.46%經擴大已發行股本，成為公司大股東之一。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799645-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799645-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799645-20250409.htm)
 
 ---

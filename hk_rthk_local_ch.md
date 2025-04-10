@@ -1,3 +1,72 @@
+# 羅淑佩稱擬於維港增遊艇泊位　海島遊垂釣「即撈即捕即食」
+
+  
+
+文化體育及旅遊局局長羅淑佩早前在北京拜會中央港澳辦主任、國務院港澳辦主任夏寶龍，匯報重點工作及未來工作計劃。羅淑佩接受報章訪問時表示，夏寶龍特別關注香港在旅遊方面如何推陳出新，特別是用好海岸和海島旅遊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799725-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799725-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799725-20250410.htm)
+
+---
+
+# 業界指美再加關稅影響物流鏈　有立法會議員料重塑供應鏈
+
+  
+
+美國總統特朗普宣布，即時上調對中國加徵的關稅至125%。香港貨運物流業協會主席劉浩然說，關稅影響太大，廠商都擔驚受怕，寧願出少些貨，在連鎖反應下，物流鏈包括空運及海運都出現問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm)
+
+---
+
+# 陳美寶稱正籌備約車統一平台　持續打擊非法載客取酬
+
+  
+
+立法會財委會繼續舉行特別會議。選委會界議員吳傑莊表示，5支的士車隊須於7月前運作，關注當局有否更多資源協助車隊提升市民體驗，以及會否調整網約車合法化管理框架。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799720-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799720-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799720-20250410.htm)
+
+---
+
 # 恒指升幅擴至逾900點　重上21000點以上
 
 ![港股升幅擴大至逾900點，恒指重上21000點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799716_1_20250410100209.jpg&q=80)
@@ -1363,78 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm)
-
----
-
-# 前特首梁振英女兒梁齊昕離世　終年33歲
-
-![前特首梁振英女兒梁齊昕離世　終年33歲](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799530_1_20250409095931.jpg&q=90)
-  
-
-全國政協副主席、前行政長官梁振英表示，女兒梁齊昕離世。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799530-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799530-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799530-20250409.htm)
-
----
-
-# 孫東稱國際創科營商周將向世界展示香港創科實力與獨特優勢
-
-![孫東表示「國際創科營商周」將匯聚來自29個國家和地區的創科界別菁英及超過2800家展商。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799503_1_20250409024205.jpg&q=90)
-  
-
-創新科技及工業局舉辦的「國際創科營商周」將於本月稍後舉行，屆時將舉行多項創新科技盛事，包括由政府資助的旗艦活動「香港國際創科展」，以及當局大力推動的第二屆「香港世界青年科學大會」等。同期舉行的還包括「世界互聯網大會亞太峰會」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799503-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799503-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799503-20250409.htm)
-
----
-
-# 有樂迷稱啟德主場館音響佳　有觀眾指不能帶有蓋水瓶不方便
-
-![Coldplay在啟德主場館舉行首場演唱會。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799499_2_20250409010349.jpg&q=90)
-![有觀眾認為，演唱會整體有驚喜，氣氛一流。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799499_1_20250409004913.jpg&q=90)
-  
-
-英國樂隊Coldplay在啟德主場館舉行演唱會，昨晚大約10時半結束。完場後約一小時，所有觀眾已大致離開園區，秩序大致良好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799499-20250409.htm)
 
 ---

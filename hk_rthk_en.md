@@ -1,3 +1,27 @@
+# Emery still sees light at end of Paris defeat
+
+![Khvicha Kvaratskhelia runs a gauntlet of four Aston Villa players to give PSG the lead in their quarterfinal first-leg match in Paris. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799721_1_20250410104557.jpg&q=85)
+  
+
+Aston Villa coach Unai Emery insists he still believes his side can get the better of Paris Saint-Germain and reach the Champions League semi-finals despite a 3-1 defeat in the first leg of their last-eight tie.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799721-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799721-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799721-20250410.htm)
+
+---
+
 # China and EU vow to strengthen trade ties
 
 ![Commerce Minister Wang Wentao urged China and the EU to jointly safeguard the rules-based multilateral trading system. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799711_1_20250410093209.jpg&q=90)
@@ -94,7 +118,7 @@ The United States has backtracked on emergency food aid cuts it announced for 14
 
 ---
 
-# Israel says its seizing 'large areas' of Gaza
+# Israel says it's seizing 'large areas' of Gaza
 
 ![Palestinian rescuers work at the site of an Israeli strike on a residential area in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799691_1_20250410071647.jpg&q=25)
   
@@ -1411,29 +1435,5 @@ A transport worker convicted of rioting and wounding with intent in Yuen Long in
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799406-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799406-20250408.htm)
-
----
-
-# YouTuber's flash visit 'shows HK is fun'
-
-![Rosanna Law says anyone can have fun in Hong Kong as long as they follow the rules. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799398_1_20250408122906.jpg&q=90)
-  
-
-YouTube streamer IShowSpeed's flash visit to the city last week shows that Hong Kong is safe, fun and open, according to Secretary for Culture, Sports and Tourism Rosanna Law.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm)
 
 ---

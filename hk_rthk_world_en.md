@@ -22,7 +22,7 @@ The United States has backtracked on emergency food aid cuts it announced for 14
 
 ---
 
-# Israel says its seizing 'large areas' of Gaza
+# Israel says it's seizing 'large areas' of Gaza
 
 ![Palestinian rescuers work at the site of an Israeli strike on a residential area in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799691_1_20250410071647.jpg&q=25)
   

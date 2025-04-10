@@ -1,3 +1,27 @@
+# Emery still sees light at end of Paris defeat
+
+![Khvicha Kvaratskhelia runs a gauntlet of four Aston Villa players to give PSG the lead in their quarterfinal first-leg match in Paris. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799721_1_20250410104557.jpg&q=85)
+  
+
+Aston Villa coach Unai Emery insists he still believes his side can get the better of Paris Saint-Germain and reach the Champions League semi-finals despite a 3-1 defeat in the first leg of their last-eight tie.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799721-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799721-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799721-20250410.htm)
+
+---
+
 # HK martial artist wins gold in Sanda World Cup
 
 ![The Hong Kong, China team won four medals, including one gold, one silver and two bronze. Photo: Hong Kong, China Wushu Union's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799700_1_20250410085418.jpg&q=90)
@@ -1418,29 +1442,5 @@ The head of the Hong Kong, China Rugby Association, James Farndon, on Sunday hai
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm)
-
----
-
-# Hong Kong, China sweep Melrose Claymores
-
-![It's the second straight year that the Hong Kong, China men's team has won the Melrose Claymore. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798126_2_20250330171036.jpg&q=45)
-  
-
-Both the SAR men's and women's teams won an invitational in style at the first Hong Kong Sevens at Kai Tak Stadium on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798126-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798126-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798126-20250330.htm)
 
 ---

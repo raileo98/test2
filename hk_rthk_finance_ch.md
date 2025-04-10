@@ -1,3 +1,74 @@
+# 業界指美再加關稅影響物流鏈　有立法會議員料重塑供應鏈
+
+  
+
+美國總統特朗普宣布，即時上調對中國加徵的關稅至125%。香港貨運物流業協會主席劉浩然說，關稅影響太大，廠商都擔驚受怕，寧願出少些貨，在連鎖反應下，物流鏈包括空運及海運都出現問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm)
+
+---
+
+# 日股半日飆升2639點
+
+![日經指數半日收報34353點，升2639點，升幅8.32%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799719_1_20250410103606.jpg&q=75)
+  
+
+東京股市顯著造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799719-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799719-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799719-20250410.htm)
+
+---
+
+# 王文濤：中方願與包括東盟在內貿易夥伴加強溝通協調
+
+![王文濤表示，中方願與包括東盟在內的貿易夥伴一道，加強溝通協調。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799717_1_20250410102343.jpg&q=90)
+  
+
+在北京，商務部部長王文濤昨日與東盟輪值主席國、馬來西亞貿工部長扎夫魯視頻通話，雙方圍繞加強中馬和中國—東協經貿合作、共同應對美國加徵所謂「對等關稅」等問題交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm)
+
+---
+
 # 恒指升幅擴至逾900點　重上21000點以上
 
 ![港股升幅擴大至逾900點，恒指重上21000點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799716_1_20250410100209.jpg&q=80)
@@ -1363,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799582-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799582-20250409.htm)
-
----
-
-# 日本財金部門下午舉行會議討論金融市況
-
-![日本央行、財務省、金融廳下午舉行會議，討論國際金融市場情況。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799581_1_20250409131403.jpg&q=50)
-  
-
-美國的對等關稅生效，日股跌逾4%，日圓兌美元升1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799581-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799581-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799581-20250409.htm)
-
----
-
-# 恒指下午初段跌逾2%　滬股轉跌
-
-![恒指較早時報19620點，跌476點，跌幅2.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799580_1_20250409130614.jpg&q=60)
-  
-
-港股下午初段跌幅擴大，美國的對等關稅生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799580-20250409.htm)
-
----
-
-# 分析指關稅令央行面臨出口下跌通脹上升兩難局面　料傾向加快減息
-
-![林俊泓指出，多國央行正面臨出口下跌與通脹上升兩難局面，關稅或促使央行大多偏向加快減息步伐。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799578_1_20250409130204.jpg&q=90)
-  
-
-新西蘭央行將指標利率下調0.25厘，降至3.5厘，央行表示，未來政策決將取決於中期通脹壓力前景，又指有進一步減息空間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799578-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799578-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799578-20250409.htm)
 
 ---
