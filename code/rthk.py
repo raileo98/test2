@@ -164,7 +164,7 @@ def modify_image_url(imageUrl, new_quality):
     query_params['q'] = [str(new_quality)]
     new_query = urllib.parse.urlencode(query_params, doseq=True)
     new_url = urllib.parse.urlunparse(parsed_url._replace(query=new_query))
-    new_url = new_url.replace('n=-1&h=1080', 'n=-1&we&h=1080')  # 修正特定參數
+    new_url = new_url.replace('n=-1&w=360', 'n=-1&we&w=360')  # 修正特定參數
     return new_url
 
 async def optimize_image_quality(imgUrl):
@@ -199,12 +199,12 @@ async def optimize_image_quality(imgUrl):
                     print(f"品質已降至 1，退出迴圈, URL: {imgUrl}")
                     break
                 
-                if content_length > 1000 * 100 or content_length > upstream_response_length:
+                if content_length > 1000 * 50 or content_length > upstream_response_length:
                     if q == 99:
                         q = 95
                     if q <= 95:
                         q = max(1, q - 5)
-                elif content_length <= 1000 * 100:
+                elif content_length <= 1000 * 50:
                     print(f"圖片小於 100KB，品質適中, URL: {imgUrl}, q: {q}")
                     latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
                     break
@@ -215,7 +215,7 @@ async def optimize_image_quality(imgUrl):
             latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
             break
 
-    if (upstream_response_length <= 1000 * 100 or (content_length_q99 is not None and content_length_q99 <= 1000 * 100)):
+    if (upstream_response_length <= 1000 * 50 or (content_length_q99 is not None and content_length_q99 <= 1000 * 50)):
         if q == 99:
             q = 90
         elif q <= 95:
@@ -291,7 +291,7 @@ async def process_article(fg, category, article):
         imgList = set()
         images = article_soup.select('.items_content .imgPhotoAfterLoad')
         for image in images:
-            raw_img_url = 'https://wsrv.nl/?n=-1&we&w=1080&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src'])
+            raw_img_url = 'https://wsrv.nl/?n=-1&we&w=360&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src'])
             imgUrl = modify_image_url(raw_img_url, 99).replace('_S_', '_L_').replace('_M_', '_L_').replace('_L_', '_')
             imgList.add(imgUrl)
             latest_imgUrl = await optimize_image_quality(imgUrl)
@@ -306,7 +306,7 @@ async def process_article(fg, category, article):
                     match = re.search(r"videoThumbnail\s{0,1000}=\s{0,1000}'(.*)'", script.text)
                     if match:
                         video_thumbnail = match.group(1)
-                        raw_img_url = 'https://wsrv.nl/?n=-1&we&w=1080&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail)
+                        raw_img_url = 'https://wsrv.nl/?n=-1&we&w=360&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail)
                         imgUrl = modify_image_url(raw_img_url, 99).replace('_S_', '_L_').replace('_M_', '_L_').replace('_L_', '_')
                         imgList.add(imgUrl)
                         latest_imgUrl = await optimize_image_quality(imgUrl)
@@ -513,7 +513,7 @@ if __name__ == '__main__':
     check_urls()
     end_time = time.time()
     execution_time = end_time - start_time
-    cache_hit_rate = cache_hits / total_requests * 100 if total_requests > 0 else 0
+    cache_hit_rate = cache_hits / total_requests * 50 if total_requests > 0 else 0
     print(f"總請求數: {total_requests}")
     print(f"緩存命中數: {cache_hits}")
     print(f"緩存命中率: {cache_hit_rate:.2f}%")
