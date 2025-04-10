@@ -1,6 +1,6 @@
 # Manufacturers call for support measures amid trade war
 
-![The Chinese Manufacturers' Association says Hong Kong should expand economic and trade cooperation with countries in the Middle East and Africa. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799768_1_20250410151436.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799768_1_20250410151436.jpg&q=80)
   
 
 The Chinese Manufacturers' Association on Thursday urged the SAR administration to roll out support measures to help enterprises with stabilising their working capital amid the global trade war.

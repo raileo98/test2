@@ -1,3 +1,27 @@
+# China to follow through to the end: commerce ministry
+
+![The commerce ministry says the nation will hedge against uncertainty coming from the external environment. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799775_1_20250410155326.jpg&q=80)
+  
+
+The commerce ministry on Thursday said China will continue taking countermeasures to safeguard the country's sovereignty, security and development interests, emphasising that protectionism is a one-way road.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799775-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799775-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799775-20250410.htm)
+
+---
+
 # 'China justified in taking action against US tariffs'
 
 ![Lawmaker Jeffrey Lam says China was forced into taking action due to aggressive moves by the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799732_1_20250410114542.jpg&q=75)
@@ -1415,29 +1439,5 @@ China warned on Thursday a trade war would have "no winners" after US President 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797697-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797697-20250327.htm)
-
----
-
-# 'Art Basel, Art Central a barometer for art market'
-
-![Daniel Kwok, an independent art consultant, says that art fairs and auctions will give the city's art market a boost. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797660_1_20250327130541.jpg&q=90)
-  
-
-An expert has said that ongoing art shows and upcoming auctions will give the mainland and Hong Kong art scene a boost, and serve as a barometer for future market performance.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm)
 
 ---

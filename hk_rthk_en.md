@@ -1,6 +1,30 @@
+# China to follow through to the end: commerce ministry
+
+![The commerce ministry says the nation will hedge against uncertainty coming from the external environment. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799775_1_20250410155326.jpg&q=80)
+  
+
+The commerce ministry on Thursday said China will continue taking countermeasures to safeguard the country's sovereignty, security and development interests, emphasising that protectionism is a one-way road.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799775-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799775-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799775-20250410.htm)
+
+---
+
 # Manufacturers call for support measures amid trade war
 
-![The Chinese Manufacturers' Association says Hong Kong should expand economic and trade cooperation with countries in the Middle East and Africa. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799768_1_20250410151436.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799768_1_20250410151436.jpg&q=80)
   
 
 The Chinese Manufacturers' Association on Thursday urged the SAR administration to roll out support measures to help enterprises with stabilising their working capital amid the global trade war.
@@ -1411,29 +1435,5 @@ Rescuers raced to find survivors on Tuesday among the rubble of a Dominican Repu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799520-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799520-20250409.htm)
-
----
-
-# S&P 500 ends down 1.6% as tariff angst kills rally
-
-![US stocks have been in free fall since Trump's "Liberation Day" event announcing tariffs on major US trading partners last Wednesday. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799508_1_20250409051017.jpg&q=85)
-  
-
-Wall Street stocks tumbled again on Tuesday as initially successful efforts to rebound from big losses faded amid worries over US President Donald Trump's trade wars.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799508-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799508-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799508-20250409.htm)
 
 ---
