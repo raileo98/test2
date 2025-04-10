@@ -198,13 +198,13 @@ async def optimize_image_quality(imgUrl):
                     print(f"品質已降至 1，退出迴圈, URL: {imgUrl}")
                     break
                 
-                if content_length > 1000 * 150 or content_length > upstream_response_length:
+                if content_length > 1000 * 100 or content_length > upstream_response_length:
                     if q == 99:
                         q = 95
                     if q <= 95:
                         q = max(1, q - 5)
-                elif content_length <= 1000 * 150:
-                    print(f"圖片小於 150KB，品質適中, URL: {imgUrl}, q: {q}")
+                elif content_length <= 1000 * 100:
+                    print(f"圖片小於 100KB，品質適中, URL: {imgUrl}, q: {q}")
                     latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
                     break
         
@@ -214,13 +214,13 @@ async def optimize_image_quality(imgUrl):
             latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
             break
 
-    if (upstream_response_length <= 1000 * 150 or (content_length_q99 is not None and content_length_q99 <= 1000 * 150)):
+    if (upstream_response_length <= 1000 * 100 or (content_length_q99 is not None and content_length_q99 <= 1000 * 100)):
         if q == 99:
             q = 90
         elif q <= 95:
             q = max(1, q - 10)
         latest_imgUrl = modify_image_url(imgUrl, q)
-        print(f"圖片小於 150KB，調整品質至 q={q}, URL: {latest_imgUrl}")
+        print(f"圖片小於 100KB，調整品質至 q={q}, URL: {latest_imgUrl}")
     
     return latest_imgUrl
 
