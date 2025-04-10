@@ -1,4 +1,4 @@
-# Trump wants return to golden shower times
+# Trump wants to 'make showers great again'
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799755_1_20250410134902.jpg&q=85)
   
