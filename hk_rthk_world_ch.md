@@ -1,3 +1,49 @@
+# 工總稱進出口商已無生意做　學者料美方欲與中方脫勾斷鏈
+
+  
+
+美國總統特朗普宣布，即時上調對中國加徵的關稅至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。香港工業總會主席莊子雄表示，在貿易戰下，無論美方加徵多少關稅，數字上已經無影響，因為大家已經無可能再做生意，他形容美方非常不理性，進出口商都處於觀望態度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm)
+
+---
+
+# 澤連斯基：烏克蘭「技術團隊」將於華盛頓與美方就礦產協議磋商
+
+  
+
+烏克蘭媒體報道，烏克蘭總統澤連斯基表示，烏克蘭的「技術團隊」將會在美國首都華盛頓與美方就礦產協議展開磋商。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799699-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799699-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799699-20250410.htm)
+
+---
+
 # 商務部：李強剛與馮德萊恩通電話　中方願與歐方深化合作
 
 ![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=75)
@@ -1386,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799429-20250408.htm)
-
----
-
-# 回應美國籲阿根廷終止與中國本幣互換合作　外交部批美挑撥離間
-
-![林劍表示，中方一貫在平等互利基礎上與阿根廷合作，兩國本幣互換合作為阿根廷維護經濟金融穩定，發揮重要作用。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799427_1_20250408152519.jpg&q=90)
-  
-
-美國國務院拉美問題特使卡羅內近日呼籲阿根廷終止與中國的本幣互換合作，並形容這是中國對阿根廷的「勒索機制」。在北京，外交部發言人林劍表示，中國同有關國家雙邊合作從不針對第三方，也不應受到第三方干擾。到底是誰在勒索脅迫、無事生非，公道自在人心。中方奉勸美方擺正心態，與其花時間挑撥離間，不如為拉美和加勒比國家發展多做點實實在在的事情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799427-20250408.htm)
-
----
-
-# 林健鋒稱出口及製造業將步入寒冬　中小企如暫未還款冀銀行勿催迫
-
-![林健鋒形容今次是非常難過的難關，希望政府伸出援手， 幫助港商開拓新興市場及加強國際貿易競爭力。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799422_1_20250408153723.jpg&q=80)
-  
-
-行政會議成員、立法會商界議員林健鋒表示，美國總統特朗普瘋狂加徵關稅的行為，令部分做美國生意的香港出口商和製造商首當其衝。如果關稅問題惡化，他認為，香港出口業及製造業會步入經濟寒冬，他支持行政長官李家超提出在七大方面工作加大力量，以應對美國加徵關稅，亦支持特區政府維持香港自由港的地位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799422-20250408.htm)
 
 ---

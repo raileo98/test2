@@ -1,3 +1,26 @@
+# 工總稱進出口商已無生意做　學者料美方欲與中方脫勾斷鏈
+
+  
+
+美國總統特朗普宣布，即時上調對中國加徵的關稅至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。香港工業總會主席莊子雄表示，在貿易戰下，無論美方加徵多少關稅，數字上已經無影響，因為大家已經無可能再做生意，他形容美方非常不理性，進出口商都處於觀望態度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm)
+
+---
+
 # 救援隊指揮官：隊員體能消耗嚴重獲特許缺勤　隊員讚揚搜救犬表現
 
 ![​香港特區救援隊完成緬甸地震災區搜救任務，指揮官趙汝珏透露，今次出發前只花15分鐘就成功召集隊員。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799669_1_20250410001423.jpg&q=90)
@@ -1412,31 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799490-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799490-20250408.htm)
-
----
-
-# Coldplay演唱會散場後約半小時大批觀眾於園區排隊離開
-
-![散場後約半小時，大批觀眾在園區排隊離場。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_1_20250408233935.jpg&q=85)
-![樂隊主音Chris Martin用廣東話同觀眾打招呼，他說很開心來到香港，贏得全場歡呼。（Coldplay 社交平台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_2_20250408233935.jpg&q=90)
-![本港女團COLLAR成員邱彥筒出任暖場嘉賓，同時與Coldplay在台上合唱。（Coldplay社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799489_3_20250408233935.jpg&q=90)
-  
-
-英國樂隊Coldplay在啟德體育園主場館舉行首場演唱會，在晚上約10時半結束，散場後約半小時，大批觀眾在園區排隊離場，秩序大致良好。港鐵屯馬綫班次進一步加密至約2.5分鐘一班車，東鐵綫北行亦相應加密班次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm](https://news.rthk.hk/rthk/ch/component/k2/1799489-20250408.htm)
 
 ---
