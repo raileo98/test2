@@ -1,5 +1,6 @@
 # 美烏礦產協議方案會談據報氣氛對立　取得突破可能性渺茫
 
+![澤連斯基的首要要求是華盛頓向基輔提供安全保障。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800110_1_20250413004341.jpg&q=90)
   
 
 美國與烏克蘭官員就華盛頓提出的兩國之間礦產協議方案，舉行會談。路透社引述知情人士報道，會談氣氛對立，取得突破的可能性渺茫。
