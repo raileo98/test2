@@ -360,7 +360,7 @@
 
 # 多家內地企業助外貿企業出口轉內銷　京東擬採購至少2千億元產品
 
-![京東表示，未來一年內將大規模採購不少於2000億元人民幣的出口轉內銷商品，幫助中國的外貿企業快速開拓國內市場。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799990_1_20250411201204.jpg&q=1)
+![京東表示，未來一年內將大規模採購不少於2000億元人民幣的出口轉內銷商品，幫助中國的外貿企業快速開拓國內市場。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799990_1_20250411201204.jpg&q=70)
   
 
 多家內地零售企業啟動扶持計劃，幫助中國外貿企業開拓國內市場，包括京東、盒馬鮮生、聯華超市等。
@@ -888,7 +888,7 @@
 
 # 日股跌近3%　本周累跌近0.6%
 
-![日經指數收市報33585點，跌幅2.96%。本周累計下跌近0.6%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799933_1_20250411144010.jpg&q=1)
+![日經指數收市報33585點，跌幅2.96%。本周累計下跌近0.6%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799933_1_20250411144010.jpg&q=75)
   
 
 日股受壓。日經指數初段一度挫近6%，收市報33585點，跌1023點，跌幅2.96%。
@@ -1248,7 +1248,7 @@
 
 # 人民日報文章指美國關稅訛詐　切斷全球產供鏈干擾各國經濟發展
 
-![文章指中美經貿合作促進美國產業升級，為美國消費者帶來好處。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799902_1_20250411123655.jpg&q=1)
+![文章指中美經貿合作促進美國產業升級，為美國消費者帶來好處。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799902_1_20250411123655.jpg&q=70)
   
 
 《人民日報》發表文章，批評美國的「關稅訛詐」，嚴重擾亂全球產業鏈、供應鏈穩定，扭曲全球市場資源配置，損人不利己，重申中美作為全球前兩大經濟體，尤其需要視對方的發展為機遇而非挑戰，把對方當作夥伴，而非對手。

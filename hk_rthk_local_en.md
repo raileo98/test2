@@ -552,7 +552,7 @@ Authorities have said they will make it easier for people to cook freshly caught
 
 # Manufacturers call for support measures amid trade war
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799768_1_20250410151436.jpg&q=1)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799768_1_20250410151436.jpg&q=80)
   
 
 The Chinese Manufacturers' Association on Thursday urged the SAR administration to roll out support measures to help enterprises with stabilising their working capital amid the global trade war.
@@ -648,7 +648,7 @@ An industry veteran on Thursday described US President Donald Trump's decision t
 
 # 'China justified in taking action against US tariffs'
 
-![Lawmaker Jeffrey Lam says China was forced into taking action due to aggressive moves by the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799732_1_20250410114542.jpg&q=1)
+![Lawmaker Jeffrey Lam says China was forced into taking action due to aggressive moves by the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799732_1_20250410114542.jpg&q=75)
   
 
 Lawmaker and executive councillor Jeffrey Lam on Thursday said China was justified in retaliating against US tariffs with trade levies of its own.
@@ -1128,7 +1128,7 @@ The central government is well prepared and has a broad arsenal to respond to an
 
 # CE vows support for influencers after IShowSpeed visit
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799389_1_20250408114853.jpg&q=1)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799389_1_20250408114853.jpg&q=85)
   
 
 Chief Executive John Lee said on Tuesday Hong Kong will seize every opportunity to help social media influencers show the city to the world.

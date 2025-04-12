@@ -336,7 +336,7 @@ Lego has opened a US$1 billion factory in Vietnam that it says will make toys wi
 
 # 'China justified in taking action against US tariffs'
 
-![Lawmaker Jeffrey Lam says China was forced into taking action due to aggressive moves by the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799732_1_20250410114542.jpg&q=1)
+![Lawmaker Jeffrey Lam says China was forced into taking action due to aggressive moves by the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799732_1_20250410114542.jpg&q=75)
   
 
 Lawmaker and executive councillor Jeffrey Lam on Thursday said China was justified in retaliating against US tariffs with trade levies of its own.

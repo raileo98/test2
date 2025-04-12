@@ -216,7 +216,7 @@ The Commerce Ministry on Thursday said China will continue taking countermeasure
 
 # 'China justified in taking action against US tariffs'
 
-![Lawmaker Jeffrey Lam says China was forced into taking action due to aggressive moves by the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799732_1_20250410114542.jpg&q=1)
+![Lawmaker Jeffrey Lam says China was forced into taking action due to aggressive moves by the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799732_1_20250410114542.jpg&q=75)
   
 
 Lawmaker and executive councillor Jeffrey Lam on Thursday said China was justified in retaliating against US tariffs with trade levies of its own.
@@ -1296,7 +1296,7 @@ China on Sunday sent a new communication test satellite into orbit from the Wenc
 
 # Chinese rescue team arrives in Myanmar
 
-![Beijing has dispatched a total of 82 rescuers to Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798044_1_20250329201348.jpg&q=1)
+![Beijing has dispatched a total of 82 rescuers to Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798044_1_20250329201348.jpg&q=85)
   
 
 A Chinese rescue team arrived at Yangon International Airport in Myanmar on Saturday to assist in disaster relief efforts.
@@ -1418,7 +1418,7 @@ Thai authorities have declared a state of emergency in Bangkok, Prime Minister P
 
 # 43 trapped after quake brings down Bangkok high-rise
 
-![The trauma of the building's collapse takes its toll on one of the construction worker who managed to get out. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797867_5_20250328163235.jpg&q=1)
+![The trauma of the building's collapse takes its toll on one of the construction worker who managed to get out. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797867_5_20250328163235.jpg&q=65)
   
 
 A strong 7.7 magnitude earthquake hit central Myanmar on Friday, the United States Geological Survey (USGS) said, buckling roads in the capital Naypyidaw and with tremors felt in China and Thailand.

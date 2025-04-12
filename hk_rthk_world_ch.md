@@ -480,7 +480,7 @@
 
 # 王毅指美國不能任意妄為　歷史車輪不能倒退
 
-![王毅與格羅西會晤。（外交部圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799983_1_20250411184900.jpg&q=1)
+![王毅與格羅西會晤。（外交部圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799983_1_20250411184900.jpg&q=80)
   
 
 中共中央政治局委員、外交部長王毅在北京，與國際原子能機構總幹事格羅西會面時批評美國推出的關稅措施，凌駕各國利益，美國不能任意妄為。
@@ -504,7 +504,7 @@
 
 # 南韓光明市鐵路工地塌陷有工人失聯　公路及部分商業設施受損
 
-![南國光明市鐵路工地塌陷，地面公路和部分商業設施受損。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799963_2_20250411183858.jpg&q=1)
+![南國光明市鐵路工地塌陷，地面公路和部分商業設施受損。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799963_2_20250411183858.jpg&q=30)
   
 
 南韓京畿道光明市一個鐵路工地塌陷，1名工人失聯。
@@ -1056,7 +1056,7 @@
 
 # 民主黨促查特朗普及核心是否從股市波動非法獲利　白宮為總統辯護
 
-![特朗普公布的對等關稅政策，導致美股連日受挫。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799856_1_20250411055108.jpg&q=1)
+![特朗普公布的對等關稅政策，導致美股連日受挫。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799856_1_20250411055108.jpg&q=90)
   
 
 美國有民主黨國會議員，要求調查總統特朗普或其核心圈子，是否透過內幕交易和操控市場從股市波動中非法獲利。
@@ -1417,7 +1417,7 @@
 
 # 東電啟動福島第一核電站第12次核污水排海
 
-![東京電力公司啟動福島第一核電站第12次核污水排海，將排放約7800噸。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799830_1_20250410211614.jpg&q=1)
+![東京電力公司啟動福島第一核電站第12次核污水排海，將排放約7800噸。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799830_1_20250410211614.jpg&q=30)
   
 
 日本東京電力公司啟動福島第一核電站第12次核污水排海，將排放約7800噸，是本財政年度的第一次。

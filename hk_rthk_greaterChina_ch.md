@@ -429,7 +429,7 @@
 
 # 王毅指美國不能任意妄為　歷史車輪不能倒退
 
-![王毅與格羅西會晤。（外交部圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799983_1_20250411184900.jpg&q=1)
+![王毅與格羅西會晤。（外交部圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799983_1_20250411184900.jpg&q=80)
   
 
 中共中央政治局委員、外交部長王毅在北京，與國際原子能機構總幹事格羅西會面時批評美國推出的關稅措施，凌駕各國利益，美國不能任意妄為。
@@ -813,7 +813,7 @@
 
 # 人民日報文章指美國關稅訛詐　切斷全球產供鏈干擾各國經濟發展
 
-![文章指中美經貿合作促進美國產業升級，為美國消費者帶來好處。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799902_1_20250411123655.jpg&q=1)
+![文章指中美經貿合作促進美國產業升級，為美國消費者帶來好處。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799902_1_20250411123655.jpg&q=70)
   
 
 《人民日報》發表文章，批評美國的「關稅訛詐」，嚴重擾亂全球產業鏈、供應鏈穩定，扭曲全球市場資源配置，損人不利己，重申中美作為全球前兩大經濟體，尤其需要視對方的發展為機遇而非挑戰，把對方當作夥伴，而非對手。
@@ -957,7 +957,7 @@
 
 # 深圳市口岸辦：Coldplay香港演唱會引發跨境返程高峰
 
-![Coldplay 在啟德體育園舉行演唱會，吸引大批樂迷來港。(Live station HK 社交平台圖片)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799832_2_20250410223526.jpg&q=1)
+![Coldplay 在啟德體育園舉行演唱會，吸引大批樂迷來港。(Live station HK 社交平台圖片)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799832_2_20250410223526.jpg&q=25)
   
 
 深圳市政府口岸辦公室發布，4月8日至9日的英國樂隊Coldplay香港演唱會，引發跨境返程高峰，近1萬2千名内地樂迷深夜經皇崗口岸返回深圳。
@@ -1077,7 +1077,7 @@
 
 # 北京有民眾不擔心必需品供應　亦有藥房不打算增加美國藥物存貨量
 
-![在北京，有藥房表示，不打算增加美國藥物存貨量。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799805_1_20250410182306.jpg&q=1)
+![在北京，有藥房表示，不打算增加美國藥物存貨量。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799805_1_20250410182306.jpg&q=30)
   
 
 中國由中午起，對原產於美國的所有進口商品加徵關稅至84%。在北京，有糖尿病及心臟病患者表示，以往醫保定點醫院都會提供進口藥，但上月底覆診時，醫院提供的藥物已全數是國產。

@@ -432,7 +432,7 @@ South Korean opposition leader Lee Jae-myung, widely seen as the frontrunner in 
 
 # Search ends for survivors of nightclub disaster
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799736_1_20250410120325.jpg&q=1)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799736_1_20250410120325.jpg&q=80)
   
 
 Dominican Republic rescue workers ended the search for survivors of a nightclub roof collapse as the death toll surpassed 180 in the Caribbean nation's worst disaster in decades.

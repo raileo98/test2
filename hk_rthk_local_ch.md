@@ -503,7 +503,7 @@
 
 # 郭蔭庶：香港可成為國家及全球科技產業協作樞紐
 
-![公務員學院在政府總部舉辦第四場「撮合南北：多極世界中的中國系列」講座。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800001_3_20250411224836.jpg&q=1)
+![公務員學院在政府總部舉辦第四場「撮合南北：多極世界中的中國系列」講座。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800001_3_20250411224836.jpg&q=80)
   
 
 公務員學院在政府總部舉辦第四場「撮合南北：多極世界中的中國系列」講座，由上海交通大學溥淵未來技術學院院長倪軍主講，大約190名分別來自44個決策局或部門的首長級和中高級公務員，現場或透過網上參與。
