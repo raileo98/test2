@@ -1,8 +1,8 @@
-# 天文台：冷鋒大驟雨及狂風雷暴正影響廣東沿岸地區
+# 屯門輕鐵車廠站附近有人遭輕鐵撞倒　一度被困車底及後救出
 
   
 
-天文台表示，一道冷鋒正橫過廣東沿岸地區，與其相關的大驟雨及狂風雷暴正影響該區 。
+屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻。
 
   
 
@@ -10,14 +10,14 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800086-20250412.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800086-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800086-20250412.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm)
 
 ---
 
