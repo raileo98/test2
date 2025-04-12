@@ -1,3 +1,27 @@
+# 特朗普：將與中方在貿易問題上取得正面成果
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800081_1_20250412175911.jpg&q=75)
+  
+
+美國總統特朗普說，美國的關稅政策做得非常好，正迅速取得進展，他否認是因為債市波動而暫緩徵收關稅，說現時債券市場運作良好，市場很穩健，相信會與中方在貿易問題上取得正面成果。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800081-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800081-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800081-20250412.htm)
+
+---
+
 # 運輸署籲往返啟德主場館觀眾留意天氣及交通　及早規劃行程
 
 ![運輸署提醒觀眾應乘搭港鐵及散場時段提供的特別巴士服務。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800083_1_20250412175131.jpg&q=90)
@@ -1407,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800007-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800007-20250411.htm)
-
----
-
-# 蘇炳添：如無法在全運會為接力隊帶來優勢沒必要堅持
-
-![蘇炳添在廣東肇慶舉行的全國田徑大獎賽首站，男子100米預賽中跑出10秒49，晉級半決賽。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800008_1_20250411225859.jpg&q=85)
-  
-
-國家短跑名將蘇炳添在廣東肇慶舉行的全國田徑大獎賽首站，男子100米預賽中跑出10秒49，晉級半決賽。他賽後表示，這次比賽有可能是自己的百米告別戰。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800008-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800008-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800008-20250411.htm)
 
 ---

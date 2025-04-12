@@ -1,3 +1,27 @@
+# 特朗普：將與中方在貿易問題上取得正面成果
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800081_1_20250412175911.jpg&q=75)
+  
+
+美國總統特朗普說，美國的關稅政策做得非常好，正迅速取得進展，他否認是因為債市波動而暫緩徵收關稅，說現時債券市場運作良好，市場很穩健，相信會與中方在貿易問題上取得正面成果。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800081-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800081-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800081-20250412.htm)
+
+---
+
 # 王文濤：美對等關稅為發展中國家特別是最不發達國家帶來巨大傷害
 
 ![王文濤強調，中方採取果斷措施予以反制，既是維護自身合法權益，更是維護國際社會的公平正義。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800065_1_20250412141154.jpg&q=25)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799835-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799835-20250410.htm)
-
----
-
-# 東電啟動福島第一核電站第12次核污水排海
-
-![東京電力公司啟動福島第一核電站第12次核污水排海，將排放約7800噸。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799830_1_20250410211614.jpg&q=30)
-  
-
-日本東京電力公司啟動福島第一核電站第12次核污水排海，將排放約7800噸，是本財政年度的第一次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799830-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799830-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799830-20250410.htm)
 
 ---
