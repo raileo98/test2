@@ -1,3 +1,26 @@
+# 周一鳴：公眾活動被騎劫風險不容忽視
+
+  
+
+警務處處長周一鳴表示，會審視每宗遊行集會的申請，強調公眾活動被騎劫的風險不容忽視。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800060-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800060-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800060-20250412.htm)
+
+---
+
 # 天文台：下午稍後至黃昏前後部分地區雨勢較大　或有猛烈陣風
 
 ![天文台表示，今日下午稍後至黃昏前後部分地區雨勢較大，亦可能有猛烈陣風。（天文台網頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800059_1_20250412121639.jpg&q=80)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799989-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799989-20250411.htm)
-
----
-
-# 金融監管總局發指導意見促進金融資產管理公司高質量發展
-
-![國家金融監管總局發出指導意見，要求金融資產管理公司支持受困房企項目紓困化險。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799984_1_20250411185302.jpg&q=75)
-  
-
-國家金融監管總局發出指導意見，提出16條意見措施，要求金融資產管理公司做強做優不良資產收購處置業務，服務化解中小金融機構、房地產等領域風險，持續加強風險管理和內控機制建設，強化存量風險資產處置，嚴控增量業務風險，加強資產負債和流動性管理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm)
 
 ---

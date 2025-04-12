@@ -1,3 +1,26 @@
+# 周一鳴：公眾活動被騎劫風險不容忽視
+
+  
+
+警務處處長周一鳴表示，會審視每宗遊行集會的申請，強調公眾活動被騎劫的風險不容忽視。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800060-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800060-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800060-20250412.htm)
+
+---
+
 # 天文台：下午稍後至黃昏前後部分地區雨勢較大　或有猛烈陣風
 
 ![天文台表示，今日下午稍後至黃昏前後部分地區雨勢較大，亦可能有猛烈陣風。（天文台網頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800059_1_20250412121639.jpg&q=80)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799893-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799893-20250411.htm)
-
----
-
-# 丘應樺透露行政長官下月聯同內地企業出訪中東
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799891_1_20250411102116.jpg&q=75)
-  
-
-立法會財委會特別會議繼續舉行。全國人大常委、民建聯議員李慧琼說，貿易戰有不確定性，關注政府如何深化國際交流，以減少對美國市場的依賴。商務及經濟發展局局長丘應樺表示，一直擴展與其他國家的接觸，並與內地各省市「拼船出海」，透露下月行政長官將與內地企業一同出訪中東，在地緣發展緊張的情況下，謀求發展中東新市場和東盟市場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799891-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799891-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799891-20250411.htm)
 
 ---
