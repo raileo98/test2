@@ -1,5 +1,6 @@
 # 新華社：美關稅訛詐不得人心　中方堅定捍衛自身權益
 
+![文章指美國國內及國際社會強烈不滿白宮的關稅手段。圖為受關稅措施影響的加拿大汽車業。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800102_1_20250412232116.jpg&q=85)
   
 
 新華社以「美關稅訛詐不得人心　中方堅定捍衛自身權益」為題發表文章，強調中方反制有理、有利、有節，充分體現了維護國家安全和利益的堅定決心，以及維護以規則為基礎的多邊貿易體制的大國擔當和責任。
