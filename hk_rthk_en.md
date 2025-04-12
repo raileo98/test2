@@ -1,6 +1,6 @@
 # HK to boost scrutiny of talent pass applications
 
-![Director of Immigration Benson Kwok says officers will examine applications carefully. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800073_1_20250412160554.jpg&q=90)
+![Director of Immigration Benson Kwok says officers will examine applications carefully. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800073_1_20250412160554.jpg&q=90)
   
 
 Director of Immigration Benson Kwok says more officers will be deployed to verify documents submitted as part of Top Talent Pass Scheme applications, following reports of false information being provided on occasions.
@@ -24,7 +24,7 @@ Director of Immigration Benson Kwok says more officers will be deployed to verif
 
 # Rain fears force suspension of water splashing event
 
-![A thunderstorm warning prompted organisers to put the event on hold.](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800071_1_20250412155136.jpg&q=90)
+![A thunderstorm warning prompted organisers to put the event on hold.](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800071_1_20250412155136.jpg&q=90)
   
 
 A water splashing festival in Kowloon City to celebrate Songkran had to be suspended on Saturday afternoon, because of the threat of heavy rain.
@@ -48,7 +48,7 @@ A water splashing festival in Kowloon City to celebrate Songkran had to be suspe
 
 # HK told to leverage advantages in telling good stories
 
-![Pan Yundong says Beijing is committed to becoming a source of stability amid global changes. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800056_1_20250412120255.jpg&q=85)
+![Pan Yundong says Beijing is committed to becoming a source of stability amid global changes. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800056_1_20250412120255.jpg&q=85)
   
 
 Pan Yundong, deputy commissioner of the Office of the Commissioner of the Ministry of Foreign Affairs in Hong Kong, has called for all sectors to leverage the SAR's advantages in telling good stories about Hong Kong and the nation.
@@ -72,7 +72,7 @@ Pan Yundong, deputy commissioner of the Office of the Commissioner of the Minist
 
 # Police ramp up cross-border cooperation to fight scams
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800054_1_20250412112128.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800054_1_20250412112128.jpg&q=80)
   
 
 Newly appointed police commissioner Joe Chow on Saturday said officers will work more closely with police in other jurisdictions to combat cross-border scams.
@@ -96,7 +96,7 @@ Newly appointed police commissioner Joe Chow on Saturday said officers will work
 
 # Northern Metropolis to see up to two tenders this year
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800052_1_20250412110442.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800052_1_20250412110442.jpg&q=85)
   
 
 Development minister Bernadette Linn says one or two sizeable Northern Metropolis land parcels should to be put up for tender this year, while one in the San Tin Technopole will be tendered in 2026.
@@ -120,7 +120,7 @@ Development minister Bernadette Linn says one or two sizeable Northern Metropoli
 
 # Argentina ends foreign exchange restrictions
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800047_1_20250412095454.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800047_1_20250412095454.jpg&q=90)
   
 
 Argentina dismantled key parts of its years-long currency controls and loosened its grip on the peso on Friday as it sealed a US$20 billion, 48-month Extended Fund Facility deal with the International Monetary Fund (IMF).
@@ -144,7 +144,7 @@ Argentina dismantled key parts of its years-long currency controls and loosened 
 
 # South Carolina executes second convict by firing squad
 
-![Mikal Mahdi (pictured) was executed for the 2004 murder of 56-year-old James Myers. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800044_1_20250412094035.jpg&q=85)
+![Mikal Mahdi (pictured) was executed for the 2004 murder of 56-year-old James Myers. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800044_1_20250412094035.jpg&q=85)
   
 
 A man facing the death penalty for committing two murders was executed by firing squad on Friday, the second such execution in the US state of South Carolina this year.
@@ -168,7 +168,7 @@ A man facing the death penalty for committing two murders was executed by firing
 
 # Head of Greenland base fired after Vance visit
 
-![Colonel Susannah Meyers was removed after reports she distanced herself from comments made by US Vice President JD Vance. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800020_1_20250412045204.jpg&q=80)
+![Colonel Susannah Meyers was removed after reports she distanced herself from comments made by US Vice President JD Vance. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800020_1_20250412045204.jpg&q=80)
   
 
 The head of the US military base in Greenland, a Danish territory coveted by US President Donald Trump, has been fired for criticising Washington's agenda for the Arctic island.
@@ -192,7 +192,7 @@ The head of the US military base in Greenland, a Danish territory coveted by US 
 
 # Trump takes annual physical exam, says it went well
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800043_1_20250412093003.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800043_1_20250412093003.jpg&q=90)
   
 
 President Donald Trump, who in January became the oldest person to assume the US presidency, underwent his first physical exam of his second term on Friday and said it went well, with results set to be released Sunday.
@@ -216,7 +216,7 @@ President Donald Trump, who in January became the oldest person to assume the US
 
 # Justin Rose retains lead at the Masters after Round 2
 
-![Rose plays out of a bunker on the 17th hole. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800039_1_20250412083305.jpg&q=90)
+![Rose plays out of a bunker on the 17th hole. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800039_1_20250412083305.jpg&q=90)
   
 
 Justin Rose remained atop a star-studded leaderboard after the second round of the Masters on Friday , with defending champion Scottie Scheffler, Rory McIlroy and Bryson DeChambeau all within three shots of the lead.
@@ -240,7 +240,7 @@ Justin Rose remained atop a star-studded leaderboard after the second round of t
 
 # US stocks finish on upbeat tone after volatile week
 
-![Investors are also turning attention to quarterly earnings season, which began on Friday. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800024_1_20250412054829.jpg&q=80)
+![Investors are also turning attention to quarterly earnings season, which began on Friday. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800024_1_20250412054829.jpg&q=80)
   
 
 Wall Street stocks finished solidly higher on Friday, concluding a rollercoaster week on a positive note amid hopes that the market has absorbed the worst headlines about trade conflicts.
@@ -264,7 +264,7 @@ Wall Street stocks finished solidly higher on Friday, concluding a rollercoaster
 
 # Court dismisses legal challenge over San Tin tech hub
 
-![The court ruling to throw out a legal challenge against the San Tin Technopole project comes after the applicant withdrew his judicial review application. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800004_1_20250411221145.jpg&q=90)
+![The court ruling to throw out a legal challenge against the San Tin Technopole project comes after the applicant withdrew his judicial review application. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800004_1_20250411221145.jpg&q=90)
   
 
 The Development Bureau on Friday welcomed the High Court’s decision to dismiss a legal challenge against the environmental impact assessment of the San Tin Technopole project.
@@ -288,7 +288,7 @@ The Development Bureau on Friday welcomed the High Court’s decision to dismiss
 
 # Women, children killed in Israeli strikes: UN
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800005_1_20250411221346.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800005_1_20250411221346.jpg&q=75)
   
 
 Dozens of Israeli air strikes on Gaza have killed "only women and children" after a ceasefire collapsed, the UN said, as an Israeli attack in the territory's south on Friday left a family of 10 dead.
@@ -312,7 +312,7 @@ Dozens of Israeli air strikes on Gaza have killed "only women and children" afte
 
 # Australia's Robert French steps down from CFA
 
-![Robert French joined the top court as a non-permanent judge in 2017. Photo courtesy of the Judiciary](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799988_1_20250411191500.jpg&q=85)
+![Robert French joined the top court as a non-permanent judge in 2017. Photo courtesy of the Judiciary](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799988_1_20250411191500.jpg&q=85)
   
 
 Australian non-permanent judge Robert French has stepped down from the Court of Final Appeal, with the government on Friday expressing regret over his resignation.
@@ -336,7 +336,7 @@ Australian non-permanent judge Robert French has stepped down from the Court of 
 
 # Two feared trapped in S Korea subway tunnel collapse
 
-![A bird's eye view of the site of the tunnel collapse in Gwangmyeong. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799974_1_20250411182841.jpg&q=35)
+![A bird's eye view of the site of the tunnel collapse in Gwangmyeong. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799974_1_20250411182841.jpg&q=35)
   
 
 A subway tunnel under construction near Seoul collapsed on Friday, likely leaving two workers trapped at the site, officials said.
@@ -360,7 +360,7 @@ A subway tunnel under construction near Seoul collapsed on Friday, likely leavin
 
 # EU set to mark 50 years of ties with China in July
 
-![French leader Emmanuel Macron and European Commission chief Ursula von der Leyen meet President Xi Jinping at the Elysee Palace in Paris in May 2024. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799970_1_20250411181740.jpg&q=90)
+![French leader Emmanuel Macron and European Commission chief Ursula von der Leyen meet President Xi Jinping at the Elysee Palace in Paris in May 2024. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799970_1_20250411181740.jpg&q=90)
   
 
 Top EU officials and Chinese leaders are due to hold their next summit marking 50 years of ties in China in July, a spokesperson for the European Council said on Friday.
@@ -384,7 +384,7 @@ Top EU officials and Chinese leaders are due to hold their next summit marking 5
 
 # Govt pledges to review RTHK operations
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799951_1_20250411163912.jpg&q=40)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799951_1_20250411163912.jpg&q=1)
   
 
 Secretary for Commerce and Economic Development Algernon Yau said on Friday the government will further review operations at RTHK after lawmakers expressed concern over the broadcaster's expenditure.
@@ -408,7 +408,7 @@ Secretary for Commerce and Economic Development Algernon Yau said on Friday the 
 
 # Salah driven to keep delivering after signing new deal
 
-![Mohamed Salah says the prospect of winning before a full Enfield is what drives him crazy every day. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799966_1_20250411175726.jpg&q=80)
+![Mohamed Salah says the prospect of winning before a full Enfield is what drives him crazy every day. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799966_1_20250411175726.jpg&q=80)
   
 
 Mohamed Salah said he is driven every day to deliver Premier League glory to Liverpool this season after signing a new two-year contract on Friday.
@@ -432,7 +432,7 @@ Mohamed Salah said he is driven every day to deliver Premier League glory to Liv
 
 # Yoon in emotional exit from official residence
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799965_1_20250411175109.jpg&q=70)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799965_1_20250411175109.jpg&q=70)
   
 
 Former South Korean president Yoon Suk-yeol returned to his private home on Friday from the official residence after his removal from office, with crowds of supporters turning out to greet his motorcade.
@@ -456,7 +456,7 @@ Former South Korean president Yoon Suk-yeol returned to his private home on Frid
 
 # Warning system in works for HK's flood-prone roads
 
-![The system includes red wavy lines painted on roads, water level markers and real-time monitoring equipment. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799958_1_20250411170838.jpg&q=60)
+![The system includes red wavy lines painted on roads, water level markers and real-time monitoring equipment. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799958_1_20250411170838.jpg&q=60)
   
 
 The government on Friday announced a pilot scheme to install flood-warning systems at five flood-prone areas to prevent vehicles from being stranded during severe rainstorms.
@@ -480,7 +480,7 @@ The government on Friday announced a pilot scheme to install flood-warning syste
 
 # HK stocks end up as Beijing has last say on tariffs
 
-![The Hang Seng Index ended up 1.13 percent to close at 20,914.69. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799960_1_20250411172140.jpg&q=90)
+![The Hang Seng Index ended up 1.13 percent to close at 20,914.69. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799960_1_20250411172140.jpg&q=90)
   
 
 The US dollar tumbled along with most stocks while gold hit a fresh record high as panic gripped markets again on Friday, while China retaliated against Donald Trump's latest tariff blitz against the world's number two economy.
@@ -504,7 +504,7 @@ The US dollar tumbled along with most stocks while gold hit a fresh record high 
 
 # Xi urges EU to join in opposing 'unilateral bullying'
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799942_1_20250411155117.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799942_1_20250411155117.jpg&q=90)
   
 
 President Xi Jinping urged the European Union on Friday to join hands with China in resisting "unilateral bullying", in reference to tariffs imposed by US President Donald Trump.
@@ -528,7 +528,7 @@ President Xi Jinping urged the European Union on Friday to join hands with China
 
 # China raises tariffs on US goods to 125pc
 
-![US exporters to China of goods such as soybeans now face 125 percent tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799950_1_20250411162842.jpg&q=80)
+![US exporters to China of goods such as soybeans now face 125 percent tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799950_1_20250411162842.jpg&q=80)
   
 
 China blasted US President Donald Trump's tariffs on Friday as a "numbers game" that "will become a joke", as Beijing raised levies on US imports to 125 percent and said it would go no further.
@@ -552,7 +552,7 @@ China blasted US President Donald Trump's tariffs on Friday as a "numbers game" 
 
 # 139 stooge account holders arrested over scams: police
 
-![Police say the suspects were involved in fraudulent phone, investment and online schemes. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799944_1_20250411155551.jpg&q=90)
+![Police say the suspects were involved in fraudulent phone, investment and online schemes. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799944_1_20250411155551.jpg&q=90)
   
 
 Police said on Friday 139 people have been arrested on suspicion of money laundering and obtaining property by deception, with losses to victims amounting to more than HK$130 million.
@@ -576,7 +576,7 @@ Police said on Friday 139 people have been arrested on suspicion of money launde
 
 # Ombudsman launches probe into road repair works
 
-![The Office of the Ombudsman is investigating how the Highways Department handles damage to roads, such as uneven surfaces and potholes. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799941_1_20250411154951.jpg&q=1)
+![The Office of the Ombudsman is investigating how the Highways Department handles damage to roads, such as uneven surfaces and potholes. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799941_1_20250411154951.jpg&q=40)
   
 
 The Office of the Ombudsman said on Friday it’s launching an investigation into how the Highways Department handles damage to roads, such as uneven surfaces and potholes.
@@ -600,7 +600,7 @@ The Office of the Ombudsman said on Friday it’s launching an investigation int
 
 # Strategies to boost maritime and aviation: Mable Chan
 
-![Mable Chan says the government will help the maritime sector look for new markets and step up collaboration with ports in the Greater Bay Area. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799927_1_20250411141831.jpg&q=90)
+![Mable Chan says the government will help the maritime sector look for new markets and step up collaboration with ports in the Greater Bay Area. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799927_1_20250411141831.jpg&q=90)
   
 
 Secretary for Transport and Logistics Mable Chan said the government has come up with strategies to tackle an expected drop in Hong Kong's global trading volume as a result of the tariff war initiated by US President Donald Trump.
@@ -624,7 +624,7 @@ Secretary for Transport and Logistics Mable Chan said the government has come up
 
 # Huge demand for Manchester United friendly in HK
 
-![More costly tickets are the only options left for those wanting to see Manchester United in action against a Hong Kong, China, team. Photo: Screenshot](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799925_2_20250411155511.jpg&q=90)
+![More costly tickets are the only options left for those wanting to see Manchester United in action against a Hong Kong, China, team. Photo: Screenshot](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799925_2_20250411155511.jpg&q=90)
   
 
 Tickets for next month’s friendly between Manchester United and Team Hong Kong, China, went on sale at noon on Friday, with the cheapest tickets snapped up within half an hour.
@@ -648,7 +648,7 @@ Tickets for next month’s friendly between Manchester United and Team Hong Kong
 
 # Trump levy looms larger for senders of small parcels
 
-![People sending small parcels to the US will have to pay US$100 per item from May 2 and US$200 from June 1. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799912_1_20250411115603.jpg&q=70)
+![People sending small parcels to the US will have to pay US$100 per item from May 2 and US$200 from June 1. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799912_1_20250411115603.jpg&q=70)
   
 
 Hong Kong is continuing to see fallout from the trade war started by US President Donald Trump who raised the duty on small goods parcels from the SAR to 120 percent from the 90 percent that he had set just a day before that, and the 30 percent in his opening salvo on April 2.
@@ -672,7 +672,7 @@ Hong Kong is continuing to see fallout from the trade war started by US Presiden
 
 # CE to visit Middle East with mainland firms next month
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799910_1_20250411114718.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799910_1_20250411114718.jpg&q=85)
   
 
 Commerce minister Algernon Yau on Friday said the chief executive would head to the Middle East next month with representatives from mainland enterprises to seek more business opportunities.
@@ -696,7 +696,7 @@ Commerce minister Algernon Yau on Friday said the chief executive would head to 
 
 # HK to launch locally developed chatbot in second half
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799909_1_20250411114314.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799909_1_20250411114314.jpg&q=90)
   
 
 The Commissioner for Digital Policy Tony Wong said Hong Kong aims to launch a locally developed chatbot in the second half and that it may be available for use free of charge in the initial stage.
@@ -720,7 +720,7 @@ The Commissioner for Digital Policy Tony Wong said Hong Kong aims to launch a lo
 
 # HK to firmly safeguard nation's financial security: FS
 
-![Paul Chan says the SAR government has formulated various response plans to help fend off financial risks. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799904_1_20250411111509.jpg&q=85)
+![Paul Chan says the SAR government has formulated various response plans to help fend off financial risks. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799904_1_20250411111509.jpg&q=1)
   
 
 Financial Secretary Paul Chan on Friday said Hong Kong is building a comprehensive financial protection network with systematic response plans and monitoring mechanisms to safeguard what he called the "southern gate" of the nation.
@@ -744,7 +744,7 @@ Financial Secretary Paul Chan on Friday said Hong Kong is building a comprehensi
 
 # Diversity key to success amid tariff war: lawmaker
 
-![Lawmaker Kennedy Wong says having a diversified set of trading partners will be increasingly important for Hong Kong firms. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799911_1_20250411115034.jpg&q=70)
+![Lawmaker Kennedy Wong says having a diversified set of trading partners will be increasingly important for Hong Kong firms. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799911_1_20250411115034.jpg&q=70)
   
 
 Lawmaker Kennedy Wong on Friday said the world had entered a new period of uncertainty and disruption because of the US tariffs.
@@ -768,7 +768,7 @@ Lawmaker Kennedy Wong on Friday said the world had entered a new period of uncer
 
 # Xi to visit Vietnam, Malaysia and Cambodia next week
 
-![President Xi Jinping with late Vietnam Communist Party general secretary Nguyen Phu Trong at the presidential palace in Hanoi in December 2023. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799903_1_20250411103929.jpg&q=55)
+![President Xi Jinping with late Vietnam Communist Party general secretary Nguyen Phu Trong at the presidential palace in Hanoi in December 2023. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799903_1_20250411103929.jpg&q=55)
   
 
 President Xi Jinping will visit Vietnam, Malaysia and Cambodia next week, the Foreign Ministry said on Friday.
@@ -792,7 +792,7 @@ President Xi Jinping will visit Vietnam, Malaysia and Cambodia next week, the Fo
 
 # Lazio freeze as Bodo/Glimt take 2-0 first leg win
 
-![Ulrik Saltnes celebrates after breaking the deadlock against Lazio. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799883_2_20250411110636.jpg&q=80)
+![Ulrik Saltnes celebrates after breaking the deadlock against Lazio. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799883_2_20250411110636.jpg&q=80)
   
 
 Two goals from Ulrik Saltnes spurred Bodo/Glimt to a 2-0 home victory over Lazio in the first leg of their Europa League quarter-final, with the one-sided encounter played out in freezing conditions.
@@ -816,7 +816,7 @@ Two goals from Ulrik Saltnes spurred Bodo/Glimt to a 2-0 home victory over Lazio
 
 # Local stocks open down 0.6pc amid tariff woes
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799887_1_20250411091935.jpg&q=70)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799887_1_20250411091935.jpg&q=70)
   
 
 Hong Kong stocks fell on Friday, hurt by growing concerns about the US trade war and the potential for a global recession.
@@ -840,7 +840,7 @@ Hong Kong stocks fell on Friday, hurt by growing concerns about the US trade war
 
 # 10-man Rangers hold Bilbao to Europa League draw
 
-![Rangers' Dujon Sterling handles the ball before Athletic Bilbao are awarded a penalty kick following a VAR review. Photo: Action Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799882_1_20250411090153.jpg&q=85)
+![Rangers' Dujon Sterling handles the ball before Athletic Bilbao are awarded a penalty kick following a VAR review. Photo: Action Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799882_1_20250411090153.jpg&q=85)
   
 
 Rangers held Athletic Bilbao to a nail-biting goalless draw at home in the first leg of their Europa League quarter-final, despite being reduced to 10 men early on.
@@ -864,7 +864,7 @@ Rangers held Athletic Bilbao to a nail-biting goalless draw at home in the first
 
 # Simmi Chan wins U23 World Squash silver
 
-![Simmi Chan is Hong Kong’s first female athlete to secure a silver medal at the Under-23 World Squash Championships. Photo: Squash Association of Hong Kong, China's Instagram](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799876_3_20250411091433.jpg&q=90)
+![Simmi Chan is Hong Kong’s first female athlete to secure a silver medal at the Under-23 World Squash Championships. Photo: Squash Association of Hong Kong, China's Instagram](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799876_3_20250411091433.jpg&q=90)
   
 
 Hong Kong, China squash player Simmi Chan secured a historic silver medal at the inaugural Under-23 World Squash Championships in Pakistan.
@@ -888,7 +888,7 @@ Hong Kong, China squash player Simmi Chan secured a historic silver medal at the
 
 # More than 200 dead as rescue efforts end at nightclub
 
-![Authorities have called off the search for bodies as the death toll stands at 221. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799885_1_20250411091644.jpg&q=20)
+![Authorities have called off the search for bodies as the death toll stands at 221. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799885_1_20250411091644.jpg&q=20)
   
 
 Recovery efforts wrapped up in the capital of the Dominican Republic after a roof collapse at a nightclub during a concert killed at least 221 people, authorities said on Thursday.
@@ -912,7 +912,7 @@ Recovery efforts wrapped up in the capital of the Dominican Republic after a roo
 
 # Trump tariff worries hammer Asian stocks
 
-![A display in Tokyo shows stock market declines in the wake of US President Donald Trump's tariff announcements. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799881_1_20250411090527.jpg&q=35)
+![A display in Tokyo shows stock market declines in the wake of US President Donald Trump's tariff announcements. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799881_1_20250411090527.jpg&q=35)
   
 
 Continuing jitters about US tariffs hit Asian stocks in early trade on Friday, with Japan's Nikkei tumbling more than five percent and gold hitting another record high.
@@ -936,7 +936,7 @@ Continuing jitters about US tariffs hit Asian stocks in early trade on Friday, w
 
 # Ukraine coalition presses ahead with force planning
 
-![Britain's Defence Secretary John Healey and France's Defence Minister Sebastien Lecornu attend a meeting of the Coalition of the Willing, hosted by the United Kingdom and France at Nato headquarters in Brussels. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799871_1_20250411080308.jpg&q=90)
+![Britain's Defence Secretary John Healey and France's Defence Minister Sebastien Lecornu attend a meeting of the Coalition of the Willing, hosted by the United Kingdom and France at Nato headquarters in Brussels. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799871_1_20250411080308.jpg&q=90)
   
 
 Britain's defence minister on Thursday urged his counterparts from around 30 countries to press ahead with plans to deploy troops to Ukraine to police any future peace agreement with Russia, as questions remained over whether the United States would provide backup.
@@ -960,7 +960,7 @@ Britain's defence minister on Thursday urged his counterparts from around 30 cou
 
 # Country Garden reaches debt deal with some creditors
 
-![Country Garden said creditors holding 29.9 percent of US$10.3 billion in bonds had agreed to the plan. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799869_1_20250411075059.jpg&q=90)
+![Country Garden said creditors holding 29.9 percent of US$10.3 billion in bonds had agreed to the plan. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799869_1_20250411075059.jpg&q=90)
   
 
 Chinese property developer Country Garden said on Friday it had reached an agreement with creditors holding nearly 30 percent of its existing offshore bond debt and was close to finalising terms with another group of bank creditors.
@@ -984,7 +984,7 @@ Chinese property developer Country Garden said on Friday it had reached an agree
 
 # Trump claims victory over EU in tariff battle
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799867_1_20250411074334.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799867_1_20250411074334.jpg&q=90)
   
 
 US President Donald Trump claimed victory over Europe in the US tariffs war but acknowledged a "cost" to his surging trade offensive against superpower rival China as markets plunged again on Thursday.
@@ -1008,7 +1008,7 @@ US President Donald Trump claimed victory over Europe in the US tariffs war but 
 
 # Tourists, pilot killed in NY helicopter crash
 
-![The chopper's landing skids were seen protruding from the river beside a tunnel vent. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799865_1_20250411073022.jpg&q=80)
+![The chopper's landing skids were seen protruding from the river beside a tunnel vent. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799865_1_20250411073022.jpg&q=80)
   
 
 Six people, including three children, were killed after a sightseeing helicopter crashed into the Hudson River in New York on Thursday, sparking a major water rescue operation, authorities said.
@@ -1032,7 +1032,7 @@ Six people, including three children, were killed after a sightseeing helicopter
 
 # US stocks dive amid fears over US-China trade war
 
-![Major US indices spent the entire day in the red, disappointing traders who'd been hoping to extend Wednesday's rally following Trump's pivot on tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799860_1_20250411061810.jpg&q=50)
+![Major US indices spent the entire day in the red, disappointing traders who'd been hoping to extend Wednesday's rally following Trump's pivot on tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799860_1_20250411061810.jpg&q=50)
   
 
 Wall Street stocks suffered another battering on Thursday, giving back a sizeable portion of the prior session's gains as investors grappled with lingering uncertainty about US President Donald Trump's trade and economic policies.
@@ -1056,7 +1056,7 @@ Wall Street stocks suffered another battering on Thursday, giving back a sizeabl
 
 # Customs seizes HK$4m in suspected MDMA
 
-![A 31-year-old woman arriving from Vancouver was arrested after officers found the drugs in her checked luggage. Photo: GIS](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799843_1_20250411005107.jpg&q=75)
+![A 31-year-old woman arriving from Vancouver was arrested after officers found the drugs in her checked luggage. Photo: GIS](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799843_1_20250411005107.jpg&q=75)
   
 
 Hong Kong Customs says it seized about 20 kilograms of suspected MDMA worth HK$4 million at the airport on Thursday.
@@ -1080,7 +1080,7 @@ Hong Kong Customs says it seized about 20 kilograms of suspected MDMA worth HK$4
 
 # HK exporters to receive extra support amid tariffs
 
-![Algernon Yau (third left) met with representatives of industries which are more affected by the tariffs, such as jewellery, textiles and garment, food and aluminium. Photo courtesy of the Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799826_2_20250410213210.jpg&q=90)
+![Algernon Yau (third left) met with representatives of industries which are more affected by the tariffs, such as jewellery, textiles and garment, food and aluminium. Photo courtesy of the Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799826_2_20250410213210.jpg&q=90)
   
 
 Hong Kong authorities have offered further support to insure local small and medium-sized enterprises (SMEs) against pre-shipment risks amid sweeping tariffs, while announcing measures to help them tap into new markets.
@@ -1104,7 +1104,7 @@ Hong Kong authorities have offered further support to insure local small and med
 
 # Democrats want insider probe over Trump's flip-flop
 
-![Donald Trump is said to have posted a few minutes after Wall Street opened that 'IT'S TIME TO BUY', hours before he announced a 90-day suspension of additional tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799813_1_20250410183656.jpg&q=75)
+![Donald Trump is said to have posted a few minutes after Wall Street opened that 'IT'S TIME TO BUY', hours before he announced a 90-day suspension of additional tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799813_1_20250410183656.jpg&q=75)
   
 
 Several American senators have called for an investigation into whether US President Donald Trump engaged in insider trading or market manipulation by encouraging people to buy stocks just before his dramatic reversal on global tariffs.
@@ -1128,7 +1128,7 @@ Several American senators have called for an investigation into whether US Presi
 
 # BJK tennis finals in Shenzhen to be in September
 
-![Elena Rybakina, right, and Yulia Putintseva connect with fans following their win over Australia at the Patrick Rafter Tennis Centre in Brisbane.  Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799812_1_20250410182637.jpg&q=60)
+![Elena Rybakina, right, and Yulia Putintseva connect with fans following their win over Australia at the Patrick Rafter Tennis Centre in Brisbane.  Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799812_1_20250410182637.jpg&q=60)
   
 
 The Billie Jean King Cup finals in Shenzhen have been brought forward from November to September, organisers announced on Thursday.
@@ -1152,7 +1152,7 @@ The Billie Jean King Cup finals in Shenzhen have been brought forward from Novem
 
 # Manchester United promise to put on a show in HK
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799801_1_20250410172604.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799801_1_20250410172604.jpg&q=75)
   
 
 Manchester United on Thursday assured SAR fans that a “full team” including captain Bruno Fernandes will be featured in a friendly against Hong Kong, China next month.
@@ -1176,7 +1176,7 @@ Manchester United on Thursday assured SAR fans that a “full team” including 
 
 # HK stocks keep rising despite Trump's China escalation
 
-![The Hang Seng Index ended up 2.06 percent at 20,681.78. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799800_1_20250410172543.jpg&q=90)
+![The Hang Seng Index ended up 2.06 percent at 20,681.78. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799800_1_20250410172543.jpg&q=90)
   
 
 Stocks rocketed on Thursday as a relief rally spread through markets after Donald Trump paused crippling tariffs on US partners, with Chinese investors even brushing off his decision to ramp up duties on Beijing to 125 percent.
@@ -1200,7 +1200,7 @@ Stocks rocketed on Thursday as a relief rally spread through markets after Donal
 
 # Govt mulls fishing rules relaxation to boost tourism
 
-![Rosanna Law says the government will consider increasing the number of yacht docking spaces in Victoria Harbour. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799779_1_20250410161655.jpg&q=85)
+![Rosanna Law says the government will consider increasing the number of yacht docking spaces in Victoria Harbour. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799779_1_20250410161655.jpg&q=85)
   
 
 Authorities have said they will make it easier for people to cook freshly caught fish on boats, as part of a push to promote island hopping tourism.
@@ -1224,7 +1224,7 @@ Authorities have said they will make it easier for people to cook freshly caught
 
 # Postal bank in 10tn yuan backing for private firms
 
-![Postal Savings Bank is setting aside at least three trillion yuan for technology innovators and over three trillion yuan for the agricultural sector. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799782_1_20250410162210.jpg&q=85)
+![Postal Savings Bank is setting aside at least three trillion yuan for technology innovators and over three trillion yuan for the agricultural sector. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799782_1_20250410162210.jpg&q=85)
   
 
 Postal Savings Bank of China has announced a commitment to provide no less than 10 trillion yuan in financing to private businesses over the next five years, reinforcing its dedication to supporting the country's private sector amid economic headwinds.
@@ -1248,7 +1248,7 @@ Postal Savings Bank of China has announced a commitment to provide no less than 
 
 # China to follow through to the end: Commerce Ministry
 
-![The Commerce Ministry says the nation will hedge against uncertainty coming from the external environment. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799775_1_20250410155326.jpg&q=80)
+![The Commerce Ministry says the nation will hedge against uncertainty coming from the external environment. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799775_1_20250410155326.jpg&q=80)
   
 
 The Commerce Ministry on Thursday said China will continue taking countermeasures to safeguard the country's sovereignty, security and development interests, emphasising that protectionism is a one-way road.
@@ -1272,7 +1272,7 @@ The Commerce Ministry on Thursday said China will continue taking countermeasure
 
 # Manufacturers call for support measures amid trade war
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799768_1_20250410151436.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799768_1_20250410151436.jpg&q=1)
   
 
 The Chinese Manufacturers' Association on Thursday urged the SAR administration to roll out support measures to help enterprises with stabilising their working capital amid the global trade war.
@@ -1296,7 +1296,7 @@ The Chinese Manufacturers' Association on Thursday urged the SAR administration 
 
 # US tariffs fundamentally wrong, finance chief says
 
-![Financial Secretary Paul Chan says that the US reciprocal tariffs are both politically and historically wrong. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799756_1_20250410134156.jpg&q=80)
+![Financial Secretary Paul Chan says that the US reciprocal tariffs are both politically and historically wrong. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799756_1_20250410134156.jpg&q=80)
   
 
 Financial Secretary Paul Chan on Thursday slammed the latest US "reciprocal tariffs", which had earlier been imposed before being paused, as "fundamentally wrong" politically, economically and historically.
@@ -1320,7 +1320,7 @@ Financial Secretary Paul Chan on Thursday slammed the latest US "reciprocal tari
 
 # Trump wants to 'make showers great again'
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799755_1_20250410134902.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799755_1_20250410134902.jpg&q=85)
   
 
 US President Donald Trump has signed an executive order lifting water-pressure restrictions on showerheads, a move the White House said would "make America's showers great again".
@@ -1344,7 +1344,7 @@ US President Donald Trump has signed an executive order lifting water-pressure r
 
 # Authorities doing more to tackle scams, mule accounts
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799754_1_20250410132043.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799754_1_20250410132043.jpg&q=90)
   
 
 Authorities on Thursday said they are stepping up efforts to tackle scam syndicates and their use of mule accounts to launder funds.
@@ -1368,7 +1368,7 @@ Authorities on Thursday said they are stepping up efforts to tackle scam syndica
 
 # AI to turbocharge fintech growth in Asia: Paul Chan
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799750_1_20250410130359.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799750_1_20250410130359.jpg&q=90)
   
 
 Financial Secretary Paul Chan said on Thursday the integration of artificial intelligence technology into the fintech industry could help turbocharge financial development across Asia.
@@ -1392,7 +1392,7 @@ Financial Secretary Paul Chan said on Thursday the integration of artificial int
 
 # 'AI surge creates new energy security challenges'
 
-![Data centres' global electricity consumption has increased by 12 percent annually over the past five years. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799751_1_20250410130449.jpg&q=80)
+![Data centres' global electricity consumption has increased by 12 percent annually over the past five years. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799751_1_20250410130449.jpg&q=80)
   
 
 Electricity consumption by data centres will more than double by 2030, driven by artificial intelligence applications that will create new challenges for energy security and CO2 emission goals, the International Energy Agency (IEA) said on Thursday.
@@ -1416,7 +1416,7 @@ Electricity consumption by data centres will more than double by 2030, driven by
 
 # S Korean opposition leader opens presidential bid
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799740_1_20250410123632.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799740_1_20250410123632.jpg&q=85)
   
 
 South Korean opposition leader Lee Jae-myung, widely seen as the frontrunner in a presidential by-election triggered by the removal of President Yoon Suk Yeol last week, officially announced a presidential bid on Thursday, vowing to heal a starkly divided nation through economic growth.

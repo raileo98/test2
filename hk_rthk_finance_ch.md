@@ -1,6 +1,6 @@
 # 聯儲局：市場運作良好　絕對準備好必要時穩定市場
 
-![柯林斯表示現時市場繼續良好運作，若出現問題，聯儲局有工具應對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800037_1_20250412080000.jpg&q=60)
+![柯林斯表示現時市場繼續良好運作，若出現問題，聯儲局有工具應對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800037_1_20250412080000.jpg&q=1)
   
 
 波士頓聯儲銀行總裁柯林斯表示，聯儲局絕對準備好在必要時應對金融市場運作問題，穩定市場。
@@ -24,7 +24,7 @@
 
 # 聯儲局官員料關稅導致今年通脹率升到3.5%至4%
 
-![威廉姆斯表示，特朗普政府的貿易政策將導致今年通脹加速，料今年通脹率升至3.5%至4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800036_1_20250412074826.jpg&q=1)
+![威廉姆斯表示，特朗普政府的貿易政策將導致今年通脹加速，料今年通脹率升至3.5%至4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800036_1_20250412074826.jpg&q=30)
   
 
 紐約聯儲銀行總裁威廉姆斯表示，特朗普政府的貿易政策將導致今年通脹加速，聯儲局要防止長期價格壓力預期脫離錨定的重要作用。
@@ -48,7 +48,7 @@
 
 # 港股ADR較本港昨日收市價普遍上升
 
-![港股ADR普遍上升，港交所升近2%，騰訊靠穩。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800035_1_20250412073020.jpg&q=85)
+![港股ADR普遍上升，港交所升近2%，騰訊靠穩。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800035_1_20250412073020.jpg&q=85)
   
 
 港股美國預託證券(ADR)普遍上升。
@@ -72,7 +72,7 @@
 
 # 美國10年期國債息率一度逼近4.6厘
 
-![分析擔心，特朗普的政策，將削弱美元作為儲備貨幣、美債避險作用。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800034_1_20250412072454.jpg&q=85)
+![分析擔心，特朗普的政策，將削弱美元作為儲備貨幣、美債避險作用。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800034_1_20250412072454.jpg&q=1)
   
 
 美國國債息率上升，10年期國債收益率及30年期國債收益率，分別創2001年及1987年以來最大單星期升幅。
@@ -96,7 +96,7 @@
 
 # 金價升約2%　資金流入黃金避險
 
-![現貨金較早報每盎司3235.89美元，上升近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800031_1_20250412065952.jpg&q=75)
+![現貨金較早報每盎司3235.89美元，上升近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800031_1_20250412065952.jpg&q=75)
   
 
 金價突破每盎司3200美元，本周升逾6%，美元下跌，加上貿易戰陰霾引發對經濟衰退的擔憂，資金流入黃金避險。
@@ -120,7 +120,7 @@
 
 # 美元兌瑞郎跌至10年新低　美匯失守100
 
-![衡量美元兌一籃子貨幣的美元指數失守100大關，較早時報99.786，跌0.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800028_1_20250412060238.jpg&q=55)
+![衡量美元兌一籃子貨幣的美元指數失守100大關，較早時報99.786，跌0.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800028_1_20250412060238.jpg&q=55)
   
 
 美元兌主要貨幣下跌，衡量美元兌一籃子貨幣的美元指數失守100大關，較早時報99.786，跌0.73%。
@@ -144,7 +144,7 @@
 
 # 油價反彈逾2%收市
 
-![油價反彈逾2%。美國表示可以阻止伊朗石油出口，市場預計或令供應減少。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800027_1_20250412055427.jpg&q=80)
+![油價反彈逾2%。美國表示可以阻止伊朗石油出口，市場預計或令供應減少。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800027_1_20250412055427.jpg&q=80)
   
 
 原油期貨價格反彈逾2%。美國能源部長表示，作為總統特朗普就德黑蘭核項目施壓計劃的一部分，可以阻止伊朗石油出口，市場預計或令供應減少。
@@ -168,7 +168,7 @@
 
 # 道指升619點　全周升近5%
 
-![美股3大指數升逾1%至逾2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800026_1_20250412054911.jpg&q=90)
+![美股3大指數升逾1%至逾2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800026_1_20250412054911.jpg&q=90)
   
 
 美股先低後高，3大指數升逾1%至逾2%，波士頓聯儲銀行總裁柯林斯表示，聯儲局絕對準備好在必要時，部署工具來應對金融市場的運作問題。他的言論紓緩投資者緊張情緒。
@@ -192,7 +192,7 @@
 
 # 英股升逾0.6%　法德股市低收0.3%至近1%
 
-![法國CAC指數收報7104點，跌21點，跌幅0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800022_1_20250412053347.jpg&q=75)
+![法國CAC指數收報7104點，跌21點，跌幅0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800022_1_20250412053347.jpg&q=75)
   
 
 歐洲股市3大指數個別發展。
@@ -216,7 +216,7 @@
 
 # 寧德時代：聯交所上市委員會已審閱公司的H股上市申請
 
-![寧德時代：聯交所上市委員會已審閱公司的上市申請，但信函不構成正式的上市批准。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800007_1_20250411225447.jpg&q=90)
+![寧德時代：聯交所上市委員會已審閱公司的上市申請，但信函不構成正式的上市批准。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800007_1_20250411225447.jpg&q=90)
   
 
 寧德時代表示，正在申請發行H股，並進行在香港主板掛牌上市的相關工作，聯交所上市委員會已於昨日舉行上市聆訊。
@@ -240,7 +240,7 @@
 
 # 美國密歇根大學4月消費者信心指數初值跌至50.8遜預期
 
-![美國密歇根大學消費者調查顯示，美國4月消費者信心指數初值跌至50.8，低過預期的54.5。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800006_1_20250411221641.jpg&q=50)
+![美國密歇根大學消費者調查顯示，美國4月消費者信心指數初值跌至50.8，低過預期的54.5。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800006_1_20250411221641.jpg&q=50)
   
 
 美國密歇根大學消費者調查顯示，美國4月消費者信心指數初值跌至50.8，低過預期的54.5。
@@ -264,7 +264,7 @@
 
 # 卡什卡利：聯儲局應該在市場真正受到衝擊時才謹慎地干預
 
-![卡什卡利表示，聯儲局應該在市場真正受到衝擊時，才以非常謹慎的態度干預。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800002_1_20250411220055.jpg&q=60)
+![卡什卡利表示，聯儲局應該在市場真正受到衝擊時，才以非常謹慎的態度干預。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800002_1_20250411220055.jpg&q=60)
   
 
 美國明尼亞波利斯聯邦儲備銀行總裁卡什卡利表示，聯儲局應該在市場真正受到衝擊時，才以非常謹慎的態度干預，強調聯儲局和財政部的介入，應在真正需要的時候才出手。
@@ -288,7 +288,7 @@
 
 # 美股初段向下
 
-![道瓊斯指數較早時報39280點，跌312點，跌幅0.79%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799997_1_20250411213735.jpg&q=70)
+![道瓊斯指數較早時報39280點，跌312點，跌幅0.79%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799997_1_20250411213735.jpg&q=70)
   
 
 美股初段向下。投資者正在消化中國對原產於美國進口商品關稅稅率提高至125%的影響。
@@ -312,7 +312,7 @@
 
 # 紫金礦業上季盈利按年升逾62%
 
-![紫金礦業今年首季盈利101.7億元人民幣，按年升逾62%，按季升32%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799996_1_20250411205208.jpg&q=85)
+![紫金礦業今年首季盈利101.7億元人民幣，按年升逾62%，按季升32%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799996_1_20250411205208.jpg&q=85)
   
 
 紫金礦業公布，今年首季盈利101.7億元人民幣，按年升逾62%，按季升32%。扣除非經常性損益，盈利98.8億元，按年升近59%。
@@ -336,7 +336,7 @@
 
 # 美國3月最終需求PPI及核心指數按年升幅都低過預期
 
-![美國3月最終需求生產物價指數(PPI)按年上升2.7%，低過預期的3.3%；按月則意外下跌0.4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799994_1_20250411204408.jpg&q=35)
+![美國3月最終需求生產物價指數(PPI)按年上升2.7%，低過預期的3.3%；按月則意外下跌0.4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799994_1_20250411204408.jpg&q=35)
   
 
 美國3月反映上游成本的最終需求生產物價指數(PPI)按年上升2.7%，低過預期的3.3%；按月則意外下跌0.4%，市場原先預期會升0.2%。
@@ -360,7 +360,7 @@
 
 # 多家內地企業助外貿企業出口轉內銷　京東擬採購至少2千億元產品
 
-![京東表示，未來一年內將大規模採購不少於2000億元人民幣的出口轉內銷商品，幫助中國的外貿企業快速開拓國內市場。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799990_1_20250411201204.jpg&q=70)
+![京東表示，未來一年內將大規模採購不少於2000億元人民幣的出口轉內銷商品，幫助中國的外貿企業快速開拓國內市場。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799990_1_20250411201204.jpg&q=1)
   
 
 多家內地零售企業啟動扶持計劃，幫助中國外貿企業開拓國內市場，包括京東、盒馬鮮生、聯華超市等。
@@ -384,7 +384,7 @@
 
 # 摩根大通上季盈利按年升逾9%
 
-![摩根大通今年首季盈利146.4億美元，按年增長逾9%，按季升近5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799993_1_20250411203319.jpg&q=85)
+![摩根大通今年首季盈利146.4億美元，按年增長逾9%，按季升近5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799993_1_20250411203319.jpg&q=85)
   
 
 摩根大通公布，今年首季盈利146.4億美元，按年增長逾9%，按季升近5%。每股經調整盈利5.07美元，按年升14%，按季升逾5%。
@@ -408,7 +408,7 @@
 
 # 劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰
 
-![劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799992_1_20250411213700.jpg&q=85)
+![劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799992_1_20250411213700.jpg&q=85)
   
 
 中共中央總書記、國家主席習近平在北京與西班牙首相桑切斯會面時，首次就近日的關稅議題發聲，強調「打關稅戰」沒有贏家，同世界作對將孤立自己，重申中方不畏懼任何無理打壓。
@@ -432,7 +432,7 @@
 
 # 金融監管總局發指導意見促進金融資產管理公司高質量發展
 
-![國家金融監管總局發出指導意見，要求金融資產管理公司支持受困房企項目紓困化險。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799984_1_20250411185302.jpg&q=75)
+![國家金融監管總局發出指導意見，要求金融資產管理公司支持受困房企項目紓困化險。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799984_1_20250411185302.jpg&q=75)
   
 
 國家金融監管總局發出指導意見，提出16條意見措施，要求金融資產管理公司做強做優不良資產收購處置業務，服務化解中小金融機構、房地產等領域風險，持續加強風險管理和內控機制建設，強化存量風險資產處置，嚴控增量業務風險，加強資產負債和流動性管理。
@@ -456,7 +456,7 @@
 
 # 中方指美方對華關稅稅率異常高淪數字游戲　如再加將不予理會
 
-![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字游戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799980_1_20250411195622.jpg&q=25)
+![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字游戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799980_1_20250411195622.jpg&q=25)
   
 
 中國再度反制美國，向原產於美國的進口商品，加徵關稅稅率上調至125%。
@@ -480,7 +480,7 @@
 
 # 代理：本周末二手屋苑預約睇樓減少　關稅戰令觀望氣氛明顯轉濃
 
-![地產代理預料本周末十大屋苑成交宗數未必能達雙位數。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799978_1_20250411183339.jpg&q=1)
+![地產代理預料本周末十大屋苑成交宗數未必能達雙位數。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799978_1_20250411183339.jpg&q=50)
   
 
 中原地產數字顯示，本周末十大屋苑預約睇樓有401組，按周跌約13.6%，創近5星期新低。
@@ -504,7 +504,7 @@
 
 # 習近平強調關稅戰無贏家　中方不畏懼任何無理打壓
 
-![習近平會見訪華的西班牙首相桑切斯，期間談及關稅議題。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799977_1_20250411193050.jpg&q=90)
+![習近平會見訪華的西班牙首相桑切斯，期間談及關稅議題。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799977_1_20250411193050.jpg&q=90)
   
 
 國家主席習近平在北京，會見訪華的西班牙首相桑切斯，期間談及關稅議題。
@@ -528,7 +528,7 @@
 
 # 習近平︰打關稅戰沒有贏家　中國不畏懼任何無理打壓
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799972_1_20250411183030.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799972_1_20250411183030.jpg&q=90)
   
 
 國家主席習近平在北京會見訪華的西班牙首相桑切斯。習近平強調，打關稅戰沒有贏家，同世界作對將孤立自己。
@@ -552,7 +552,7 @@
 
 # 有北京居民稱不擔心關稅戰　將令國家更強大
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799971_1_20250411184913.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799971_1_20250411184913.jpg&q=75)
   
 
 關稅貿易戰危及全球經濟，有北京居民指不擔心，已購入部分黃金等避險資產，又相信國家必要時會出手。有居民認為國家將內部改革，認為貿易戰將令國家更強大、更團結。
@@ -576,7 +576,7 @@
 
 # 在岸人民幣高收逾180點子
 
-![在岸人民幣高收逾180點子，收報7.3245兌1美元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799968_1_20250411175855.jpg&q=65)
+![在岸人民幣高收逾180點子，收報7.3245兌1美元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799968_1_20250411175855.jpg&q=65)
   
 
 在岸人民幣高收逾180點子，收報7.3245兌1美元。中間價結束6連跌，報7.2087兌1美元，較上日微升5點子，與市場預測偏離收窄至逾1000點子。
@@ -600,7 +600,7 @@
 
 # 人行等部門發文要求金融機構支持合條件體育企業發債
 
-![人行、國家體育總局等部門聯合發出指導意見，要求發揮金融促進體育消費增長功能。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799959_1_20250411171421.jpg&q=60)
+![人行、國家體育總局等部門聯合發出指導意見，要求發揮金融促進體育消費增長功能。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799959_1_20250411171421.jpg&q=60)
   
 
 人民銀行、國家體育總局、國家金融監管總局、中國證監會聯合發出指導意見，要求金融機構加大對體育場館等體育基礎設施建設和營運的支持力度；支持符合條件的體育企業發行公司債券，鼓勵發展股權融資，提升體育產業的直接融資比重等。
@@ -624,7 +624,7 @@
 
 # 白宮稱中國總關稅為145%　特朗普：期望與中方達成協議
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799969_1_20250411183308.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799969_1_20250411183308.jpg&q=90)
   
 
 美國總統特朗普早前宣布，對中國進口貨品的關稅稅率提高至125%，白宮官員澄清，特朗普所指的125%是對等關稅，連同早前因芬太尼問題加徵的20%關稅，美國對中國貨加徵的總關稅是145%。
@@ -648,7 +648,7 @@
 
 # 特首下月聯同內地企業出訪中東
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799967_1_20250411183404.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799967_1_20250411183404.jpg&q=90)
   
 
 商務及經濟發展局局長丘應樺透露，行政長官5月將聯同內地企業出訪中東。丘應樺指，特區政府與內地各個省市有很強的配合，「拼船出海」，在地緣政治緊張之下謀求發展。
@@ -672,7 +672,7 @@
 
 # 本港二手樓價按周微升　中原料今季樓價或再跌近3%
 
-![中原地產指貿易衝突升級，環球股市大幅波動，本港二手樓成交轉慢，今季樓價或再跌2.85%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799947_1_20250411161932.jpg&q=40)
+![中原地產指貿易衝突升級，環球股市大幅波動，本港二手樓成交轉慢，今季樓價或再跌2.85%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799947_1_20250411161932.jpg&q=40)
   
 
 反映本港二手樓價走勢的中原城市領先指數（CCL）最新報136.9，按周微升0.06%，但仍處於超過8年半以來低位。本周中美互相加徵關稅，全球股市大跌對樓市的影響將於5月上旬的樓價反映。
@@ -696,7 +696,7 @@
 
 # 港股高收逾1%　連升4個交易日　恒指本周累跌近8.5%
 
-![恒指收市報20914點，升幅1.13%，連升4個交易日，全星期累計跌近8.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799952_1_20250411163948.jpg&q=20)
+![恒指收市報20914點，升幅1.13%，連升4個交易日，全星期累計跌近8.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799952_1_20250411163948.jpg&q=20)
   
 
 港股先跌後回升，恒指初段最多跌近240點，其後轉升，下午曾升近450點，高見21127點，但未能企穩21000點關口，收市報20914點，升232點，升幅1.13%，連升4個交易日，主板成交額減少至約2764億元。
@@ -720,7 +720,7 @@
 
 # 投資推廣署稱香港是中東企業拓展亞太及內地市場策略門戶
 
-![吳國才（右）說，憑藉香港的營商優勢，與中東企業可以在金融、科技、可持續發展等加強合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799956_1_20250411165957.jpg&q=65)
+![吳國才（右）說，憑藉香港的營商優勢，與中東企業可以在金融、科技、可持續發展等加強合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799956_1_20250411165957.jpg&q=65)
   
 
 投資推廣署助理署長吳國才結束在中東的訪問，出訪利雅得、吉達和迪拜，宣傳香港是中東企業拓展亞太地區及內地市場的策略性門戶。
@@ -744,7 +744,7 @@
 
 # 中國於世貿組織爭端解決機制追加起訴美國進一步提高對華關稅
 
-![中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799949_1_20250411162733.jpg&q=80)
+![中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799949_1_20250411162733.jpg&q=80)
   
 
 中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。
@@ -768,7 +768,7 @@
 
 # 商務部嚴厲譴責美國提高對華關稅　指畸高關稅淪數字游戲及笑話
 
-![商務部新聞發言人表示，嚴厲譴責美方肆意的單邊關稅措施堅決反對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799948_1_20250411162016.jpg&q=40)
+![商務部新聞發言人表示，嚴厲譴責美方肆意的單邊關稅措施堅決反對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799948_1_20250411162016.jpg&q=40)
   
 
 中國再反制美國提高對華關稅。
@@ -792,7 +792,7 @@
 
 # 中國對原產於美國進口商品關稅稅率提高至125%
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799946_1_20250411165306.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799946_1_20250411165306.jpg&q=90)
   
 
 國務院關稅稅則委員會發公告，明日起，對所有原產於美國的進口商品，加徵關稅稅率，由84%提高至125%。
@@ -816,7 +816,7 @@
 
 # 回應美國對華加徵關稅　外交部稱不願打關稅戰但也不怕打
 
-![林劍表示關稅戰、貿易戰沒有贏家，中方不願打，但也不怕打。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799935_1_20250411145114.jpg&q=90)
+![林劍表示關稅戰、貿易戰沒有贏家，中方不願打，但也不怕打。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799935_1_20250411145114.jpg&q=90)
   
 
 在北京，外交部回應美國對華產品加徵145%關稅。發言人林劍表示，關稅戰、貿易戰沒有贏家，中方不願打，但也不怕打。他說如果美方真的想通過對話談判解決問題，就應該停止極限施壓、胡作非為，任何對話都必須建立在平等、尊重、互惠的基礎上。如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。
@@ -840,7 +840,7 @@
 
 # 內地股市先低後高　滬股本周累跌逾3%
 
-![內地股市先低後高。上證指數收市報3238點，升14點，升幅0.45%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799937_2_20250411151809.jpg&q=75)
+![內地股市先低後高。上證指數收市報3238點，升14點，升幅0.45%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799937_2_20250411151809.jpg&q=75)
   
 
 內地股市先低後高，下午走勢轉強，半導體、資源、貴金屬、人型機械人概念股上升；農業、白酒股向下。
@@ -864,7 +864,7 @@
 
 # 韓股低收0.5%　本周累跌逾1%
 
-![首爾綜合指數收市報2432點，跌12點，跌幅0.5%。（KRX圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799934_1_20250411144704.jpg&q=80)
+![首爾綜合指數收市報2432點，跌12點，跌幅0.5%。（KRX圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799934_1_20250411144704.jpg&q=80)
   
 
 南韓股市下跌。首爾綜合指數收市報2432點，跌12點，跌幅0.5%。
@@ -888,7 +888,7 @@
 
 # 日股跌近3%　本周累跌近0.6%
 
-![日經指數收市報33585點，跌幅2.96%。本周累計下跌近0.6%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799933_1_20250411144010.jpg&q=75)
+![日經指數收市報33585點，跌幅2.96%。本周累計下跌近0.6%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799933_1_20250411144010.jpg&q=1)
   
 
 日股受壓。日經指數初段一度挫近6%，收市報33585點，跌1023點，跌幅2.96%。
@@ -912,7 +912,7 @@
 
 # 習近平晤桑切斯談及關稅戰指無贏家　與世界作對將孤立自己
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799932_1_20250411150400.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799932_1_20250411150400.jpg&q=90)
   
 
 國家主席習近平在北京釣魚台國賓館，會見訪華的西班牙首相桑切斯，期間談及關稅議題。
@@ -936,7 +936,7 @@
 
 # 台股倒升約3%收市　本周累跌逾8%
 
-![台灣股市先跌後升，加權指數收市報19528點，升528點，升幅2.78%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799930_1_20250411142450.jpg&q=85)
+![台灣股市先跌後升，加權指數收市報19528點，升528點，升幅2.78%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799930_1_20250411142450.jpg&q=85)
   
 
 台灣股市先跌後升，加權指數收市報19528點，升528點，升幅2.78%。
@@ -960,7 +960,7 @@
 
 # 恒指一度重上21000點　升逾300點
 
-![恒指較早時報20993點，升311點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799926_1_20250411133422.jpg&q=55)
+![恒指較早時報20993點，升311點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799926_1_20250411133422.jpg&q=55)
   
 
 港股升幅擴大，恒指一度重上21000點以上，升逾330點，較早時報20993點，升311點。
@@ -984,7 +984,7 @@
 
 # 港股下午初段升逾0.8%
 
-![恒指較早時升0.83%，科指升2.05%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799924_1_20250411130849.jpg&q=80)
+![恒指較早時升0.83%，科指升2.05%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799924_1_20250411130849.jpg&q=80)
   
 
 港股下午初段升逾0.8%。
@@ -1008,7 +1008,7 @@
 
 # IIF：關稅憂慮令上月新興市場逾170億美元資金流出股債
 
-![IIF表示，對關稅憂慮和全球不確定性，引發3月新興市場債券和股票資金外流。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799866_1_20250411073936.jpg&q=80)
+![IIF表示，對關稅憂慮和全球不確定性，引發3月新興市場債券和股票資金外流。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799866_1_20250411073936.jpg&q=80)
   
 
 國際金融協會（IIF）表示，對關稅憂慮和全球不確定性引發3月新興市場債券和股票投資組合資金外流，尤其是流出中國。
@@ -1032,7 +1032,7 @@
 
 # 研究：特朗普汽車關稅或令美國車廠成本增加逾千億美元
 
-![研究發現汽車關稅將令美國汽車製造商成本增加。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799907_1_20250411113126.jpg&q=90)
+![研究發現汽車關稅將令美國汽車製造商成本增加。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799907_1_20250411113126.jpg&q=90)
   
 
 美國汽車研究中心一項分析發現，美國總統特朗普4月初實施25%汽車關稅，將令美國汽車製造商今年成本增加約1080億美元。
@@ -1056,7 +1056,7 @@
 
 # 孫東稱利用本港科技優勢講究策略與方法　擴大人文交往及科技交流
 
-![孫東強調本港要發揮獨特作用，保持自由、開放及國際化，同時要加強出海平台的建設。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799922_1_20250411143014.jpg&q=85)
+![孫東強調本港要發揮獨特作用，保持自由、開放及國際化，同時要加強出海平台的建設。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799922_1_20250411143014.jpg&q=85)
   
 
 中美貿易戰升溫，創新科技及工業局局長孫東在立法會財委會特別會議表示，就本港科技發展，本港要緊密對接國家發展大局，過程中亦要利用本港優勢，並講究策略和方法，按現有步驟繼續穩步向前，擴大人文交往及科技交流，會按創科藍圖指定方向，以及按過去3年的施政報告和財政預算案，提出措施向前推進。
@@ -1080,7 +1080,7 @@
 
 # 美國貿易政策不確定　市場關注美元資產信心會否減弱
 
-![市場憂慮中美貿易衝突升級，資金持續流入避險資產。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799921_1_20250411125533.jpg&q=75)
+![市場憂慮中美貿易衝突升級，資金持續流入避險資產。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799921_1_20250411125533.jpg&q=75)
   
 
 市場憂慮中美貿易衝突升級，資金持續流入避險資產。現貨金創新高，升穿每盎司3200美元。在亞洲時段，美元兌主要貨幣下跌，兌瑞士法郎創10年新低；兌日圓跌至143水平。1歐元兌1.134美元附近，美匯指數失守100大關，為2023年7月以來首次。
@@ -1104,7 +1104,7 @@
 
 # 黃志光專訪稱當局會透過世界互聯網大會亞太峰會尋合作並招商引資
 
-![黃志光說，因應全球地緣政治局勢，本港更要發揮好內聯外通角色。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799918_1_20250411124920.jpg&q=90)
+![黃志光說，因應全球地緣政治局勢，本港更要發揮好內聯外通角色。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799918_1_20250411124920.jpg&q=90)
   
 
 世界互聯網大會亞太峰會下周在會展舉行。數字政策專員黃志光接受本台專訪，表示因應全球地緣政治局勢，本港更要發揮好內聯外通角色，當局會透過今次峰會探索合作機會，招商引資，吸引人才。
@@ -1128,7 +1128,7 @@
 
 # 陳茂波︰特區政府與中央緊密協作構築抵禦風險屏障
 
-![陳茂波表示政府會令香港在全力拚經濟、謀發展的同時，做好金融安全工作。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799916_1_20250411124143.jpg&q=80)
+![陳茂波表示政府會令香港在全力拚經濟、謀發展的同時，做好金融安全工作。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799916_1_20250411124143.jpg&q=80)
   
 
 財政司司長陳茂波表示，特區政府會從監察風險、化解風險、做大做強自身實力三方面構建金融防護網，令香港在全力拚經濟、謀發展的同時，做好金融安全工作。
@@ -1152,7 +1152,7 @@
 
 # 丘應樺︰特首下月訪中東謀發展新市場　陳美寶︰有策略應對關稅戰
 
-![丘應樺表示，行政長官下月將與內地企業一同出訪中東。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799915_1_20250411123930.jpg&q=85)
+![丘應樺表示，行政長官下月將與內地企業一同出訪中東。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799915_1_20250411123930.jpg&q=85)
   
 
 商務及經濟發展局局長丘應樺表示，行政長官下月將與內地企業一同出訪中東，在地緣發展緊張的情況下，謀求發展中東新市場和東盟市場。
@@ -1176,7 +1176,7 @@
 
 # 港股臨近中午收市轉升　恒指半日升116點
 
-![恒指半日收報20798點，升116點，升幅0.56%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799914_1_20250411121246.jpg&q=70)
+![恒指半日收報20798點，升116點，升幅0.56%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799914_1_20250411121246.jpg&q=70)
   
 
 港股先跌後回升，恒指最多跌近240點，臨近中午收市轉升，並以近半日高位收市，報20798點，升116點，升幅0.56%，主板成交額縮至約1279億元。
@@ -1200,7 +1200,7 @@
 
 # 滬深股市臨近中午收市再轉升
 
-![上證指數半日收報3227點，升4點，升幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799908_1_20250411114228.jpg&q=80)
+![上證指數半日收報3227點，升4點，升幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799908_1_20250411114228.jpg&q=80)
   
 
 滬深股市走勢反覆，臨近中午收市由低位反彈，再度轉升。貴金屬、半導體股上升。種植業與林業股下跌。
@@ -1224,7 +1224,7 @@
 
 # 美國對中國內地及香港800美元或以下小額包裹關稅增至120%
 
-![美國對來自中國內地及香港、價值800美元或以下的小額包裹的關稅，提升至120%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799905_1_20250411123743.jpg&q=70)
+![美國對來自中國內地及香港、價值800美元或以下的小額包裹的關稅，提升至120%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799905_1_20250411123743.jpg&q=70)
   
 
 美國全國廣播公司商業頻道報道，白宮表示對華加徵的總關稅是145%、即時生效的同時，亦公布對來自中國內地及香港、價值800美元或以下的小額包裹的關稅，由日前提及的90%，提升至120%。
@@ -1248,7 +1248,7 @@
 
 # 人民日報文章指美國關稅訛詐　切斷全球產供鏈干擾各國經濟發展
 
-![文章指中美經貿合作促進美國產業升級，為美國消費者帶來好處。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799902_1_20250411123655.jpg&q=70)
+![文章指中美經貿合作促進美國產業升級，為美國消費者帶來好處。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799902_1_20250411123655.jpg&q=1)
   
 
 《人民日報》發表文章，批評美國的「關稅訛詐」，嚴重擾亂全球產業鏈、供應鏈穩定，扭曲全球市場資源配置，損人不利己，重申中美作為全球前兩大經濟體，尤其需要視對方的發展為機遇而非挑戰，把對方當作夥伴，而非對手。
@@ -1272,7 +1272,7 @@
 
 # 日股半日跌逾4%
 
-![日經指數半日收報33148點，跌1460點，跌幅4.22%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799901_1_20250411103348.jpg&q=85)
+![日經指數半日收報33148點，跌1460點，跌幅4.22%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799901_1_20250411103348.jpg&q=85)
   
 
 東京股市顯著下挫。
@@ -1296,7 +1296,7 @@
 
 # 習近平將國事訪問越南與馬來西亞及柬埔寨
 
-![習近平將先後國事訪問越南、馬來西亞及柬埔寨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799900_1_20250411102900.jpg&q=90)
+![習近平將先後國事訪問越南、馬來西亞及柬埔寨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799900_1_20250411102900.jpg&q=90)
   
 
 中共中央總書記、國家主席習近平應越南共產黨中央委員會總書記蘇林、越南社會主義共和國主席梁強邀請，將於本月14日至15日對越南進行國事訪問。
@@ -1320,7 +1320,7 @@
 
 # 人行逆回購操作量降至285億元人民幣
 
-![人行逆回購操作降至285億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799898_1_20250411094617.jpg&q=40)
+![人行逆回購操作降至285億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799898_1_20250411094617.jpg&q=40)
   
 
 人民銀行公開市場7日期逆回購操作降至285億元人民幣，利率維持1.5厘，今日無逆回購到期。
@@ -1344,7 +1344,7 @@
 
 # 陳茂波稱針對不同情境制定預案　確保金融安全風險處置及時有效
 
-![陳茂波鼓勵機構邀請國家安全領域專家深入企業，針對高層管理人員與中層員工進行分層培訓。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799899_1_20250411112826.jpg&q=80)
+![陳茂波鼓勵機構邀請國家安全領域專家深入企業，針對高層管理人員與中層員工進行分層培訓。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799899_1_20250411112826.jpg&q=80)
   
 
 財政司司長陳茂波接受報章訪問時表示，特區政府會從監察風險、化解風險、做大做強自身實力三方面構建金融防護網，令香港在全力拚經濟、謀發展的同時，做好金融安全工作。
@@ -1368,7 +1368,7 @@
 
 # 內地股市初段變動不大
 
-![滬深股市初段變動不大。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799895_1_20250411093813.jpg&q=30)
+![滬深股市初段變動不大。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799895_1_20250411093813.jpg&q=30)
   
 
 滬深股市初段變動不大。
@@ -1392,7 +1392,7 @@
 
 # 港元逼近強方兌換保證水平
 
-![港元兌美元今早升至7.7575水平，逼近強方兌換保證水平。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799892_1_20250411092856.jpg&q=1)
+![港元兌美元今早升至7.7575水平，逼近強方兌換保證水平。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799892_1_20250411092856.jpg&q=1)
   
 
 港元近期走強，兌美元今早升至7.7575水平，逼近強方兌換保證水平。
@@ -1416,7 +1416,7 @@
 
 # 陳美寶稱五大策略應對關稅戰致物流及航運不穩定不明朗情況
 
-![陳美寶強調香港不能漠視今次這一浪有多大、有多高，當前急務是如何應對全球貨量交易減少。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799894_1_20250411110231.jpg&q=90)
+![陳美寶強調香港不能漠視今次這一浪有多大、有多高，當前急務是如何應對全球貨量交易減少。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799894_1_20250411110231.jpg&q=90)
   
 
 運輸及物流局長陳美寶接受《明報》訪問，表示關稅戰對本港物流、航運及航空界帶來持續的不穩定不明朗因素，當局將有五大策略應對，包括修例便利轉口、加強與大灣區港口協作「拉貨」、將探討藉減省報關手續提升轉口效率吸引轉口貨、深化與國際港口及船舶之間交流合作，擴大航運網絡、以及維持樞紐地位需升級轉型，提供多元化服務，令本港的能力和服務均能配合市場轉型。
