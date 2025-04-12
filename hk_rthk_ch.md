@@ -1,3 +1,27 @@
+# 九龍城「電音X潑水」體驗活動因雷暴警告宣布暫停
+
+![原定在九龍城賈炳達道公園籃球場舉行的「電音X潑水」體驗活動，宣布暫停，直至另行通知。（九龍城民政事務處網頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800069_1_20250412151308.jpg&q=90)
+  
+
+在九龍城舉行的「龍城美食潑水泰繽紛」，因應天文台已發出雷暴警告，其中一個原定在九龍城賈炳達道公園籃球場舉行的「電音X潑水」體驗活動，宣布暫停，直至另行通知。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800069-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800069-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800069-20250412.htm)
+
+---
+
 # 天津陣風達14級　破1951年以來歷史同期極值
 
 ![天津陣風達14級　破1951年以來歷史同期極值](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800068_1_20250412145059.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm)
-
----
-
-# 副特派員潘雲東冀各界依托優勢講好國家及香港故事
-
-![助理廣播處長李慶華（右）出席外交部駐港特派員公署舉辦的短視頻比賽頒獎禮，並頒發獎項給得獎者。（張連登攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799998_2_20250411230517.jpg&q=75)
-  
-
-外交部駐港特派員公署副特派員潘雲東表示，國家正以中國式現代化全面推進強國建設和民族復興偉業，國際社會日益聚焦中國、矚目香港，期望社會各界繼續發揮創造力和聰明才智，依托香港「背靠祖國、聯通世界」的優勢，講好香港故事和國家故事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm)
 
 ---

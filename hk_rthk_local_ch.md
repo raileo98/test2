@@ -1,3 +1,27 @@
+# 九龍城「電音X潑水」體驗活動因雷暴警告宣布暫停
+
+![原定在九龍城賈炳達道公園籃球場舉行的「電音X潑水」體驗活動，宣布暫停，直至另行通知。（九龍城民政事務處網頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800069_1_20250412151308.jpg&q=90)
+  
+
+在九龍城舉行的「龍城美食潑水泰繽紛」，因應天文台已發出雷暴警告，其中一個原定在九龍城賈炳達道公園籃球場舉行的「電音X潑水」體驗活動，宣布暫停，直至另行通知。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800069-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800069-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800069-20250412.htm)
+
+---
+
 # 郭俊峯料年中屬高才通續簽高峰期　將靈活調配人手核實申請人學歷
 
 ![郭俊峯提醒申請人不要誤信黑中介的服務，提交假學歷，一旦被發現使用偽造文件，最高可被判入獄14年。（鍾家銘攝)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800066_1_20250412142901.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799906-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799906-20250411.htm)
-
----
-
-# 美國對中國內地及香港800美元或以下小額包裹關稅增至120%
-
-![美國對來自中國內地及香港、價值800美元或以下的小額包裹的關稅，提升至120%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799905_1_20250411123743.jpg&q=70)
-  
-
-美國全國廣播公司商業頻道報道，白宮表示對華加徵的總關稅是145%、即時生效的同時，亦公布對來自中國內地及香港、價值800美元或以下的小額包裹的關稅，由日前提及的90%，提升至120%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm)
 
 ---
