@@ -1,6 +1,6 @@
 # Argentina ends foreign exchange restrictions
 
-![Economy minister Luis Caputo said the controls limited the normal functioning of the economy. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800047_1_20250412095454.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800047_1_20250412095454.jpg&q=90)
   
 
 Argentina dismantled key parts of its years-long currency controls and loosened its grip on the peso on Friday as it sealed a US$20 billion, 48-month Extended Fund Facility deal with the International Monetary Fund (IMF).

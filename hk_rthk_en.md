@@ -1,6 +1,6 @@
 # Argentina ends foreign exchange restrictions
 
-![Economy minister Luis Caputo said the controls limited the normal functioning of the economy. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800047_1_20250412095454.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800047_1_20250412095454.jpg&q=90)
   
 
 Argentina dismantled key parts of its years-long currency controls and loosened its grip on the peso on Friday as it sealed a US$20 billion, 48-month Extended Fund Facility deal with the International Monetary Fund (IMF).
@@ -72,7 +72,7 @@ The head of the US military base in Greenland, a Danish territory coveted by US 
 
 # Trump takes annual physical exam, says it went well
 
-![Speaking to reporters on Air Force One, US President Donald Trump said he thought the test went well. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800043_1_20250412093003.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800043_1_20250412093003.jpg&q=90)
   
 
 President Donald Trump, who in January became the oldest person to assume the US presidency, underwent his first physical exam of his second term on Friday and said it went well, with results set to be released Sunday.
@@ -168,7 +168,7 @@ The Development Bureau on Friday welcomed the High Court’s decision to dismiss
 
 # Women, children killed in Israeli strikes: UN
 
-![Israel resumed its Gaza strikes on March 18, ending a two-month ceasefire with Hamas. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800005_1_20250411221346.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800005_1_20250411221346.jpg&q=75)
   
 
 Dozens of Israeli air strikes on Gaza have killed "only women and children" after a ceasefire collapsed, the UN said, as an Israeli attack in the territory's south on Friday left a family of 10 dead.
