@@ -3,7 +3,7 @@
 ![Twenty product categories are listed including the broad 8471 code for all computers, laptops, disc drives and automatic data processing. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800115_1_20250413041711.jpg&q=90)
   
 
-US President Donald Trump's administration has granted exclusions from steep reciprocal tariffs to smartphones, computers and some other electronics imported largely from China, providing a big break to tech companies like Apple that rely on imported products.
+US President Donald Trump's administration has granted exclusions from steep reciprocal tariffs to smartphones, computers and some other electronics imported largely from China.
 
   
 
