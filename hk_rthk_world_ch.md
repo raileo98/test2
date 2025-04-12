@@ -1,9 +1,9 @@
-# 特朗普豁免向智能電話、電腦等產品徵收對等關稅
+# 特朗普豁免向智能電話、電腦、晶片等產品徵收對等關稅
 
-![特朗普豁免向智能電話、電腦等產品徵收對等關稅](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800098_1_20250412214344.jpg&q=90)
+![特朗普豁免向智能電話、電腦、晶片等產品徵收對等關稅](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800098_1_20250412214344.jpg&q=90)
   
 
-美國總統特朗普簽署備忘錄，豁免向部分產品徵收對等關稅。美國海關和邊境保護局更新指引，公布獲豁免物品清單，包括智能電話、手提電腦、硬碟、電腦處理器和記憶體，以及用於製造半導體的機器。
+美國總統特朗普簽署備忘錄，豁免向部分產品徵收對等關稅。美國海關和邊境保護局更新指引，公布獲豁免物品清單，包括智能電話、手提電腦、晶片、硬碟、電腦處理器和記憶體、太陽能電池，以及用於製造半導體的機器。豁免適用於本月5日起輸入美國的產品。
 
   
 
