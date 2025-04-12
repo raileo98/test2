@@ -1,3 +1,26 @@
+# 北京兩大機場受大風天氣影響　共取消航班693架次
+
+  
+
+一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。今日截至下午2時，北京首都機場和大興機場共取消航班693架次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800070-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800070-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800070-20250412.htm)
+
+---
+
 # 九龍城「電音X潑水」體驗活動因雷暴警告宣布暫停
 
 ![原定在九龍城賈炳達道公園籃球場舉行的「電音X潑水」體驗活動，宣布暫停，直至另行通知。（九龍城民政事務處網頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800069_1_20250412151308.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800000-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800000-20250411.htm)
-
----
-
-# Tesla中國暫停接受兩款進口型號汽車新訂單
-
-![Tesla中國官網已暫停接受Model S和Model X兩個型號汽車的新訂單，僅保留「查看現車」選項。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799999_1_20250411214432.jpg&q=80)
-  
-
-貿易戰下，美國電動車生產商Tesla的中國官網，已暫停接受Model S和Model X兩個型號汽車的新訂單，僅保留「查看現車」選項，意味消費者只能選購現有庫存車輛。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm)
 
 ---

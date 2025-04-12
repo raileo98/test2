@@ -1,3 +1,26 @@
+# 北京兩大機場受大風天氣影響　共取消航班693架次
+
+  
+
+一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。今日截至下午2時，北京首都機場和大興機場共取消航班693架次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800070-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800070-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800070-20250412.htm)
+
+---
+
 # 天津陣風達14級　破1951年以來歷史同期極值
 
 ![天津陣風達14級　破1951年以來歷史同期極值](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800068_1_20250412145059.jpg&q=90)
@@ -1411,30 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm)
-
----
-
-# 內地3月通縮0.1%
-
-![內地3月居民消費價格指數（CPI）按年跌0.1%；首季亦跌0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799715_1_20250410095829.jpg&q=20)
-![國家統計局公布，3月居民消費價格指數（CPI）按年跌0.1%，連跌兩個月，但跌幅較2月收窄0.6個百分點。食品價格跌1.4%，非食品價格升0.2%。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799715_2_20250410181957.jpg&q=75)
-  
-
-國家統計局公布，3月居民消費價格指數（CPI）按年跌0.1%，連跌兩個月，但跌幅較2月收窄0.6個百分點。食品價格跌1.4%，非食品價格升0.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm)
 
 ---
