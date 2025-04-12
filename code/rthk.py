@@ -62,6 +62,8 @@ session = CachedSession(
     happy_eyeballs=True,  # 加快連線速度
 )
 
+requests_cache.disabled()
+
 # 設定重試機制：若請求失敗，最多重試 2 次，每次間隔時間增加
 retries = niquests.adapters.Retry(total=2, backoff_factor=1)
 adapter = niquests.adapters.HTTPAdapter(max_retries=retries, pool_connections=poolConn, pool_maxsize=poolSize)
