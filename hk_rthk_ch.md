@@ -1,3 +1,28 @@
+# Coldplay完成4場演出約20萬人入場　體育園稱運作暢順
+
+![啟德體育園稱Coldplay演唱會首次在啟德體育園成功完滿舉行。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_1_20250412233056.jpg&q=90)
+![體育園有信心繼續為香港帶來更多精彩盛事。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_2_20250412233056.jpg&q=60)
+  
+
+英國樂隊Coldplay完成在本港的4場演出，啟德體育園表示，共吸引約20萬名來自海外、內地及香港的觀眾入場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800106-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800106-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800106-20250412.htm)
+
+---
+
 # 70歲男子胡開成離開梨木道院舍後失蹤　警方呼籲提供消息
 
 ![失蹤男子身高約1.65米，體重約72公斤，中等身材。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800105_1_20250412230948.jpg&q=80)
