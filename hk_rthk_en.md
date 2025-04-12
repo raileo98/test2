@@ -1,3 +1,27 @@
+# Police ramp up cross-border cooperation to fight scams
+
+![Police Commissioner Joe Chow said police were often using Interpol channels. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800054_1_20250412112128.jpg&q=80)
+  
+
+Newly appointed police commissioner Joe Chow on Saturday said officers will work more closely with police in other jurisdictions to combat cross-border scams.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800054-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800054-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800054-20250412.htm)
+
+---
+
 # Northern Metropolis to see up to two tenders this year
 
 ![Secretary for Development Bernadette Linn said a two-envelope approach may be used for the tenders. Photo courtesy of the Commercial Radio](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800052_1_20250412110442.jpg&q=85)
@@ -1411,29 +1435,5 @@ Novak Djokovic rued a "horrible" performance as he crashed out of the Monte-Carl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799731-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799731-20250410.htm)
-
----
-
-# Far right targets Canada PM as election looms large
-
-![Mark Carney and his wife Diana Fox are targeted because of a photograph showing them with Jeffrey Epstein's convicted accomplice, Ghislaine Maxwell. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799735_1_20250410115043.jpg&q=85)
-  
-
-Canadian Prime Minister Mark Carney is leaning into his banking background as his country fights a trade war with the United States, but his financial ties have also made him a target for conspiracy theories.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799735-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799735-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799735-20250410.htm)
 
 ---

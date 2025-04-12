@@ -1,3 +1,26 @@
+# 郭俊峯指國安風險一直存在　入境處會守好國家南大門
+
+  
+
+入境處處長郭俊峯強調，國家安全風險一直存在，入境處不會掉以輕心，並會積極配合落實維護國安條例的工作，入境處會繼續守好國家南大門，全方位阻截危害國家安全的人士進入香港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm)
+
+---
+
 # 北京大風早上10時進入最強時段　部分交通停駛公園關閉
 
 ![全國大風預報圖。（央視新聞）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800048_1_20250412101330.jpg&q=75)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799662-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799662-20250409.htm)
-
----
-
-# 國家文化和旅遊部提示中國遊客充分評估赴美旅遊風險　籲謹慎前往
-
-![國家文化和旅遊部對赴美中國遊客發布風險提示。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799660_1_20250409224238.jpg&q=65)
-  
-
-國家文化和旅遊部對赴美中國遊客發布風險提示。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm)
 
 ---

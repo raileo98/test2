@@ -1,3 +1,27 @@
+# Police ramp up cross-border cooperation to fight scams
+
+![Police Commissioner Joe Chow said police were often using Interpol channels. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800054_1_20250412112128.jpg&q=80)
+  
+
+Newly appointed police commissioner Joe Chow on Saturday said officers will work more closely with police in other jurisdictions to combat cross-border scams.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800054-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800054-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800054-20250412.htm)
+
+---
+
 # Northern Metropolis to see up to two tenders this year
 
 ![Secretary for Development Bernadette Linn said a two-envelope approach may be used for the tenders. Photo courtesy of the Commercial Radio](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800052_1_20250412110442.jpg&q=85)
@@ -1411,29 +1435,5 @@ Hong Kong, China secured a bronze medal in the mixed relay at the Asia Triathlon
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm)
-
----
-
-# Five arrested in drink driving clampdown
-
-![Five are arrested and verbal warnings are issued in the operation. Photo courtesy of Hong Kong police](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799170_1_20250407082147.jpg&q=60)
-  
-
-Traffic police in East Kowloon on Monday said they had arrested five drivers during a clampdown on drink driving over the weekend.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm)
 
 ---

@@ -1,5 +1,29 @@
+# 郭俊峯指國安風險一直存在　入境處會守好國家南大門
+
+  
+
+入境處處長郭俊峯強調，國家安全風險一直存在，入境處不會掉以輕心，並會積極配合落實維護國安條例的工作，入境處會繼續守好國家南大門，全方位阻截危害國家安全的人士進入香港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm)
+
+---
+
 # 配合潑水節活動　運輸署明日下午於九龍城一帶實施特別交通安排
 
+![運輸署提醒，警方將視乎環境、交通及人群情況，實施及調整封路及交通管制。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800053_1_20250412113849.jpg&q=90)
   
 
 九龍城區昨日起至明天一連3日舉辦潑水節相關活動，運輸署發出公告，為配合公眾巡遊活動，該區在星期日下午3時至下午5時30分，將會實施特別交通安排。
@@ -1411,29 +1435,5 @@ InnoHK香港生成式人工智能研發中心正為本港研究大語言模型�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799880-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799880-20250411.htm)
-
----
-
-# 首辦世界互聯網大會亞太峰會　黃志光稱香港能展示創科實力
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799879_2_20250411090859.jpg&q=90)
-  
-
-世界互聯網大會亞太峰會下周一起，一連兩日在香港會展舉行，以「數智融合引領未來——攜手構建網絡空間命運共同體」為主題，由香港特區承辦。屆時有主論壇暨數智未來論壇，亦設有以人工智能大模型、數字金融、數字政府與智慧為題的分論壇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm)
 
 ---

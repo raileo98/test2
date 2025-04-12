@@ -1,5 +1,29 @@
+# 郭俊峯指國安風險一直存在　入境處會守好國家南大門
+
+  
+
+入境處處長郭俊峯強調，國家安全風險一直存在，入境處不會掉以輕心，並會積極配合落實維護國安條例的工作，入境處會繼續守好國家南大門，全方位阻截危害國家安全的人士進入香港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm)
+
+---
+
 # 配合潑水節活動　運輸署明日下午於九龍城一帶實施特別交通安排
 
+![運輸署提醒，警方將視乎環境、交通及人群情況，實施及調整封路及交通管制。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800053_1_20250412113849.jpg&q=90)
   
 
 九龍城區昨日起至明天一連3日舉辦潑水節相關活動，運輸署發出公告，為配合公眾巡遊活動，該區在星期日下午3時至下午5時30分，將會實施特別交通安排。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799985-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799985-20250411.htm)
-
----
-
-# 菲律賓鋼鐵大王郭從願遭綁架撕票　中方要求將凶手繩之於法
-
-![菲律賓鋼鐵大王郭從願遭綁架撕票　中方要求將凶手繩之於法](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799940_1_20250411154405.jpg&q=90)
-  
-
-有菲律賓「鋼鐵大王」之稱的著名華僑郭從願，在菲律賓遭綁架撕票。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm)
 
 ---
