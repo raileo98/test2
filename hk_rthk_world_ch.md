@@ -1,3 +1,27 @@
+# 世糧署警告美國新一輪削援或惡化阿富汗饑餓狀況　籲捐助方增支持
+
+![圖為阿富汗民眾去年排隊，等候世界糧食計劃署派發口糧的情況。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800113_1_20250413015048.jpg&q=65)
+  
+
+世界糧食計劃署警告，美國新一輪對糧食援助的削減，可能惡化阿富汗本來已十分普遍的饑餓狀況，署方只能支援當地一半貧困人口，而且亦只能提供一半口糧。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800113-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800113-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800113-20250413.htm)
+
+---
+
 # 厄瓜多爾七省兩市及所有監獄實施為期60日緊急狀態
 
 ![厄瓜多爾軍方加強邊境巡邏。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800112_1_20250413013645.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799852-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799852-20250411.htm)
-
----
-
-# 耿爽譴責以色列空襲敘利亞　促立即停止攻擊並盡快撤出敘國領土
-
-![耿爽敦促以色列立即停止攻擊行為，盡快撤出敘利亞領土。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799851_1_20250411041609.jpg&q=85)
-  
-
-中國常駐聯合國代表團臨時代辦耿爽譴責以色列上星期空襲敘利亞，敦促以色列立即停止攻擊行為，盡快撤出敘利亞領土。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799851-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799851-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799851-20250411.htm)
 
 ---
