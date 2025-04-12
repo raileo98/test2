@@ -1,3 +1,27 @@
+# 民安隊辦徵文比賽推廣國家安全　培養學生國民身份認同
+
+![民安隊在短片中介紹徵文比賽，認為有助培養學生的國民身份認同。（保安局社交網頁)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800057_1_20250412124848.jpg&q=90)
+  
+
+本月15日是全民國家安全教育日，保安局在社交平台繼續介紹不同部門與國家安全有關物品，今日由民眾安全服務隊介紹其徵文比賽，認為有助培養學生的國民身份認同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm)
+
+---
+
 # 林定國稱若做好愛國主義教育　相信國家安全教育定能事半功倍
 
   
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm)
-
----
-
-# 劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰
-
-![劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799992_1_20250411213700.jpg&q=85)
-  
-
-中共中央總書記、國家主席習近平在北京與西班牙首相桑切斯會面時，首次就近日的關稅議題發聲，強調「打關稅戰」沒有贏家，同世界作對將孤立自己，重申中方不畏懼任何無理打壓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm)
 
 ---

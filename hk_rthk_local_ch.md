@@ -1,3 +1,27 @@
+# 民安隊辦徵文比賽推廣國家安全　培養學生國民身份認同
+
+![民安隊在短片中介紹徵文比賽，認為有助培養學生的國民身份認同。（保安局社交網頁)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800057_1_20250412124848.jpg&q=90)
+  
+
+本月15日是全民國家安全教育日，保安局在社交平台繼續介紹不同部門與國家安全有關物品，今日由民眾安全服務隊介紹其徵文比賽，認為有助培養學生的國民身份認同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm)
+
+---
+
 # 林定國稱若做好愛國主義教育　相信國家安全教育定能事半功倍
 
   
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799899-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799899-20250411.htm)
-
----
-
-# 李世榮關注五一長假或更多遊客到東壩　已聯絡政府促加密小巴班次
-
-![李世榮說，萬宜水庫東壩屬於禁區，只能步行、乘坐專線小巴或的士前往。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799896_1_20250411110359.jpg&q=75)
-  
-
-政府將研究加強西貢萬宜水庫東壩的小巴服務，新界東南立法會議員李世榮表示，將近五一長假期，擔心有更多遊客到東壩，他說，已經聯絡運輸署及漁護署，可否讓小巴加密班次，他亦已經與警方商討，希望短期內可增派人手在現場作交通指揮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799896-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799896-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799896-20250411.htm)
 
 ---
