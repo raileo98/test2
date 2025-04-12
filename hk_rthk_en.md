@@ -384,7 +384,7 @@ Top EU officials and Chinese leaders are due to hold their next summit marking 5
 
 # Govt pledges to review RTHK operations
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799951_1_20250411163912.jpg&q=1)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799951_1_20250411163912.jpg&q=40)
   
 
 Secretary for Commerce and Economic Development Algernon Yau said on Friday the government will further review operations at RTHK after lawmakers expressed concern over the broadcaster's expenditure.

@@ -672,7 +672,7 @@ China said it would never accept the "blackmail nature" of the United States aft
 
 # World Expo hit with methane risk ahead of opening
 
-![Organisers barred people from coming near the affected area at Expo 2025 in Osaka for about an hour to ventilate it. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799288_1_20250407183551.jpg&q=1)
+![Organisers barred people from coming near the affected area at Expo 2025 in Osaka for about an hour to ventilate it. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799288_1_20250407183551.jpg&q=50)
   
 
 A level of methane high enough to potentially ignite a fire was detected at the World Expo site in Japan, organisers said on Monday, less than a week before the event opens.
@@ -1248,7 +1248,7 @@ The China National Offshore Oil Corporation (CNOOC) has discovered an oilfield i
 
 # HK sets aside HK$30 million for Myanmar quake victims
 
-![A 51-member SAR rescue team has arrived in Yangon. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798095_1_20250330110807.jpg&q=1)
+![A 51-member SAR rescue team has arrived in Yangon. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798095_1_20250330110807.jpg&q=30)
   
 
 Chief Executive John Lee says the SAR government has earmarked HK$30 million from the Disaster Relief Fund to help victims of the severe earthquake that struck central Myanmar on Friday.
