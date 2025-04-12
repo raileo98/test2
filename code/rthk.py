@@ -2,12 +2,12 @@
 # coding: utf-8
 
 # 載入必要的 Python 模組，用於網路請求、HTML 解析、RSS 生成等
+import asyncio
 import sys
 import subprocess
 import psutil
 import os
 import qh3
-import asyncio
 import niquests
 import requests_cache
 import secrets
@@ -15,7 +15,6 @@ import html
 import re
 import aiofiles
 import time
-import threading
 import urllib.parse
 from datetime import datetime
 from markdownify import markdownify as md
@@ -26,48 +25,14 @@ from lxml.html.clean import Cleaner
 from feedgen.feed import FeedGenerator
 
 # ------------------------------
-# 初始設定：檢查環境並顯示提示
-def initial_setup():
-    print("開始初始化環境...")
-    # 使用當前 Python 執行 niquests 的幫助模組，檢查環境是否正常
-    python_path = sys.executable
-    subprocess.run([python_path, '-m', 'niquests.help'], shell=False)
-    print("初始化完成！")
+# 全域配置和設置（放在頂部，方便自定義）
+# 這些是程式運行時的核心設置，IT 和非 IT 人員可輕鬆調整
 
-# ------------------------------
-# 環境變數設定（可選，若不需要可忽略）
-def setup_environment():
-    # 若需啟用嚴格 OCSP 檢查，可取消以下註解
-    # os.environ["NIQUESTS_STRICT_OCSP"] = "1"
-    pass
-
-# ------------------------------
-# 設定網路請求的緩存與配置
-class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
-    pass
-
-poolConn = 100
+# 連線池設定：控制同時連線數量，數字越大越快，但耗資源也越多
+poolConn = 10
 poolSize = 10000
 
-# 建立網路請求的 Session，包含緩存和 QUIC 支援
-session = CachedSession(
-    # allowable_methods=('GET', 'HEAD'),  # 支援的 HTTP 方法
-    resolver="doh://mozilla.cloudflare-dns.com/dns-query",  # 使用 DoH 解析 DNS
-    pool_connections=poolConn,  # 連線池設定
-    pool_maxsize=poolSize,
-    backend='redis',  # 緩存後端使用 Redis
-    happy_eyeballs=True,  # 加快連線速度
-)
-
-# 設定重試機制：最多重試 2 次，每次間隔時間增加
-retries = niquests.adapters.Retry(total=2, backoff_factor=1)
-adapter = niquests.adapters.HTTPAdapter(max_retries=retries, pool_connections=poolConn, pool_maxsize=poolSize)
-session.mount("https://", adapter=adapter)
-session.mount("http://", adapter=adapter)
-session.trust_env = False  # 不使用系統代理
-session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
-
-# 隨機選擇 User-Agent，模擬不同瀏覽器
+# 隨機選擇的 User-Agent，模擬不同瀏覽器，減少被網站阻擋的機會
 userAgent = [
     'Mozilla/5.0 (Windows NT 10.0; Win64; x64; rv:137.0) Gecko/20100101 Firefox/137.0',
     'Mozilla/5.0 (Windows NT 10.0; Win64; x64; rv:136.0) Gecko/20100101 Firefox/136.0',
@@ -76,28 +41,67 @@ userAgent = [
     'Mozilla/5.0 (Android 10; Mobile; rv:136.0) Gecko/136.0 Firefox/136.0',
     'Mozilla/5.0 (Android 10; Mobile; rv:135.0) Gecko/135.0 Firefox/135.0',
 ]
-session.headers['User-Agent'] = secrets.choice(userAgent)
 
-# ------------------------------
-# 全域變數：用於統計請求次數和緩存命中率
+# 全域變數：用來統計請求次數和緩存命中率，方便檢查程式效率
 total_requests = 0  # 總請求數
 cache_hits = 0     # 緩存命中數
 verCount11 = 0     # HTTP/1.1 使用次數
 verCount20 = 0     # HTTP/2.0 使用次數
 verCount30 = 0     # HTTP/3.0 使用次數
 
-cleaner = Cleaner()  # 用於清理 HTML 內容
+# 設定網路請求的緩存與配置，放在頂部方便調整
+class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
+    pass
+
+# 建立網路請求的 Session，支援緩存和 QUIC，提升速度
+session = CachedSession(
+    resolver="doh://mozilla.cloudflare-dns.com/dns-query",  # 使用 DoH 解析 DNS，加快域名解析
+    pool_connections=poolConn,  # 連線池設定
+    pool_maxsize=poolSize,
+    backend='redis',  # 緩存後端使用 Redis，加速重複請求
+    happy_eyeballs=True,  # 加快連線速度
+)
+
+# 設定重試機制：若請求失敗，最多重試 2 次，每次間隔時間增加
+retries = niquests.adapters.Retry(total=2, backoff_factor=1)
+adapter = niquests.adapters.HTTPAdapter(max_retries=retries, pool_connections=poolConn, pool_maxsize=poolSize)
+session.mount("https://", adapter=adapter)
+session.mount("http://", adapter=adapter)
+session.trust_env = False  # 不使用系統代理，確保一致性
+session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
+session.headers['User-Agent'] = secrets.choice(userAgent)
+
+# HTML 清理工具，移除不必要的標籤
+cleaner = Cleaner()
 
 # ------------------------------
-# 工具函數：顯示記憶體使用情況
+# 初始設定：檢查環境並顯示提示
+def initial_setup():
+    """檢查程式運行環境是否正常"""
+    print("開始初始化環境...")
+    python_path = sys.executable  # 獲取當前 Python 路徑
+    subprocess.run([python_path, '-m', 'niquests.help'], shell=False)  # 檢查 niquests 模組
+    print("初始化完成！")
+
+# 環境變數設定（可選，若不需要可忽略）
+def setup_environment():
+    """設定環境變數，可選擇啟用嚴格 OCSP 檢查"""
+    # 若需啟用嚴格 OCSP 檢查，可取消以下註解
+    # os.environ["NIQUESTS_STRICT_OCSP"] = "1"
+    pass
+
+# ------------------------------
+# 工具函數：方便程式運行和除錯
+
 def mem_usage():
+    """顯示記憶體使用情況，檢查程式是否佔用過多資源"""
     mem = psutil.virtual_memory()
     swap = psutil.swap_memory()
     print(f"虛擬記憶體使用: {mem.percent}% | {mem.used / (1024 * 1024):.2f} MB")
     print(f"交換記憶體使用: {swap.percent}% | {swap.used / (1024 * 1024):.2f} MB")
 
-# 檢查網路連線狀態
-def check_urls():
+async def check_urls():
+    """檢查網路連線狀態，確保程式能正常連線到目標網站"""
     urls = [
         'https://1.1.1.1/cdn-cgi/trace',
         'https://mozilla.cloudflare-dns.com/cdn-cgi/trace',
@@ -110,27 +114,24 @@ def check_urls():
     for url in urls:
         try:
             headers = dict(session.headers)
-            # headers['Cache-Control'] = 'no-cache'  # 不使用緩存
-            # headers['Pragma'] = 'no-cache'
             headers['User-Agent'] = secrets.choice(userAgent)
-            response = session.get(url, timeout=2, headers=headers)
+            response = await get_response(url, timeout=2, headers=headers)
             
             if response.ok:
                 print(f"連線測試 {url[:50]}... 成功！前 10 行內容：{response.text.splitlines()[:10]}")
             else:
                 print(f"連線測試 {url} 失敗，HTTP 狀態碼：{response.status_code}")
-        
         except Exception as e:
             print(f"連線測試 {url} 出錯：{e}")
 
-# 解析日期格式，將 HKT 轉為標準時區格式
 def parse_pub_date(date_str):
+    """將 HKT 日期轉為標準時區格式，方便 RSS 使用"""
     date_str = date_str.replace('HKT', '+0800')
     date_obj = datetime.strptime(date_str, '%Y-%m-%d %z %H:%M')
     return date_obj.strftime('%a, %d %b %Y %H:%M:%S %z')
 
-# 從 XML 節點提取發佈日期
 def get_item_pub_date(item):
+    """從 XML 節點提取發佈日期"""
     pub_date = item.find('pubDate')
     if pub_date:
         return pub_date.text.strip()
@@ -141,15 +142,16 @@ def get_item_pub_date(item):
 
 # ------------------------------
 # Markdown 與 HTML 處理函數
+
 def generate_markdown(html_content):
-    # 將 HTML 轉為 Markdown 格式
+    """將 HTML 轉為 Markdown 格式，方便生成 Markdown 文件"""
     md_content = md(html_content, heading_style="ATX")
     markdown = create_markdown()
     mistune_output = markdown(md_content)  # 可選：將 Markdown 轉回 HTML
     return md_content, mistune_output
 
 def clean_item_html(item_html):
-    # 清理 HTML 內容，移除不必要的標籤
+    """清理 HTML 內容，移除不必要的標籤，提升可讀性"""
     document = lxmlhtml.fromstring(html.unescape(item_html))
     cleaned = cleaner.clean_html(document)
     cleaned_str = lxmlhtml.tostring(cleaned, pretty_print=True, encoding='unicode')
@@ -157,8 +159,9 @@ def clean_item_html(item_html):
 
 # ------------------------------
 # 圖片處理函數
+
 def modify_image_url(imageUrl, new_quality):
-    # 修改圖片 URL 中的質量參數
+    """修改圖片 URL 中的質量參數，控制圖片大小"""
     parsed_url = urllib.parse.urlparse(imageUrl)
     query_params = urllib.parse.parse_qs(parsed_url.query)
     query_params['q'] = [str(new_quality)]
@@ -168,7 +171,7 @@ def modify_image_url(imageUrl, new_quality):
     return new_url
 
 async def optimize_image_quality(imgUrl):
-    # 優化圖片品質，確保檔案大小適中
+    """優化圖片品質，確保檔案大小適中，加快載入速度"""
     q = 99  # 初始品質
     latest_imgUrl = modify_image_url(imgUrl, 1)
     latestAvailableQ = None
@@ -227,20 +230,22 @@ async def optimize_image_quality(imgUrl):
 
 # ------------------------------
 # HTTP 請求函數：支援緩存與錯誤重試
-async def get_response(url, timeout=10, mustFetch=True, method='GET', session=session):
+
+async def get_response(url, timeout=10, mustFetch=True, method='GET', session=session, headers=None):
+    """異步發送 HTTP 請求，支援緩存和錯誤重試"""
     global total_requests, cache_hits, verCount11, verCount20, verCount30
     total_requests += 1
     while True:
         try:
+            if headers is None:
+                headers = {}
             session.quic_cache_layer.add_domain(urllib.parse.urlparse(url).netloc)
-            response = await asyncio.to_thread(session.request, method, url, timeout=timeout)
+            response = await asyncio.to_thread(session.request, method, url, timeout=timeout, headers=headers)
             
             if response.from_cache:
                 cache_hits += 1
             
             if not response.from_cache and response.raw.version:
-                if response.raw.version == 10: # fix later
-                    verCount11 += 1 # fix later
                 if response.raw.version == 11:
                     verCount11 += 1
                 elif response.raw.version == 20:
@@ -250,18 +255,10 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
             
             return response
 
-        # except OverwhelmedTraffic as e:
-            # print('error: OverwhelmedTraffic')
-            # continue
-        
         except Exception as e:
-            # if str(e).strip() == 'Cannot select a disposable connection to ease the charge':
             if str(e).strip().startswith('Cannot select a disposable connection to ease the charge') or str(e).strip().startswith('Cannot memorize traffic indicator upon unknown connection'):
-                # print('error: Cannot select a disposable connection to ease the charge, aka OverwhelmedTraffic(?)')
                 print(f"請求 {url} 出錯: {e}，嘗試重試...")
-                
                 continue
-                
             else:
                 print(f"請求 {url} 出錯: {e}，嘗試重試...")
         
@@ -270,7 +267,9 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
 
 # ------------------------------
 # 文章處理：解析內容、下載圖片並生成 RSS 項目
+
 async def process_article(fg, category, article):
+    """處理單篇文章，生成 RSS 項目和 Markdown 內容"""
     try:
         fe = fg.add_entry()  # 新增 RSS 項目
         articleTitle = article.select_one('.ns2-title').text.strip()
@@ -292,7 +291,7 @@ async def process_article(fg, category, article):
         images = article_soup.select('.items_content .imgPhotoAfterLoad')
         for image in images:
             raw_img_url = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src'])
-            imgUrl = modify_image_url(raw_img_url, 99).replace('_S_', '_L_').replace('_M_', '_L_').replace('_L_', '_')
+            imgUrl = modify_image_url(raw_img_url, 99).replace('S', 'L').replace('M', 'L').replace('L', '_')
             imgList.add(imgUrl)
             latest_imgUrl = await optimize_image_quality(imgUrl)
             imgAlt = html.escape(image.get('alt', '').strip())
@@ -307,7 +306,7 @@ async def process_article(fg, category, article):
                     if match:
                         video_thumbnail = match.group(1)
                         raw_img_url = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail)
-                        imgUrl = modify_image_url(raw_img_url, 99).replace('_S_', '_L_').replace('_M_', '_L_').replace('_L_', '_')
+                        imgUrl = modify_image_url(raw_img_url, 99).replace('S', 'L').replace('M', 'L').replace('L', '_')
                         imgList.add(imgUrl)
                         latest_imgUrl = await optimize_image_quality(imgUrl)
                         imgAlt = html.escape(article_soup.select_one('.detailNewsSlideTitleText').get_text().strip())
@@ -343,6 +342,7 @@ async def process_article(fg, category, article):
         print(f"處理文章 {articleTitle} 出錯: {e}")
 
 async def cache_image(imageUrl):
+    """緩存圖片，減少後續請求負載"""
     try:
         response = await get_response(imageUrl, timeout=2, mustFetch=False, method='HEAD', session=session)
         if response and response.ok and response.from_cache:
@@ -352,6 +352,7 @@ async def cache_image(imageUrl):
 
 # ------------------------------
 # 分類數據：包含所有 RTHK 新聞分類
+
 categories_data = {
     'hk_rthk_ch': {
         'title': 'rthk',
@@ -405,17 +406,19 @@ categories_data = {
 
 # ------------------------------
 # 分類處理：生成 RSS 和 Markdown 文件
+
 async def process_category(category, url):
+    """處理單個新聞分類，生成 RSS 和 Markdown 文件"""
     try:
         response = await get_response(url)
         if response and response.ok:
             web_content = response.text.strip()
         else:
             print(f"分類 {category} 載入失敗, HTTP 狀態碼: {response.status_code}")
-            sys.exit(1)
+            return
     except Exception as e:
         print(f"分類 {category} 載入出錯: {e}")
-        sys.exit(1)
+        return
     
     soup = BeautifulSoup(web_content, 'html.parser')
     fg = FeedGenerator()
@@ -434,7 +437,7 @@ async def process_category(category, url):
         return
 
     md_articles = []
-    tasks = [asyncio.create_task(process_article(fg, category, article)) for article in articles]
+    tasks = [process_article(fg, category, article) for article in articles]
     results = await asyncio.gather(*tasks)
 
     for item in results:
@@ -487,33 +490,24 @@ async def process_category(category, url):
     print(f"分類 {category} Markdown 已儲存至 {md_filename}")
 
 # ------------------------------
-# 多執行緒處理分類
-def process_category_thread(category, url):
-    asyncio.run(process_category(category, url))
-
-# ------------------------------
 # 主程式：執行所有分類處理
-def main():
-    threads = []
-    for category, data in categories_data.items():
-        t = threading.Thread(target=process_category_thread, args=(category, data['url']))
-        threads.append(t)
-        t.start()
-    for t in threads:
-        t.join()
 
-if __name__ == '__main__':
+async def main():
+    """主程式入口，執行所有分類的異步處理"""
     start_time = time.time()
     print("程式開始執行...")
     mem_usage()
-    check_urls()  # 檢查網路連線
-    check_urls()
-    main()
-    check_urls()
-    check_urls()
+    await check_urls()  # 檢查網路連線
+    await check_urls()
+    
+    tasks = [process_category(category, data['url']) for category, data in categories_data.items()]
+    await asyncio.gather(*tasks)
+    
+    await check_urls()
+    await check_urls()
     end_time = time.time()
     execution_time = end_time - start_time
-    cache_hit_rate = cache_hits / total_requests * 50 if total_requests > 0 else 0
+    cache_hit_rate = cache_hits / total_requests * 100 if total_requests > 0 else 0  # 修正計算公式
     print(f"總請求數: {total_requests}")
     print(f"緩存命中數: {cache_hits}")
     print(f"緩存命中率: {cache_hit_rate:.2f}%")
@@ -523,3 +517,8 @@ if __name__ == '__main__':
     mem_usage()
     print(f"程式執行時間：{execution_time:.2f} 秒")
     print("程式執行完畢！")
+
+if _name_ == '_main_':
+    initial_setup()  # 初始化環境
+    setup_environment()  # 設定環境變數
+    asyncio.run(main())  # 啟動主程式
