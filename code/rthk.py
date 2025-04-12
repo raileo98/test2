@@ -430,8 +430,8 @@ async def process_category(category, url):
     # feedImg = 'https://wsrv.nl/?n=-1&url=https://i3.wp.com/news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png'
     feedImg = 'https://news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png'
     feedImg = 'https://i3.wp.com' + feedImg.replace('http://', '').replace('https://', '')
-    feedImg = 'https://external-content.duckduckgo.com/iu/?u=' + urllib.parse.quote( raw_img_url )
-    feedImg = 'https://images.weserv.nl/?n=-1&we&output=webp&url=' + urllib.parse.quote( raw_img_url )
+    feedImg = 'https://external-content.duckduckgo.com/iu/?u=' + urllib.parse.quote( feedImg )
+    feedImg = 'https://images.weserv.nl/?n=-1&we&output=webp&url=' + urllib.parse.quote( feedImg )
     fg.logo(feedImg)
     fg.copyright('© 香港電台 RTHK')
     fg.webMaster('webmaster@rthk.hk')
