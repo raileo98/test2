@@ -1,3 +1,27 @@
+# De Bruyne sparks Man City comeback in win over Palace
+
+![Manchester City midfielder Kevin De Bruyne reacts as he is substituted during the match against Crystal Palace. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800099_1_20250412214141.jpg&q=90)
+  
+
+Kevin De Bruyne sparked Manchester City’s remarkable fightback from two goals down in a 5-2 win over Crystal Palace in the Premier League on Saturday that re-ignited his team’s Champions League qualification hopes.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800099-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800099-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800099-20250412.htm)
+
+---
+
 # Justin Rose retains lead at the Masters after Round 2
 
 ![Rose plays out of a bunker on the 17th hole. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800039_1_20250412083305.jpg&q=90)
@@ -1416,29 +1440,5 @@ Major League Baseball has suspended Atlanta Braves slugger Jurickson Profar for 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm)
-
----
-
-# Haaland sidelined by injury in major Man City blow
-
-![Manchester City did not provide an exact timeline for Haaland's return. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798367_1_20250401081333.jpg&q=85)
-  
-
-Manchester City were dealt a major blow with leading scorer Erling Haaland set for a spell on the sidelines after suffering an ankle injury as the season reaches its climax.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798367-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798367-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798367-20250401.htm)
 
 ---
