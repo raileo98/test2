@@ -1,3 +1,27 @@
+# 啟德體育園演唱會散場人流高峰　運輸署籲觀眾乘搭港鐵
+
+![運輸署提醒觀眾留意場地廣播及「離場易」平台實時資訊。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800101_1_20250412224814.jpg&q=90)
+  
+
+運輸署表示，現時為啟德體育園演唱會散場人流高峰時段，宋皇臺道的士上落客區現時輪候人數較多，輪候時間會較長，呼籲觀眾選擇乘搭港鐵離開啟德體育園。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800101-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800101-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800101-20250412.htm)
+
+---
+
 # 戴工作人員手環觀看Coldplay演出　3男子涉串謀詐騙被捕
 
 ![警方指，涉案人士當時在觀看演唱會而不是清潔中，於是將他們拘捕。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800100_1_20250412224233.jpg&q=25)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799926-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799926-20250411.htm)
-
----
-
-# 港股下午初段升逾0.8%
-
-![恒指較早時升0.83%，科指升2.05%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799924_1_20250411130849.jpg&q=80)
-  
-
-港股下午初段升逾0.8%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799924-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799924-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799924-20250411.htm)
 
 ---
