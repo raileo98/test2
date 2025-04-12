@@ -1,3 +1,26 @@
+# 美烏礦產協議方案會談據報氣氛對立　取得突破可能性渺茫
+
+  
+
+美國與烏克蘭官員就華盛頓提出的兩國之間礦產協議方案，舉行會談。路透社引述知情人士報道，會談氣氛對立，取得突破的可能性渺茫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800110-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800110-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800110-20250413.htm)
+
+---
+
 # 大阪世博會今日正式開園　石破茂稱匯聚日本國內外智慧平台
 
 ![本屆世博會以「構想煥發生機的未來社會」為主題，共有158個國家和地區、7個國際組織參展。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800109_1_20250413002757.jpg&q=75)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799848-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799848-20250411.htm)
-
----
-
-# 歐盟與阿聯酋同意啟動自貿協定談判
-
-![歐盟委員會主席馮德萊恩與阿聯酋總統穆罕默德舉行電話會談。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799847_1_20250411023230.jpg&q=90)
-  
-
-歐盟與阿聯酋同意啟動自貿協定談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799847-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799847-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799847-20250411.htm)
 
 ---
