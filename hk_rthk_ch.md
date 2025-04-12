@@ -1,3 +1,27 @@
+# 荃灣三男子涉駕電動單車被捕　警方另發出一千多張定額罰款通知書
+
+![荃灣警區一連兩日區內採取執法行動。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800076_1_20250412171248.jpg&q=40)
+  
+
+荃灣警區前日及昨日一連兩日於區內採取執法行動，打擊非法使用電動可移動工具及電單車違例停泊的交通罪行，共發出1016張定額罰款通知書、24張法庭傳票及拖移2部造成嚴重阻塞的車輛。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800076-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800076-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800076-20250412.htm)
+
+---
+
 # 九龍城潑水活動暫停有小童續射水嬉戲　檔主稱氣氛與人流不錯
 
   
@@ -164,7 +188,7 @@
 
 # 郭俊峯料年中屬高才通續簽高峰期　將靈活調配人手核實申請人學歷
 
-![郭俊峯提醒申請人不要誤信黑中介的服務，提交假學歷，一旦被發現使用偽造文件，最高可被判入獄14年。（鍾家銘攝)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800066_1_20250412142901.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800066_1_20250412142901.jpg&q=90)
   
 
 入境處處長郭俊峯預計，高才通續簽的高峰期會在年中，入境處將會靈活調配人手處理並核實申請人學歷，如果之前未經核實，續簽時會進行核實程序。他提醒申請人不要誤信黑中介的服務，提交假學歷，一旦被發現使用偽造文件，最高可被判入獄14年。
@@ -1407,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800006-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800006-20250411.htm)
-
----
-
-# 卡什卡利：聯儲局應該在市場真正受到衝擊時才謹慎地干預
-
-![卡什卡利表示，聯儲局應該在市場真正受到衝擊時，才以非常謹慎的態度干預。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800002_1_20250411220055.jpg&q=60)
-  
-
-美國明尼亞波利斯聯邦儲備銀行總裁卡什卡利表示，聯儲局應該在市場真正受到衝擊時，才以非常謹慎的態度干預，強調聯儲局和財政部的介入，應在真正需要的時候才出手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm)
 
 ---
