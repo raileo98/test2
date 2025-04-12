@@ -518,7 +518,7 @@ async def main():
     print(f"程式執行時間：{execution_time:.2f} 秒")
     print("程式執行完畢！")
 
-if _name_ == '_main_':
+if __name__ == '__main__':
     initial_setup()  # 初始化環境
     setup_environment()  # 設定環境變數
     asyncio.run(main())  # 啟動主程式
