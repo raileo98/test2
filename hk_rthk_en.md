@@ -1,3 +1,27 @@
+# Northern Metropolis to see up to two tenders this year
+
+![Secretary for Development Bernadette Linn said a two-envelope approach may be used for the tenders. Photo courtesy of the Commercial Radio](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800052_1_20250412110442.jpg&q=85)
+  
+
+Secretary for Development Bernadette Linn on Saturday said one or two sizeable land parcels from the Northern Metropolis are expected to be put up for tender in the second half of this year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800052-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800052-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800052-20250412.htm)
+
+---
+
 # Argentina ends foreign exchange restrictions
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800047_1_20250412095454.jpg&q=90)
@@ -1411,29 +1435,5 @@ Canadian Prime Minister Mark Carney is leaning into his banking background as hi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799735-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799735-20250410.htm)
-
----
-
-# Lego opens US$1bn factory in Vietnam
-
-![The new Vietnam factory is the Danish company's sixth worldwide and its second in Asia. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799734_1_20250410114928.jpg&q=85)
-  
-
-Lego has opened a US$1 billion factory in Vietnam that it says will make toys without adding planet-warming gas to the atmosphere by relying entirely on clean energy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799734-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799734-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799734-20250410.htm)
 
 ---

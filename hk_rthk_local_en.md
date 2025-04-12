@@ -1,3 +1,27 @@
+# Northern Metropolis to see up to two tenders this year
+
+![Secretary for Development Bernadette Linn said a two-envelope approach may be used for the tenders. Photo courtesy of the Commercial Radio](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800052_1_20250412110442.jpg&q=85)
+  
+
+Secretary for Development Bernadette Linn on Saturday said one or two sizeable land parcels from the Northern Metropolis are expected to be put up for tender in the second half of this year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800052-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800052-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800052-20250412.htm)
+
+---
+
 # Court dismisses legal challenge over San Tin tech hub
 
 ![The court ruling to throw out a legal challenge against the San Tin Technopole project comes after the applicant withdrew his judicial review application. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800004_1_20250411221145.jpg&q=90)
@@ -1411,29 +1435,5 @@ Traffic police in East Kowloon on Monday said they had arrested five drivers dur
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799170-20250407.htm)
-
----
-
-# Coldplay fans urged to plan journeys to Kai Tak
-
-![The government said there will be special transport arrangements for the Coldplay concerts this week. Image from Coldplay's social media.](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799115_1_20250406151732.jpg&q=85)
-  
-
-The Transport Department on Sunday called on people coming to Hong Kong to see the band Coldplay this week to plan their journeys in advance.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm)
 
 ---
