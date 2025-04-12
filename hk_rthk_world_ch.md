@@ -1,3 +1,51 @@
+# 大阪世博會今日正式開園　石破茂稱匯聚日本國內外智慧平台
+
+![本屆世博會以「構想煥發生機的未來社會」為主題，共有158個國家和地區、7個國際組織參展。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800109_1_20250413002757.jpg&q=75)
+  
+
+2025年大阪關西世博會今日正式開園，中國館亦於今日舉行開館儀式，正式迎接參觀者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800109-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800109-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800109-20250413.htm)
+
+---
+
+# 普京稱火箭及航天工業應成為俄羅斯技術主權及經濟增長火車頭
+
+![普京表示宇宙開發及太空系統應用是全球競爭極為激烈的領域。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800108_1_20250413001952.jpg&q=90)
+  
+
+俄羅斯總統普京表示，火箭及航天工業應該成為國民經濟增長的火車頭之一。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800108-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800108-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800108-20250413.htm)
+
+---
+
 # 美伊首輪核問題間接談判結束　兩國代表團曾短暫交談
 
 ![阿拉格齊（圖左）表示，美伊首輪核問題間接談判正面和有建設性。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800103_1_20250412225723.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799847-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799847-20250411.htm)
-
----
-
-# 特朗普：非常接近達成關稅談判首份協議　相信能與習近平融洽相處
-
-![被問到美中關係如何發展，特朗普說拭目以待。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799846_1_20250411023128.jpg&q=85)
-  
-
-美國總統特朗普表示，非常接近達成關稅談判的首份協議，強調希望達成對美國合適的協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799846-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799846-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799846-20250411.htm)
-
----
-
-# 敘利亞與南韓建立外交關係　韓方支持敘利亞重建進程
-
-![敘利亞與南韓建立外交關係　韓方支持敘利亞重建進程](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799845_1_20250411015648.jpg&q=90)
-  
-
-敘利亞宣布與南韓建立外交關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799845-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799845-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799845-20250411.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 大阪世博會今日正式開園　石破茂稱匯聚日本國內外智慧平台
+
+![本屆世博會以「構想煥發生機的未來社會」為主題，共有158個國家和地區、7個國際組織參展。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800109_1_20250413002757.jpg&q=75)
+  
+
+2025年大阪關西世博會今日正式開園，中國館亦於今日舉行開館儀式，正式迎接參觀者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800109-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800109-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800109-20250413.htm)
+
+---
+
+# 普京稱火箭及航天工業應成為俄羅斯技術主權及經濟增長火車頭
+
+![普京表示宇宙開發及太空系統應用是全球競爭極為激烈的領域。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800108_1_20250413001952.jpg&q=90)
+  
+
+俄羅斯總統普京表示，火箭及航天工業應該成為國民經濟增長的火車頭之一。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800108-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800108-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800108-20250413.htm)
+
+---
+
 # 警方昨於機場拘捕兩漢涉毒　檢總市值約320萬元懷疑海洛英
 
 ![警方扣留調查涉案人士。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800107_1_20250412235102.jpg&q=35)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800035-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800035-20250412.htm)
-
----
-
-# 美國10年期國債息率一度逼近4.6厘
-
-![分析擔心，特朗普的政策，將削弱美元作為儲備貨幣、美債避險作用。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800034_1_20250412072454.jpg&q=85)
-  
-
-美國國債息率上升，10年期國債收益率及30年期國債收益率，分別創2001年及1987年以來最大單星期升幅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm)
-
----
-
-# 金價升約2%　資金流入黃金避險
-
-![現貨金較早報每盎司3235.89美元，上升近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800031_1_20250412065952.jpg&q=75)
-  
-
-金價突破每盎司3200美元，本周升逾6%，美元下跌，加上貿易戰陰霾引發對經濟衰退的擔憂，資金流入黃金避險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm)
 
 ---

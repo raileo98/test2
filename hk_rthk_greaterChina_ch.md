@@ -1,3 +1,27 @@
+# 大阪世博會今日正式開園　石破茂稱匯聚日本國內外智慧平台
+
+![本屆世博會以「構想煥發生機的未來社會」為主題，共有158個國家和地區、7個國際組織參展。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800109_1_20250413002757.jpg&q=75)
+  
+
+2025年大阪關西世博會今日正式開園，中國館亦於今日舉行開館儀式，正式迎接參觀者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800109-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800109-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800109-20250413.htm)
+
+---
+
 # 新華社：美關稅訛詐不得人心　中方堅定捍衛自身權益
 
 ![文章指美國國內及國際社會強烈不滿白宮的關稅手段。圖為受關稅措施影響的加拿大汽車業。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800102_1_20250412232116.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799776-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799776-20250410.htm)
-
----
-
-# 外交部：若美方執意打關稅戰、貿易戰　中方必將奉陪到底
-
-![林劍批評美方出於一己之私，將關稅作為極限施壓、謀取私利的武器，是與整個世界作對。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799773_1_20250410154756.jpg&q=90)
-  
-
-美國總統特朗普以「中國不尊重世界市場」為由，即時調高對華加徵的關稅至125%。在北京，外交部發言人林劍批評，美方出於一己之私，將關稅作為極限施壓、謀取私利的武器，嚴重侵犯各國的正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序穩定。這是公然冒天下之大不韙，與整個世界作對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799773-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799773-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799773-20250410.htm)
 
 ---
