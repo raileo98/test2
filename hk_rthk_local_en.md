@@ -1,6 +1,6 @@
 # HK to boost scrutiny of talent pass applications
 
-![Director of Immigration Benson Kwok says officers will examine applications carefully. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800073_1_20250412160554.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800073_1_20250412160554.jpg&q=90)
   
 
 Director of Immigration Benson Kwok says more officers will be deployed to verify documents submitted as part of Top Talent Pass Scheme applications, following reports of false information being provided on occasions.
@@ -48,7 +48,7 @@ A water splashing festival in Kowloon City to celebrate Songkran had to be suspe
 
 # HK told to leverage advantages in telling good stories
 
-![Pan Yundong says Beijing is committed to becoming a source of stability amid global changes. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800056_1_20250412120255.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800056_1_20250412120255.jpg&q=85)
   
 
 Pan Yundong, deputy commissioner of the Office of the Commissioner of the Ministry of Foreign Affairs in Hong Kong, has called for all sectors to leverage the SAR's advantages in telling good stories about Hong Kong and the nation.
