@@ -72,7 +72,7 @@ President Donald Trump, who in January became the oldest person to assume the US
 
 # Women, children killed in Israeli strikes: UN
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800005_1_20250411221346.jpg&q=1)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800005_1_20250411221346.jpg&q=75)
   
 
 Dozens of Israeli air strikes on Gaza have killed "only women and children" after a ceasefire collapsed, the UN said, as an Israeli attack in the territory's south on Friday left a family of 10 dead.
@@ -504,7 +504,7 @@ Lego has opened a US$1 billion factory in Vietnam that it says will make toys wi
 
 # US backtracks on some food aid cuts: UN
 
-![A WFP distribution centre in Chad, one of eight countries where the US is ending emergency funding. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799695_1_20250410080414.jpg&q=1)
+![A WFP distribution centre in Chad, one of eight countries where the US is ending emergency funding. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799695_1_20250410080414.jpg&q=80)
   
 
 The United States has backtracked on emergency food aid cuts it announced for 14 countries, restoring assistance to six of them, the UN's World Food Program said on Wednesday.
@@ -1416,7 +1416,7 @@ A Palestinian official told AFP that Israeli forces shot dead a teenager holding
 
 # Le Pen invokes MLK ahead of far-right Paris rally
 
-![Protesters gathered during a rally in Paris in support of President of Rassemblement National parliamentary group Marine Le Pen, after she was convicted. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799140_1_20250406211858.jpg&q=1)
+![Protesters gathered during a rally in Paris in support of President of Rassemblement National parliamentary group Marine Le Pen, after she was convicted. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799140_1_20250406211858.jpg&q=80)
   
 
 France's Marine Le Pen on Sunday invoked Martin Luther King's struggle for civil rights as her far-right party planned to rally its supporters after she was convicted of embezzlement and banned from public office.

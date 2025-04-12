@@ -696,7 +696,7 @@
 
 # 商務部嚴厲譴責美國提高對華關稅　指畸高關稅淪數字游戲及笑話
 
-![商務部新聞發言人表示，嚴厲譴責美方肆意的單邊關稅措施堅決反對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799948_1_20250411162016.jpg&q=1)
+![商務部新聞發言人表示，嚴厲譴責美方肆意的單邊關稅措施堅決反對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799948_1_20250411162016.jpg&q=40)
   
 
 中國再反制美國提高對華關稅。

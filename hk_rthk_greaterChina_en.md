@@ -864,7 +864,7 @@ Beijing on Thursday said it "firmly opposes" sweeping new US tariffs on its expo
 
 # HKMAO reposts another article on Hutchison deal
 
-![CK Hutchison has announced plans to sell its ports, including assets along the Panama Canal. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798683_1_20250402211035.jpg&q=1)
+![CK Hutchison has announced plans to sell its ports, including assets along the Panama Canal. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798683_1_20250402211035.jpg&q=75)
   
 
 The Hong Kong and Macau Affairs Office (HKMAO) on Wednesday reposted an article by the Ta Kung Pao newspaper voicing opposition to CK Hutchison's plans to sell dozens of ports, including strategic assets along the Panama Canal.

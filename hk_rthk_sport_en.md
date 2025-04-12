@@ -168,7 +168,7 @@ Manchester United on Thursday assured SAR fans that a “full team” including 
 
 # Alejandro Tabilo stuns Djokovic in Monte Carlo
 
-![Novak Djokovic crashes out of Monte-Carlo Masters, losing to Chilean Alejandro Tabilo in the second round. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799731_1_20250410114405.jpg&q=1)
+![Novak Djokovic crashes out of Monte-Carlo Masters, losing to Chilean Alejandro Tabilo in the second round. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799731_1_20250410114405.jpg&q=85)
   
 
 Novak Djokovic rued a "horrible" performance as he crashed out of the Monte-Carlo Masters in his opening match.

@@ -1296,7 +1296,7 @@ Small-time investors in Hong Kong were left reeling on Monday as US President Do
 
 # Nurturing talent 'cornerstone of innovation and tech'
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799279_1_20250407173600.jpg&q=1)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799279_1_20250407173600.jpg&q=85)
   
 
 Nurturing talent is the "cornerstone" in innovation and technology (I&T) development, according to the city's tech chief on Monday.

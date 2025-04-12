@@ -603,7 +603,7 @@
 # 全運會場地單車測試賽本月舉行　逾150名選手參與
 
 ![聶偉文說，有來自澳門、廣東、雲南和吉林車手來港比賽。（張正慧攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_1_20250404155354.jpg&q=90)
-![貝鈞奇表示，市民可以欣賞高水平賽事。（張正慧攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_2_20250404155354.jpg&q=1)
+![貝鈞奇表示，市民可以欣賞高水平賽事。（張正慧攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_2_20250404155354.jpg&q=90)
 ![李思穎說，未來兩個星期會進入場地訓練好好備戰。（張正慧攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_3_20250404155354.jpg&q=85)
 ![繆正賢說，剛從河南回港，狀態不俗。（張正慧攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_4_20250404155354.jpg&q=80)
   
@@ -1134,7 +1134,7 @@
 
 # 諾定咸森林憑互射12碼淘汰白禮頓　34年來首次晉級英足盃4強
 
-![諾定咸森林自1991年以來首次殺入足總盃4強。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798079_1_20250330072655.jpg&q=1)
+![諾定咸森林自1991年以來首次殺入足總盃4強。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798079_1_20250330072655.jpg&q=75)
   
 
 英格蘭足總盃，諾定咸森林作客同白禮頓踢到加時，結果森林在憑互射12碼勝出，34年來首次晉級4強。
@@ -1234,7 +1234,7 @@
 
 # 七欖移師啟德舉行　蕭澤頤稱整體運作暢順已與運輸署商討改善安排
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798004_1_20250329135846.jpg&q=1)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798004_1_20250329135846.jpg&q=85)
   
 
 一連三日的香港國際七人欖球賽昨日首度移師啟德體育園主場館舉行，警務處處長蕭澤頤表示，昨日的交通管制、人流進場或離場等整體運作非常暢順。
@@ -1359,7 +1359,7 @@
 
 # 國際七人欖球賽開幕　現場激光投影與啦啦隊表演
 
-![南韓冠軍級棒球隊啦啦隊在南看台表演應援舞。（張連登攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_2_20250328201031.jpg&q=1)
+![南韓冠軍級棒球隊啦啦隊在南看台表演應援舞。（張連登攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_2_20250328201031.jpg&q=80)
 ![現場上演長約3分鐘的激光投影。（張連登攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_3_20250328201031.jpg&q=80)
   
 

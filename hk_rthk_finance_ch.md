@@ -120,7 +120,7 @@
 
 # 美元兌瑞郎跌至10年新低　美匯失守100
 
-![衡量美元兌一籃子貨幣的美元指數失守100大關，較早時報99.786，跌0.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800028_1_20250412060238.jpg&q=1)
+![衡量美元兌一籃子貨幣的美元指數失守100大關，較早時報99.786，跌0.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800028_1_20250412060238.jpg&q=55)
   
 
 美元兌主要貨幣下跌，衡量美元兌一籃子貨幣的美元指數失守100大關，較早時報99.786，跌0.73%。
@@ -768,7 +768,7 @@
 
 # 商務部嚴厲譴責美國提高對華關稅　指畸高關稅淪數字游戲及笑話
 
-![商務部新聞發言人表示，嚴厲譴責美方肆意的單邊關稅措施堅決反對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799948_1_20250411162016.jpg&q=1)
+![商務部新聞發言人表示，嚴厲譴責美方肆意的單邊關稅措施堅決反對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799948_1_20250411162016.jpg&q=40)
   
 
 中國再反制美國提高對華關稅。
@@ -888,7 +888,7 @@
 
 # 日股跌近3%　本周累跌近0.6%
 
-![日經指數收市報33585點，跌幅2.96%。本周累計下跌近0.6%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799933_1_20250411144010.jpg&q=1)
+![日經指數收市報33585點，跌幅2.96%。本周累計下跌近0.6%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799933_1_20250411144010.jpg&q=75)
   
 
 日股受壓。日經指數初段一度挫近6%，收市報33585點，跌1023點，跌幅2.96%。
