@@ -1,3 +1,27 @@
+# 英國會通過緊急法案維持英國鋼鐵運作　分析指收歸國有或不可避免
+
+![英國首相施紀賢會見當地鋼鐵工人。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800111_1_20250413011641.jpg&q=90)
+  
+
+英國國會經辯論後通過緊急法案，以維持英國鋼鐵集團的運作。法案已獲御准，代表正式成為法例。分析指將中資控制的英國鋼鐵收歸英國國有，似乎是不可避免的下一步。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800111-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800111-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800111-20250413.htm)
+
+---
+
 # 美烏礦產協議方案會談據報氣氛對立　取得突破可能性渺茫
 
 ![澤連斯基的首要要求是華盛頓向基輔提供安全保障。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800110_1_20250413004341.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800037-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800037-20250412.htm)
-
----
-
-# 聯儲局官員料關稅導致今年通脹率升到3.5%至4%
-
-![威廉姆斯表示，特朗普政府的貿易政策將導致今年通脹加速，料今年通脹率升至3.5%至4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800036_1_20250412074826.jpg&q=30)
-  
-
-紐約聯儲銀行總裁威廉姆斯表示，特朗普政府的貿易政策將導致今年通脹加速，聯儲局要防止長期價格壓力預期脫離錨定的重要作用。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800036-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800036-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800036-20250412.htm)
 
 ---
