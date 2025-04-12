@@ -1,3 +1,49 @@
+# 天文台：冷鋒大驟雨及狂風雷暴正影響廣東沿岸地區
+
+  
+
+天文台表示，一道冷鋒正橫過廣東沿岸地區，與其相關的大驟雨及狂風雷暴正影響該區 。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800086-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800086-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800086-20250412.htm)
+
+---
+
+# 天文台稱冷鋒橫過廣東沿岸　受驟雨及狂風雷暴影響本港風力增強
+
+  
+
+強烈季候風信號現正生效，預料本港吹偏北強風，平均風速每小時超過40公里。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm)
+
+---
+
 # 林定國：國安教育與愛國主義教育好比「孖生兄弟」
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800078_1_20250412181224.jpg&q=90)
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799919-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799919-20250411.htm)
-
----
-
-# 黃志光專訪稱當局會透過世界互聯網大會亞太峰會尋合作並招商引資
-
-![黃志光說，因應全球地緣政治局勢，本港更要發揮好內聯外通角色。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799918_1_20250411124920.jpg&q=90)
-  
-
-世界互聯網大會亞太峰會下周在會展舉行。數字政策專員黃志光接受本台專訪，表示因應全球地緣政治局勢，本港更要發揮好內聯外通角色，當局會透過今次峰會探索合作機會，招商引資，吸引人才。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799918-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799918-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799918-20250411.htm)
-
----
-
-# 回應議員關注丘應樺稱會重新審視港台運作及製作與人手編配
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799917_2_20250411143218.jpg&q=40)
-  
-
-在立法會財委會特別會議上，行政會議召集人、新民黨主席葉劉淑儀表示，香港電台在2025/26年度開支預算超過15億元，人手754人，只減少4人，關注是甚麽職位，開支最大是電視製作，但港台5個電視頻道中，有3個轉播央視節目或買片，關注會否大幅度削減節目主任職位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799917-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799917-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799917-20250411.htm)
 
 ---

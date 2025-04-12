@@ -1,3 +1,96 @@
+# 天文台：冷鋒大驟雨及狂風雷暴正影響廣東沿岸地區
+
+  
+
+天文台表示，一道冷鋒正橫過廣東沿岸地區，與其相關的大驟雨及狂風雷暴正影響該區 。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800086-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800086-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800086-20250412.htm)
+
+---
+
+# 天文台稱冷鋒橫過廣東沿岸　受驟雨及狂風雷暴影響本港風力增強
+
+  
+
+強烈季候風信號現正生效，預料本港吹偏北強風，平均風速每小時超過40公里。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm)
+
+---
+
+# 內地多處出現極端大風　北京近700航班取消
+
+  
+
+一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。今日截至下午2時，北京兩大機場共取消近700個航班。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800084-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800084-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800084-20250412.htm)
+
+---
+
+# 內地多地極端天氣　中央氣象台發布大風、強對流、沙塵暴等預警
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800082_1_20250412181355.jpg&q=90)
+  
+
+內地多處出現惡劣天氣，較強冷空氣繼續影響中國中東部地區，中央氣象台繼續發布大風橙色預警、強對流天氣黃色預警、暴雪黃色預警和沙塵暴藍色預警，其中北京已進入風力最強時段，多個景區關閉，陸空交通受阻，全國有至少3200班航班取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800082-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800082-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800082-20250412.htm)
+
+---
+
 # 王毅：美國不能任意妄為　歷史車輪不能倒退
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800080_1_20250412181256.jpg&q=75)

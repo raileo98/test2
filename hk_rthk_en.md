@@ -24,7 +24,7 @@ Director of Immigration Benson Kwok says more officers will be deployed to verif
 
 # Weather forces suspension of water splashing event
 
-![A thunderstorm warning prompted organisers to put the event on hold.](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800071_1_20250412155136.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800071_1_20250412155136.jpg&q=90)
   
 
 The weather put a dampener on a water splashing festival in Kowloon City to celebrate Songkran on Saturday afternoon, with organisers forced to suspend the event when a thunderstorm warning was issued.
