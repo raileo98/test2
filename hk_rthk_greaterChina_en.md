@@ -1,3 +1,27 @@
+# China commits to safeguarding multilateral trade
+
+![Wang Wentao said the fabrication of 'reciprocal tariffs' out of thin air by the United States is a typical practice of unilateral bullying. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800090_1_20250412190951.jpg&q=35)
+  
+
+China is committed to safeguarding an open, inclusive, transparent and non-discriminatory multilateral trading system, Commerce Minister Wang Wentao has told Director-General of the World Trade Organization (WTO) Ngozi Okonjo-Iweala.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800090-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800090-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800090-20250412.htm)
+
+---
+
 # HK told to leverage advantages in telling good stories
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800056_1_20250412120255.jpg&q=85)
@@ -1413,29 +1437,5 @@ Thai authorities have declared a state of emergency in Bangkok, Prime Minister P
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm)
-
----
-
-# 43 trapped after quake brings down Bangkok high-rise
-
-![The trauma of the building's collapse takes its toll on one of the construction worker who managed to get out. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797867_5_20250328163235.jpg&q=65)
-  
-
-A strong 7.7 magnitude earthquake hit central Myanmar on Friday, the United States Geological Survey (USGS) said, buckling roads in the capital Naypyidaw and with tremors felt in China and Thailand.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm)
 
 ---
