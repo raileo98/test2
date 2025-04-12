@@ -1,3 +1,147 @@
+# EU set to mark 50 years of ties with China in July
+
+![French leader Emmanuel Macron and European Commission chief Ursula von der Leyen meet President Xi Jinping at the Elysee Palace in Paris in May 2024. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799970_1_20250411181740.jpg&q=90)
+  
+
+Top EU officials and Chinese leaders are due to hold their next summit marking 50 years of ties in China in July, a spokesperson for the European Council said on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799970-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799970-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799970-20250411.htm)
+
+---
+
+# Xi urges EU to join in opposing 'unilateral bullying'
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799942_1_20250411155117.jpg&q=90)
+  
+
+President Xi Jinping urged the European Union on Friday to join hands with China in resisting "unilateral bullying", in reference to tariffs imposed by US President Donald Trump.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799942-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799942-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799942-20250411.htm)
+
+---
+
+# China raises tariffs on US goods to 125pc
+
+![US exporters to China of goods such as soybeans now face 125 percent tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799950_1_20250411162842.jpg&q=80)
+  
+
+China blasted US President Donald Trump's tariffs on Friday as a "numbers game" that "will become a joke", as Beijing raised levies on US imports to 125 percent and said it would go no further.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799950-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799950-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799950-20250411.htm)
+
+---
+
+# HK to firmly safeguard nation's financial security: FS
+
+![Paul Chan says the SAR government has formulated various response plans to help fend off financial risks. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799904_1_20250411111509.jpg&q=85)
+  
+
+Financial Secretary Paul Chan on Friday said Hong Kong is building a comprehensive financial protection network with systematic response plans and monitoring mechanisms to safeguard what he called the "southern gate" of the nation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799904-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799904-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799904-20250411.htm)
+
+---
+
+# Xi to visit Vietnam, Malaysia and Cambodia next week
+
+![President Xi Jinping with late Vietnam Communist Party general secretary Nguyen Phu Trong at the presidential palace in Hanoi in December 2023. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799903_1_20250411103929.jpg&q=55)
+  
+
+President Xi Jinping will visit Vietnam, Malaysia and Cambodia next week, the Foreign Ministry said on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799903-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799903-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799903-20250411.htm)
+
+---
+
+# Trump claims victory over EU in tariff battle
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799867_1_20250411074334.jpg&q=90)
+  
+
+US President Donald Trump claimed victory over Europe in the US tariffs war but acknowledged a "cost" to his surging trade offensive against superpower rival China as markets plunged again on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799867-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799867-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799867-20250411.htm)
+
+---
+
 # Postal bank in 10tn yuan backing for private firms
 
 ![Postal Savings Bank is setting aside at least three trillion yuan for technology innovators and over three trillion yuan for the agricultural sector. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799782_1_20250410162210.jpg&q=85)
@@ -1293,151 +1437,5 @@ President Xi Jinping met with representatives of the international business comm
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797830-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797830-20250328.htm)
-
----
-
-# 'Innovation the way to go for China'
-
-![Speakers at the Boao Forum for Asia highlighted China's continued efforts at technological innovation. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797826_1_20250328115333.jpg&q=80)
-  
-
-At the official opening of the Boao Forum for Asia on Thursday, Vice Premier Ding Xuexiang said China's economy was remaking itself with the growing capacity to drive growth through innovation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797826-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797826-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797826-20250328.htm)
-
----
-
-# Xi meets Bangladesh leader Yunus in Beijing
-
-![President Xi Jinping shakes hands with the Bangladeshi leader Muhammad Yunus. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797825_2_20250328222006.jpg&q=90)
-  
-
-President Xi Jinping met Bangladesh leader Muhammad Yunus in Beijing on Friday, state media reported, as Dhaka's relations with neighbouring India remains shaky.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm)
-
----
-
-# Rubio warns Venezuela against Guyana attacks
-
-![Guyanese President Mohamed Irfaan Ali, left, with Marco Rubio in Georgetown, Guyana. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797818_1_20250328105815.jpg&q=90)
-  
-
-Top US diplomat Marco Rubio bluntly warned Venezuela against attacking its oil-rich neighbour Guyana, brandishing the power of the US military to protect the small South American nation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm)
-
----
-
-# China, France pledge stronger ties amid global changes
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797766_1_20250328023251.jpg&q=75)
-  
-
-Foreign Minister Wang Yi met with French Foreign Minister Jean-Noel Barrot in Beijing on Thursday, vowing to deepen cooperation and strategic coordination.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm)
-
----
-
-# Beijing offices again question CK Hutchison ports deal
-
-![The latest Ta Kung Pao article reposted by Beijing offices in Hong Kong said CK Hutchison's ports deal didn't make business sense. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797760_1_20250328011558.jpg&q=50)
-  
-
-Central government bodies in charge of Hong Kong affairs on Thursday reposted another news article criticising a controversial deal by CK Hutchison’s to sell dozens of ports – including strategic assets along the Panama Canal – to a US consortium led by investment firm BlackRock.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797760-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797760-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797760-20250328.htm)
-
----
-
-# 'HK can act as Beijing's diplomatic super-connector'
-
-![Lam Tai-fai says Hong Kong must fully utilise its advantages and help Beijing rise on the international stage. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_1_20250327192921.jpg&q=85)
-![Former Chinese ambassador to the Czech Republic and Romania Huo Yuzhen highlighted Beijing's successful efforts to boost ties with its central and eastern European counterparts. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_2_20250327213024.jpg&q=90)
-![Former Chinese ambassador to Georgia and Tajikistan Yue Bin said Sino-Russian ties are on the up and up. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_3_20250327213024.jpg&q=90)
-  
-
-The chairman of Polytechnic University (PolyU)'s governing council on Thursday said Hong Kong must make use of its super-connector role under One Country, Two Systems to support the nation's diplomatic efforts.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm)
 
 ---

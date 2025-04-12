@@ -1,3 +1,411 @@
+# Court dismisses legal challenge over San Tin tech hub
+
+![The court ruling to throw out a legal challenge against the San Tin Technopole project comes after the applicant withdrew his judicial review application. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800004_1_20250411221145.jpg&q=90)
+  
+
+The Development Bureau on Friday welcomed the High Court’s decision to dismiss a legal challenge against the environmental impact assessment of the San Tin Technopole project.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800004-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800004-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1800004-20250411.htm)
+
+---
+
+# Australia's Robert French steps down from CFA
+
+![Robert French joined the top court as a non-permanent judge in 2017. Photo courtesy of the Judiciary](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799988_1_20250411191500.jpg&q=85)
+  
+
+Australian non-permanent judge Robert French has stepped down from the Court of Final Appeal, with the government on Friday expressing regret over his resignation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799988-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799988-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799988-20250411.htm)
+
+---
+
+# Govt pledges to review RTHK operations
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799951_1_20250411163912.jpg&q=40)
+  
+
+Secretary for Commerce and Economic Development Algernon Yau said on Friday the government will further review operations at RTHK after lawmakers expressed concern over the broadcaster's expenditure.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799951-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799951-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799951-20250411.htm)
+
+---
+
+# Warning system in works for HK's flood-prone roads
+
+![The system includes red wavy lines painted on roads, water level markers and real-time monitoring equipment. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799958_1_20250411170838.jpg&q=60)
+  
+
+The government on Friday announced a pilot scheme to install flood-warning systems at five flood-prone areas to prevent vehicles from being stranded during severe rainstorms.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799958-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799958-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799958-20250411.htm)
+
+---
+
+# 139 stooge account holders arrested over scams: police
+
+![Police say the suspects were involved in fraudulent phone, investment and online schemes. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799944_1_20250411155551.jpg&q=90)
+  
+
+Police said on Friday 139 people have been arrested on suspicion of money laundering and obtaining property by deception, with losses to victims amounting to more than HK$130 million.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799944-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799944-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799944-20250411.htm)
+
+---
+
+# Ombudsman launches probe into road repair works
+
+![The Office of the Ombudsman is investigating how the Highways Department handles damage to roads, such as uneven surfaces and potholes. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799941_1_20250411154951.jpg&q=40)
+  
+
+The Office of the Ombudsman said on Friday it’s launching an investigation into how the Highways Department handles damage to roads, such as uneven surfaces and potholes.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799941-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799941-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799941-20250411.htm)
+
+---
+
+# Strategies to boost maritime and aviation: Mable Chan
+
+![Mable Chan says the government will help the maritime sector look for new markets and step up collaboration with ports in the Greater Bay Area. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799927_1_20250411141831.jpg&q=90)
+  
+
+Secretary for Transport and Logistics Mable Chan said the government has come up with strategies to tackle an expected drop in Hong Kong's global trading volume as a result of the tariff war initiated by US President Donald Trump.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799927-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799927-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799927-20250411.htm)
+
+---
+
+# Huge demand for Manchester United friendly in HK
+
+![More costly tickets are the only options left for those wanting to see Manchester United in action against a Hong Kong, China, team. Photo: Screenshot](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799925_2_20250411155511.jpg&q=90)
+  
+
+Tickets for next month’s friendly between Manchester United and Team Hong Kong, China, went on sale at noon on Friday, with the cheapest tickets snapped up within half an hour.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799925-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799925-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799925-20250411.htm)
+
+---
+
+# Trump levy looms larger for senders of small parcels
+
+![People sending small parcels to the US will have to pay US$100 per item from May 2 and US$200 from June 1. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799912_1_20250411115603.jpg&q=70)
+  
+
+Hong Kong is continuing to see fallout from the trade war started by US President Donald Trump who raised the duty on small goods parcels from the SAR to 120 percent from the 90 percent that he had set just a day before that, and the 30 percent in his opening salvo on April 2.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799912-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799912-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799912-20250411.htm)
+
+---
+
+# CE to visit Middle East with mainland firms next month
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799910_1_20250411114718.jpg&q=85)
+  
+
+Commerce minister Algernon Yau on Friday said the chief executive would head to the Middle East next month with representatives from mainland enterprises to seek more business opportunities.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799910-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799910-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799910-20250411.htm)
+
+---
+
+# HK to launch locally developed chatbot in second half
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799909_1_20250411114314.jpg&q=90)
+  
+
+The Commissioner for Digital Policy Tony Wong said Hong Kong aims to launch a locally developed chatbot in the second half and that it may be available for use free of charge in the initial stage.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799909-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799909-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799909-20250411.htm)
+
+---
+
+# HK to firmly safeguard nation's financial security: FS
+
+![Paul Chan says the SAR government has formulated various response plans to help fend off financial risks. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799904_1_20250411111509.jpg&q=85)
+  
+
+Financial Secretary Paul Chan on Friday said Hong Kong is building a comprehensive financial protection network with systematic response plans and monitoring mechanisms to safeguard what he called the "southern gate" of the nation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799904-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799904-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799904-20250411.htm)
+
+---
+
+# Diversity key to success amid tariff war: lawmaker
+
+![Lawmaker Kennedy Wong says having a diversified set of trading partners will be increasingly important for Hong Kong firms. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799911_1_20250411115034.jpg&q=70)
+  
+
+Lawmaker Kennedy Wong on Friday said the world had entered a new period of uncertainty and disruption because of the US tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799911-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799911-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799911-20250411.htm)
+
+---
+
+# Simmi Chan wins U23 World Squash silver
+
+![Simmi Chan is Hong Kong’s first female athlete to secure a silver medal at the Under-23 World Squash Championships. Photo: Squash Association of Hong Kong, China's Instagram](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799876_3_20250411091433.jpg&q=90)
+  
+
+Hong Kong, China squash player Simmi Chan secured a historic silver medal at the inaugural Under-23 World Squash Championships in Pakistan.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799876-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799876-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799876-20250411.htm)
+
+---
+
+# Customs seizes HK$4m in suspected MDMA
+
+![A 31-year-old woman arriving from Vancouver was arrested after officers found the drugs in her checked luggage. Photo: GIS](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799843_1_20250411005107.jpg&q=75)
+  
+
+Hong Kong Customs says it seized about 20 kilograms of suspected MDMA worth HK$4 million at the airport on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799843-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799843-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799843-20250411.htm)
+
+---
+
+# HK exporters to receive extra support amid tariffs
+
+![Algernon Yau (third left) met with representatives of industries which are more affected by the tariffs, such as jewellery, textiles and garment, food and aluminium. Photo courtesy of the Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799826_2_20250410213210.jpg&q=90)
+  
+
+Hong Kong authorities have offered further support to insure local small and medium-sized enterprises (SMEs) against pre-shipment risks amid sweeping tariffs, while announcing measures to help them tap into new markets.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799826-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799826-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799826-20250410.htm)
+
+---
+
+# Manchester United promise to put on a show in HK
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799801_1_20250410172604.jpg&q=75)
+  
+
+Manchester United on Thursday assured SAR fans that a “full team” including captain Bruno Fernandes will be featured in a friendly against Hong Kong, China next month.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799801-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799801-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799801-20250410.htm)
+
+---
+
 # Govt mulls fishing rules relaxation to boost tourism
 
 ![Rosanna Law says the government will consider increasing the number of yacht docking spaces in Victoria Harbour. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799779_1_20250410161655.jpg&q=85)
@@ -1027,413 +1435,5 @@ The Transport Department on Sunday called on people coming to Hong Kong to see t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799115-20250406.htm)
-
----
-
-# A&E fee changes boost medical protection: minister
-
-![Lo Chung-mau says the changes can be likened to the government giving everyone in Hong Kong free medical insurance. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799110_1_20250406140106.jpg&q=90)
-  
-
-Changes to fees for treatment at Accident and Emergency departments will provide the public with better medical protection, Health Secretary Lo Chung-mau said on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799110-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799110-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799110-20250406.htm)
-
----
-
-# HK will calmly ride out tariffs storm, says FS
-
-![Paul Chan said the SAR has become less reliant on the United States when it comes to exports. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799108_1_20250406125334.jpg&q=55)
-  
-
-Hong Kong will calmly face any problems caused by US tariffs with the government providing support to local firms, Financial Secretary Paul Chan said on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799108-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799108-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799108-20250406.htm)
-
----
-
-# 'Packaging reduction charter better than legislation'
-
-![The Environmental Protection Department launched a 'Packaging Reduction Charter' on March 31. Photo courtesy of Information Services Department.](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799098_1_20250406112620.jpg&q=85)
-  
-
-Environment minister Tse Chin-wan has rejected the idea of legislation to force businesses to cut down on their use of packaging, saying many are willing to sign up to the cause voluntarily.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799098-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799098-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799098-20250406.htm)
-
----
-
-# 'AI guidelines push to help prevent data leaks'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799103_1_20250406121958.jpg&q=90)
-  
-
-Hong Kong firms making use of generative artificial intelligence may run the risk of data breaches, Privacy Commissioner Ada Chung warned on Sunday, as she explained how new advice issued by her office will help mitigate the dangers.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799103-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799103-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799103-20250406.htm)
-
----
-
-# HK won't impose countermeasures against US tariffs: FS
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799045_1_20250405170141.jpg&q=90)
-  
-
-Financial Secretary Paul Chan on Saturday said Hong Kong will not impose countermeasures even though the United States announced sweeping tariffs on countries around the world.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799045-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799045-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799045-20250405.htm)
-
----
-
-# Water tariff review aims to make users pay: director
-
-![Roger Wong says the review of water charges aims to achieve the principle of user pays. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799041_1_20250405161641.jpg&q=85)
-  
-
-The Director of Water Supplies said on Saturday that while the department is still reviewing water charges, its objective is to achieve the principle of user pays.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799041-20250405.htm)
-
----
-
-# Youth facilities to open in Kai Tak by October
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799037_1_20250405154953.jpg&q=90)
-  
-
-Secretary for Home and Youth Affairs Alice Mak on Saturday said youth facilities will be set up at the original site of an isolation facility in Kai Tak by October this year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799037-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799037-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799037-20250405.htm)
-
----
-
-# Manufacturers told to look for markets outside US
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799027_1_20250405130110.jpg&q=80)
-  
-
-The former president of the Chinese Manufacturers' Association of Hong Kong has called on entrepreneurs to look for new markets away from the US.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799027-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799027-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799027-20250405.htm)
-
----
-
-# Housing Society to complete tenant checks in late 2026
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799023_1_20250405122827.jpg&q=90)
-  
-
-The Hong Kong Housing Society on Saturday said it hopes to complete checks for well-off tenants by November of next year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799023-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799023-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799023-20250405.htm)
-
----
-
-# Retaliatory tariffs on US goods 'aim to cause pain'
-
-![Lau Siu-kai, a consultant to the Chinese Association of Hong Kong and Macau Studies, said China's measures were not gestures. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799015_1_20250405103147.jpg&q=90)
-  
-
-A senior member of a leading national think tank says China's retaliatory tariffs on the US aim to cause pain. Lau Siu-kai, a consultant to the Chinese Association of Hong Kong and Macau Studies, said that given the difficult trade situation, China's retaliatory measures were not gestures, saying otherwise they would be meaningless.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799015-20250405.htm)
-
----
-
-# Four men to appear in court over spate of burglaries
-
-![Police allege that property totalling about HK$375,000 was taken during the thefts. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799007_1_20250405093500.jpg&q=65)
-  
-
-Four mainland men, arrested in Yuen Long on Thursday on suspicion of burglary and illegal entry, will have their case brought up in court on Saturday in Kwun Tong.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799007-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799007-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799007-20250405.htm)
-
----
-
-# HK International Track Cup to attract 150 cyclists
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798942_1_20250404160739.jpg&q=80)
-  
-
-One of the National Games test events – the Hong Kong International Track Cup – will be held from April 19 to 21, attracting professional cyclists from around the world.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm)
-
----
-
-# Tourism chief vows to remain principled in her work
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798932_1_20250404134405.jpg&q=85)
-  
-
-The Secretary for Sports, Culture and Tourism emphasised that she will stay principled and innovative in her work, as she wrapped up her three-day trip to Beijing on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm)
-
----
-
-# People flock to cemeteries on Ching Ming Festival
-
-![People say the crowd at a cemetery in Diamond Hill was smaller than expected. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798931_1_20250404133333.jpg&q=35)
-  
-
-People on Friday flocked to cemeteries to pay their respects to their ancestors as part of tradition for the Ching Ming Festival.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm)
-
----
-
-# Five men arrested in relation to child pornography
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798927_1_20250404125856.jpg&q=90)
-  
-
-Police on Friday said five local men were arrested in relation to child pornography, as officers warned about AI-generated pornographic images.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798927-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798927-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798927-20250404.htm)
-
----
-
-# Youtube megastar IShowSpeed arrives in Hong Kong
-
-![Popular streamer IShowSpeed took part in "villain-hitting" in Causeway Bay. Photo: YouTube/IShowSpeed](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798924_1_20250404125426.jpg&q=85)
-  
-
-Youtube mega-star I-Show-Speed arrived in Hong Kong on Friday, after a live stream tour across the mainland, and has made his way around Causeway Bay before seeing the pandas at Ocean Park.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm)
-
----
-
-# HK manufacturers to wait-and-see amid Trump tariffs
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798915_1_20250404113116.jpg&q=85)
-  
-
-The president of the Chinese Manufacturers' Association of Hong Kong has voiced its strong opposition towards US President Donald Trump's latest round of levies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm)
 
 ---

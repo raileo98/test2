@@ -1,32 +1,9 @@
-# 有市民稱不再郵寄貨物往美國　改為將貨品帶予當地家人
+# 完成再入主白宮後首次體檢　特朗普稱自己狀態非常好
 
-![在中環一間郵局，有市民表示，如果日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799806_1_20250410173610.jpg&q=70)
+![特朗普在專機上表示，已完成體檢，自己的狀態非常好。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800050_1_20250412102349.jpg&q=90)
   
 
-美國早前宣布，由5月2日起取消香港寄往美國物品的小額免稅安排。在中環一間郵局，有市民表示，家人都住在美國，平時兩至三個月就需要寄一次日常用品到當地，每次約花費數百至1千元，日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國，改為由家人將貨品帶到美國，估計補給次數將會由平均兩個月一次，改為5至8個月一次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm)
-
----
-
-# 北京有民眾不擔心必需品供應　亦有藥房不打算增加美國藥物存貨量
-
-  
-
-中國由中午起，對原產於美國的所有進口商品加徵關稅至84%。在北京，有長者說平日習慣服用進口藥，控制心臟病和高血壓，認為藥效好。他認為關稅的實際影響目前仍未顯現，但只要價格不是高得離譜，例如增加一倍以內都能接受，不打算提早備存太多存貨。但亦有民眾說擔心物價上漲。
+美國總統特朗普在馬里蘭州一個陸軍醫療中心完成再度入主白宮以來的首次年度體檢，形容自己的狀態非常好。
 
   
 
@@ -34,22 +11,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800050-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800050-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800050-20250412.htm)
 
 ---
 
-# 貿發局籲本港業界勿自亂陣腳做好產品及服務　升級轉型提高競爭力
+# 美國移民法官裁定巴勒斯坦學生哈利勒可被驅逐出境
 
+![哈利勒去年在哥大校園聲援巴勒斯坦示威活動中，發揮重要作用。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800042_1_20250412092037.jpg&q=85)
   
 
-貿發局副總裁張淑芬表示，美國關稅不只對香港帶來影響，環球出口都直接受影響，業界經營會較辛苦，但呼籲切勿自亂陣腳，需要做好自己產品和服務，積極升級轉型，提高競爭力。
+美國一名移民法官裁定，被政府拘留的巴勒斯坦學生示威者哈利勒可以被驅逐出境。
 
   
 
@@ -57,23 +35,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800042-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800042-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800042-20250412.htm)
 
 ---
 
-# 廖李可期稱密切評估加徵關稅情況　多方面支援本地企業
+# 美伊今天在阿曼談判　特朗普：伊朗不能擁有核武器
 
-![廖李可期說，新聞從業員可擔當重要角色，提供最新及最準確的資訊。（鍾慧儀攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799795_1_20250410171153.jpg&q=80)
+![特朗普在「空軍一號」專機上會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800038_1_20250412082346.jpg&q=85)
   
 
-美國上調對中國加徵的關稅至125%，新聞處處長廖李可期表示，對此霸凌行徑，特區政府除了堅決反對之外，亦會密切評估有關情況和發展，並從多方面為本地企業提供支援。
+美國與伊朗將於今天在阿曼就核問題談判。美國總統特朗普在談判前重申，伊朗不能擁有核武器。
 
   
 
@@ -81,24 +59,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800038-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800038-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800038-20250412.htm)
 
 ---
 
-# 馮德萊恩：美國暫緩徵收對等關稅是朝穩定全球經濟邁出重要一步
+# 《環看天下》：烏克蘭派團隊赴美商礦產協議　據報美方方案苛刻
 
-![馮德萊恩表示，歐盟仍致力與美國進行建設性談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799783_2_20250410164947.jpg&q=90)
-![歐盟委員會表示，需要時間評估美國有關關稅措施的最新進展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799783_1_20250410162214.jpg&q=30)
+![美俄官員在伊斯坦布爾進行第二輪會談。( 路透社 )](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800033_1_20250412071521.jpg&q=50)
   
 
-美國總統特朗普宣布，暫緩對中國以外其他國家及地區徵收較高稅率的對等關稅90日，以便談判。
+美國與俄羅斯繼續推動雙邊關係回暖之際，美國斡旋俄烏停火進展緩慢。美國總統特朗普對俄羅斯持續攻擊烏克蘭一再表達不滿，烏克蘭總統澤連斯基就抱怨美國對俄施壓不足。分析指俄烏都希望在戰場上，為日後可能出現的和談獲取更多籌碼。
 
   
 
@@ -106,23 +83,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799783-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800033-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799783-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799783-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800033-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800033-20250412.htm)
 
 ---
 
-# 當局推出三項措施支援香港出口貿易　協助企業加快開拓新興市場
+# 路透：為俄軍作戰的中國公民屬僱傭兵　似乎與中國政府沒直接聯繫
 
-![丘應樺表示，美國朝令夕改，連日調高關稅，呼籲業界團結一致，迎難而上。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799789_1_20250410165429.jpg&q=90)
+![一名被烏軍俘虜的男子在鏡頭前稱自己是中國人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800029_1_20250412062455.jpg&q=90)
   
 
-商務及經濟發展局表示，面對美國濫施關稅，包括進一步調高所謂對等關稅，香港出口信用保險局會即時推出3項支援措施，支援香港出口貿易，協助企業加快開拓新興市場。
+路透社引述美國官員和西方前情報人員報道，大約200名在烏克蘭為俄羅斯軍隊作戰的中國公民都是僱傭兵，似乎與中國政府沒有直接聯繫，但有中國軍官在北京批准下，在俄羅斯戰線後方戰區，並從中汲取戰術經驗。
 
   
 
@@ -130,23 +107,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800029-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800029-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800029-20250412.htm)
 
 ---
 
-# 盧金榮支持國家堅定立場維護自身合法權益
+# 普京晤美國特使　白宮形容屬美俄朝著解決烏克蘭問題邁出的又一步
 
-![盧金榮表示，美國總統特朗普再加關稅已經沒有意義。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799786_1_20250410172051.jpg&q=75)
+![俄羅斯總統普京在聖彼得堡會見到訪的美國中東問題特使威特科夫。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800023_1_20250412053545.jpg&q=90)
   
 
-廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
+俄羅斯總統普京在聖彼得堡會見到訪的美國中東問題特使威特科夫，討論烏克蘭問題，是兩人今年第三次會晤。
 
   
 
@@ -154,23 +131,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800023-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800023-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800023-20250412.htm)
 
 ---
 
-# 李家超籲僑界於國際輿論場全力發聲一同推廣自由貿易
+# 普京：海軍戰略核力量已全面配備現代化武器和裝備
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799780_1_20250410170122.jpg&q=75)
+![普京在聖彼得堡舉行的海軍發展戰略會議上發表講話。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800021_1_20250412051721.jpg&q=90)
   
 
-行政長官李家超表示，最近美國單方面宣布所謂對等關稅，破壞全球共同建立的自由貿易體系規則，大搞單邊主義，滿口歪理霸淩，違背經濟規律，嚴重踐踏及侮辱多邊貿易體系。
+俄羅斯總統普京表示，海軍戰略核力量已全面配備現代化武器和裝備。
 
   
 
@@ -178,23 +155,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800021-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800021-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800021-20250412.htm)
 
 ---
 
-# 美俄代表在伊斯坦布爾會談　商議恢復兩國外交使團運作正常化
+# 也門胡塞武裝稱襲擊美國杜魯門號航母編隊
 
-![美俄代表團2月27日亦曾在伊斯坦布爾舉行會談。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799770_1_20250410152006.jpg&q=55)
+![也門首都薩那星期五有大批民眾上街，抗議美軍空襲當地。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800019_1_20250412043157.jpg&q=40)
   
 
-美國與俄羅斯代表團在土耳其伊斯坦布爾，就恢復兩國外交使團運作正常化舉行會談。
+也門胡塞武裝表示，組織星期五襲擊了部署在紅海北部的美國航母編隊。
 
   
 
@@ -202,23 +179,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799770-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800019-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799770-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799770-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800019-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800019-20250412.htm)
 
 ---
 
-# 入境處第五次奪得全球最佳機場出入境服務大獎
+# 美國特使冀與伊朗建立信任　德黑蘭稱若美放棄威脅很可能達成協議
 
-![郭俊峯（左）表示，能夠五度獲得殊榮，是對入境處秉承提供最優質出入境服務理念的肯定。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799767_1_20250410162039.jpg&q=85)
+![雙方代表團分別由美國中東問題特使威特科夫及伊朗外長阿拉格齊率領。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800018_1_20250412042656.jpg&q=80)
   
 
-入境處在國際專業航空運輸研究機構Skytrax的年度旅客意見調查，贏得2025年度全球最佳機場出入境服務大獎，是入境處第五次獲得該項殊榮。
+美國和伊朗今日在阿曼就伊朗核問題談判，雙方代表團分別由美國中東問題特使威特科夫及伊朗外長阿拉格齊率領。
 
   
 
@@ -226,23 +203,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799767-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800018-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799767-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799767-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800018-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800018-20250412.htm)
 
 ---
 
-# 外交部駐港公署指美方揮舞關稅大棒迫就範　勿指望等到中國電話
+# 特朗普：關稅政策非常好　白宮不評論是否等待中方首先行動
 
-![公署指，美方舉動不會讓美國再次偉大，只會讓美國變成21世紀的野蠻人。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799766_1_20250410155459.jpg&q=90)
+![白宮發言人萊維特強調，特朗普對貿易協議取得進展持樂觀態度。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800016_1_20250412031324.jpg&q=85)
   
 
-外交部駐港公署就美國對華加徵嚴重不合理關稅，致信《南華早報》表示，美方不顧國際社會普遍反對，以荒唐借口對所有交易夥伴徵收所謂「對等關稅」，是典型的單邊主義、保護主義、經濟霸淩，嚴重侵犯各國正當權益，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序。公署表示，美方此舉不會讓美國再次偉大，只會讓美國變成21世紀的野蠻人。
+中國今日起對美國進口商品加徵的關稅稅率提高至125%，又表明如果美方繼續關稅數字遊戲，中方將不予理會。
 
   
 
@@ -250,23 +227,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799766-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800016-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799766-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799766-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800016-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800016-20250412.htm)
 
 ---
 
-# 中國對原產於美國進口商品加徵84%關稅開始執行
+# 美國佛州小型飛機墜毀　機上三人死亡地面一人受傷
 
-![中國中午12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799759_1_20250410142035.jpg&q=90)
+![飛機在機場附近一條州際公路邊墜毀並起火。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800015_1_20250412023739.jpg&q=90)
   
 
-中國反制美國的關稅措施開始執行，中午12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。
+美國佛羅里達州南部有一架小型飛機墜毀，機上三人死亡、地面一人受傷。
 
   
 
@@ -274,23 +251,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800015-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800015-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800015-20250412.htm)
 
 ---
 
-# 多米尼加夜總會屋頂坍塌事故　增至最少184死
+# 美伊今於阿曼談判　白宮稱特朗普目標是確保伊朗永遠無法取得核武
 
-![當局表示，300多名救援隊員連日來努力清理廢墟，救助傷患，全力救出倖存者。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799729_1_20250410113511.jpg&q=35)
+![萊維特表示，總統特朗普的最終目標是確保伊朗永遠無法取得核武器。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800014_1_20250412022949.jpg&q=85)
   
 
-多米尼加首都聖多明各一間夜總會屋頂坍塌事故，死亡人數增至最少184人。
+美國和伊朗今日將會在阿曼就伊朗核問題舉行談判，白宮發言人萊維特強調，會談將會是直接的。
 
   
 
@@ -298,23 +275,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799729-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800014-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799729-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799729-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800014-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800014-20250412.htm)
 
 ---
 
-# 耿爽：希望法國與沙特6月會議能為落實「兩國方案」注入新動能
+# 普京晤美國特使　克宮稱俄美元首通電話理論上是可能
 
-![耿爽表示，「兩國方案」是解決巴以問題的唯一可行出路。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799724_1_20250410110022.jpg&q=85)
+![俄羅斯總統普京在聖彼得堡會見到訪的美國中東問題特使威特科夫。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800013_1_20250412012752.jpg&q=90)
   
 
-中國常駐聯合國代表團臨時代辦耿爽，對法國與沙特阿拉伯計劃6月在紐約聯合舉辦有關巴勒斯坦問題的會議，表示讚賞，希望會議能為落實「兩國方案」注入新動能，並有助於平息當下的緊張局勢。
+俄羅斯總統普京在聖彼得堡會見到訪的美國中東問題特使威特科夫，是兩人今年第三次會晤，討論烏克蘭局勢調解問題。
 
   
 
@@ -322,23 +299,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799724-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800013-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799724-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799724-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800013-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800013-20250412.htm)
 
 ---
 
-# 共同民主黨前黨魁李在明宣布參加新一屆南韓總統選舉
+# 烏克蘭盟友承諾新一輪軍援　澤連斯基冀提供10套愛國者系統
 
-![李在明目前在不同機構的民調中領先。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799718_1_20250410102415.jpg&q=80)
+![英國、德國和烏克蘭防長出席記者會。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800012_1_20250412005240.jpg&q=85)
   
 
-南韓最大在野黨共同民主黨前黨魁李在明宣布，參加新一屆總統選舉。
+烏克蘭防務問題國際聯絡小組會議在比利時布魯塞爾舉行，美國、英國、德國等大約50個國家的代表出席，承諾向基輔提供210億歐元的新一輪軍事援助。
 
   
 
@@ -346,23 +323,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799718-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800012-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799718-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799718-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800012-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800012-20250412.htm)
 
 ---
 
-# 洛杉磯奧運將新增22個小項　將增設乒乓混合團體賽
+# Tesla中國暫停接受兩款進口型號汽車新訂單
 
-![國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799712_1_20250410093619.jpg&q=75)
+![Tesla中國官網已暫停接受Model S和Model X兩個型號汽車的新訂單，僅保留「查看現車」選項。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799999_1_20250411214432.jpg&q=80)
   
 
-國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額，共設351個小項，較巴黎奧運會的329個小項增加22項，其中乒乓混合團體賽將作為新增小項登上洛杉磯奧運會舞台。
+貿易戰下，美國電動車生產商Tesla的中國官網，已暫停接受Model S和Model X兩個型號汽車的新訂單，僅保留「查看現車」選項，意味消費者只能選購現有庫存車輛。
 
   
 
@@ -370,23 +347,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799712-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799712-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799712-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm)
 
 ---
 
-# 《環看天下》：應對美國關稅威脅　分析：或促使中歐經貿回暖
+# 美國撤格陵蘭基地指揮官職務　據報因她與萬斯劃清界線
 
-![今年前兩個月中歐班列累計到發176列，同比增長22.9%。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799707_1_20250410092107.jpg&q=55)
+![美國駐格陵蘭軍事基地指揮官邁耶斯（圖左），曾與副總統萬斯交談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799995_1_20250411204858.jpg&q=75)
   
 
-今年是中歐建交50周年，國務院總理李強日前同歐盟委員會主席馮德萊恩通電話。李強表示，中歐關係呈現穩中向好勢頭，中方願同歐方攜手努力，增進政治互信，拓展務實合作，並分享發展機遇。
+美國駐格陵蘭軍事基地指揮官邁耶斯被撤職，據報因她曾發電郵就副總統萬斯批評丹麥的言論劃清界線。
 
   
 
@@ -394,23 +371,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm)
 
 ---
 
-# 工總稱進出口商已無生意做　學者料美方欲與中方脫勾斷鏈
+# 劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰
 
-![莊子雄說，進出口商都處於觀望態度；麥萃才認為，商界應該專注發展其他市場。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799704_1_20250410093313.jpg&q=70)
+![劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799992_1_20250411213700.jpg&q=85)
   
 
-美國總統特朗普宣布，即時上調對中國加徵的關稅至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。香港工業總會主席莊子雄表示，在貿易戰下，無論美方加徵多少關稅，數字上已經無影響，因為大家已經無可能再做生意，他形容美方非常不理性，進出口商都處於觀望態度。
+中共中央總書記、國家主席習近平在北京與西班牙首相桑切斯會面時，首次就近日的關稅議題發聲，強調「打關稅戰」沒有贏家，同世界作對將孤立自己，重申中方不畏懼任何無理打壓。
 
   
 
@@ -418,23 +395,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm)
 
 ---
 
-# 澤連斯基：烏克蘭「技術團隊」將於華盛頓與美方就礦產協議磋商
+# 菲律賓鋼鐵大王郭從願遭綁架撕票　中方要求將凶手繩之於法
 
-![澤連斯基表示，烏克蘭的「技術團隊」將會在華盛頓與美方就礦產協議展開磋商。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799699_1_20250410100354.jpg&q=90)
+![菲律賓鋼鐵大王郭從願遭綁架撕票　中方要求將凶手繩之於法](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799940_1_20250411154405.jpg&q=90)
   
 
-烏克蘭媒體報道，總統澤連斯基表示，烏克蘭的「技術團隊」將會在美國首都華盛頓與美方就礦產協議展開磋商。
+有菲律賓「鋼鐵大王」之稱的著名華僑郭從願，在菲律賓遭綁架撕票。
 
   
 
@@ -442,23 +419,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799699-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799699-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799699-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm)
 
 ---
 
-# 商務部：李強剛與馮德萊恩通電話　中方願與歐方深化合作
+# 王毅指美國不能任意妄為　歷史車輪不能倒退
 
-![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=25)
+![王毅與格羅西會晤。（外交部圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799983_1_20250411184900.jpg&q=80)
   
 
-商務部部長王文濤表示，國務院總理李強剛剛與歐盟委員會主席馮德萊恩通電話，向外界傳遞積極資訊。表示中方願與歐方相向而行，共同落實好中歐領導人達成的重要共識，加強溝通交流，深化中歐貿易、投資和產業合作。
+中共中央政治局委員、外交部長王毅在北京，與國際原子能機構總幹事格羅西會面時批評美國推出的關稅措施，凌駕各國利益，美國不能任意妄為。
 
   
 
@@ -466,23 +443,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm)
 
 ---
 
-# 特朗普暫緩多國高額關稅但上調對華關稅　相信最終會與華達成協議
+# 南韓光明市鐵路工地塌陷有工人失聯　公路及部分商業設施受損
 
-![特朗普相信，美方會在某個時候接到中方的電話，雙方最終會達成一項非常好的協議。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799684_1_20250410053117.jpg&q=90)
+![南國光明市鐵路工地塌陷，地面公路和部分商業設施受損。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799963_2_20250411183858.jpg&q=30)
   
 
-美國總統特朗普宣布，即時上調對中國加徵的關稅至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。
+南韓京畿道光明市一個鐵路工地塌陷，1名工人失聯。
 
   
 
@@ -490,23 +467,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799684-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799963-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799684-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799684-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799963-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799963-20250411.htm)
 
 ---
 
-# 世貿總幹事稱中美商品貿易或減少多達八成
+# 中方指美方對華關稅稅率異常高淪數字游戲　如再加將不予理會
 
-![伊維拉呼籲所有成員透過合作與對話來應對挑戰。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799681_1_20250410042358.jpg&q=90)
+![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字游戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799980_1_20250411195622.jpg&q=25)
   
 
-世貿總幹事伊維拉表示，中美貿易緊張局勢不斷升級，構成雙邊貿易大幅萎縮的重大風險，初步預測可能令兩國商品貿易減少多達八成。
+中國再度反制美國，向原產於美國的進口商品，加徵關稅稅率上調至125%。
 
   
 
@@ -514,23 +491,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm)
 
 ---
 
-# 馬克龍：法國可能在今年6月承認巴勒斯坦國
+# 習近平強調關稅戰無贏家　中方不畏懼任何無理打壓
 
-![馬克龍認為，在適當時機承認巴勒斯坦國是正當。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799680_1_20250410034904.jpg&q=90)
+![習近平會見訪華的西班牙首相桑切斯，期間談及關稅議題。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799977_1_20250411193050.jpg&q=90)
   
 
-法國總統馬克龍表示，法國可能在今年6月承認巴勒斯坦國。
+國家主席習近平在北京，會見訪華的西班牙首相桑切斯，期間談及關稅議題。
 
   
 
@@ -538,23 +515,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799680-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799977-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799680-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799680-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799977-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799977-20250411.htm)
 
 ---
 
-# 英王查理斯三世與王后卡米拉到梵蒂岡與教宗會晤
+# 習近平︰打關稅戰沒有贏家　中國不畏懼任何無理打壓
 
-![查理斯三世與卡米拉到訪意大利。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799678_1_20250410034010.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799972_1_20250411183030.jpg&q=90)
   
 
-出訪意大利的英王查理斯三世與王后卡米拉突然前往梵蒂岡，與教宗方濟各會面。
+國家主席習近平在北京會見訪華的西班牙首相桑切斯。習近平強調，打關稅戰沒有贏家，同世界作對將孤立自己。
 
   
 
@@ -562,23 +539,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799678-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799678-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799678-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm)
 
 ---
 
-# 澤連斯基：155名中國公民為俄軍作戰
+# 白宮稱中國總關稅為145%　特朗普：期望與中方達成協議
 
-![澤連斯基說，烏方正試圖評估這些被招募人員是否接受來自北京的指示。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799677_1_20250410033738.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799969_1_20250411183308.jpg&q=90)
   
 
-烏克蘭總統澤連斯基表示，情報部門掌握的信息顯示，有155名中國公民正在為俄羅斯軍隊作戰，對抗烏克蘭，指俄羅斯透過社交媒體招募中國公民參戰，中國官員亦知情，烏方正試圖評估這些被招募人員是否接受來自北京的指示。
+美國總統特朗普早前宣布，對中國進口貨品的關稅稅率提高至125%，白宮官員澄清，特朗普所指的125%是對等關稅，連同早前因芬太尼問題加徵的20%關稅，美國對中國貨加徵的總關稅是145%。
 
   
 
@@ -586,23 +563,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799677-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799969-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799677-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799677-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799969-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799969-20250411.htm)
 
 ---
 
-# 特朗普：對等關稅90日內暫降至一成　對華關稅即時增至125%
+# 尹錫悅搬離龍山總統官邸　稱重新以國民身份為國為民尋求新道路
 
-![特朗普表示，由於中國對世界市場的不尊重，決定將美國對中國徵收的關稅提高至125%，即時生效。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799674_1_20250410015631.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799957_1_20250411165432.jpg&q=70)
   
 
-美國總統特朗普宣布，即時上調對中國加徵的關稅稅率至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。
+南韓前總統尹錫悅下午從首爾龍山區總統官邸搬走，返回位於瑞草區的私人住宅。
 
   
 
@@ -610,23 +587,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799957-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799957-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799957-20250411.htm)
 
 ---
 
-# 中方從中午起對美加徵84%關稅　文化和旅遊部對赴美遊客發提示
+# 投資推廣署稱香港是中東企業拓展亞太及內地市場策略門戶
 
-![商務部表示，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799673_1_20250410012424.jpg&q=25)
+![吳國才（右）說，憑藉香港的營商優勢，與中東企業可以在金融、科技、可持續發展等加強合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799956_1_20250411165957.jpg&q=65)
   
 
-中方進一步反制美國向中國產品徵收104%的關稅措施，今日中午起對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。
+投資推廣署助理署長吳國才結束在中東的訪問，出訪利雅得、吉達和迪拜，宣傳香港是中東企業拓展亞太地區及內地市場的策略性門戶。
 
   
 
@@ -634,23 +611,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799956-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799956-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799956-20250411.htm)
 
 ---
 
-# 中方稱美國對等關稅開錯方、吃錯藥　無助解決貿易不平衡問題
+# 中國於世貿組織爭端解決機制追加起訴美國進一步提高對華關稅
 
-![世界貿易組織召開貨物貿易理事會年度首次會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799672_1_20250410004211.jpg&q=85)
+![中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799949_1_20250411162733.jpg&q=80)
   
 
-世界貿易組織召開貨物貿易理事會年度首次會議，中方嚴重關切美國對等關稅措施及其惡劣影響，要求美方切實遵守世貿規則，避免對全球經濟和多邊貿易體制造成負面衝擊。
+中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。
 
   
 
@@ -658,23 +635,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799949-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799949-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799949-20250411.htm)
 
 ---
 
-# 伊朗總統：德黑蘭將在有尊嚴情況下與美國間接談判
+# 商務部嚴厲譴責美國提高對華關稅　指畸高關稅淪數字游戲及笑話
 
-![佩澤希齊揚參觀伊朗國家核工業成就展。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799671_1_20250410003924.jpg&q=90)
+![商務部新聞發言人表示，嚴厲譴責美方肆意的單邊關稅措施堅決反對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799948_1_20250411162016.jpg&q=40)
   
 
-伊朗總統佩澤希齊揚表示，德黑蘭將在有尊嚴情況下，與美國進行間接談判。
+中國再反制美國提高對華關稅。
 
   
 
@@ -682,23 +659,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799671-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799948-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799671-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799671-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799948-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799948-20250411.htm)
 
 ---
 
-# 德國聯盟黨與社民黨公布執政協議　默茨稱歐洲需共同回應美國關稅
+# 中國對原產於美國進口商品關稅稅率提高至125%
 
-![默茨說，德國正迎來一個強大而有效的政府。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799670_1_20250410003022.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799946_1_20250411165306.jpg&q=90)
   
 
-由基督教民主聯盟和基督教社會聯盟組成的德國聯盟黨，與德國社會民主黨公布聯合執政協議。
+國務院關稅稅則委員會發公告，明日起，對所有原產於美國的進口商品，加徵關稅稅率，由84%提高至125%。
 
   
 
@@ -706,23 +683,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799670-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799946-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799670-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799670-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799946-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799946-20250411.htm)
 
 ---
 
-# 國家文化和旅遊部提示中國遊客充分評估赴美旅遊風險　籲謹慎前往
+# 外交部指習近平訪東南亞三國將為世界和平穩定注入新動能
 
-![國家文化和旅遊部對赴美中國遊客發布風險提示。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799660_1_20250409224238.jpg&q=65)
+![外交部表示習近平外訪對推動中國與相關國家，以及東盟關係發展具有重大意義。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799936_1_20250411150809.jpg&q=90)
   
 
-國家文化和旅遊部對赴美中國遊客發布風險提示。
+中共中央總書記、國家主席習近平，下星期一起國事訪問越南、馬來西亞和柬埔寨。外交部發言人林劍表示，周邊是中國外交的優先方向，習近平今年首次出訪就訪問這三個國家，對推動中國與相關國家，以及東盟關係發展具有重大意義，也將為地區乃至世界的和平穩定注入新動能。
 
   
 
@@ -730,23 +707,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799936-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799660-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799936-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799936-20250411.htm)
 
 ---
 
-# 歐盟通過對美國進口產品的反制措施
+# 回應美國對華加徵關稅　外交部稱不願打關稅戰但也不怕打
 
-![歐盟27個成員國投票表決通過對美國進口產品的反制措施，可於下周二起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799657_1_20250409214502.jpg&q=70)
+![林劍表示關稅戰、貿易戰沒有贏家，中方不願打，但也不怕打。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799935_1_20250411145114.jpg&q=90)
   
 
-歐盟27個成員國投票表決通過對美國進口產品的反制措施，以回應美國上月12日宣布對歐盟的鋼鐵和鋁徵收關稅。有關措施可於下周二起生效。
+在北京，外交部回應美國對華產品加徵145%關稅。發言人林劍表示，關稅戰、貿易戰沒有贏家，中方不願打，但也不怕打。他說如果美方真的想通過對話談判解決問題，就應該停止極限施壓、胡作非為，任何對話都必須建立在平等、尊重、互惠的基礎上。如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。
 
   
 
@@ -754,23 +731,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799657-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm)
 
 ---
 
-# 美財長對中國84%報復性關稅表示遺憾　籲中方談判
+# 習近平晤桑切斯談及關稅戰指無贏家　與世界作對將孤立自己
 
-![美國財長貝森對中國84%報復性關稅，表示遺憾，呼籲中方談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799654_1_20250409203820.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799932_1_20250411150400.jpg&q=90)
   
 
-美國財長貝森特對中國84%報復性關稅，表示遺憾，呼籲中方談判。
+國家主席習近平在北京釣魚台國賓館，會見訪華的西班牙首相桑切斯，期間談及關稅議題。
 
   
 
@@ -778,23 +755,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799932-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799654-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799932-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799932-20250411.htm)
 
 ---
 
-# 海警局：菲律賓船隻經允許下向仁愛礁軍艦補及
+# 美國對中國內地及香港800美元或以下小額包裹關稅增至120%
 
-![海警局：菲律賓船隻經允許下向仁愛礁軍艦補及](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799650_1_20250409200254.jpg&q=90)
+![美國對來自中國內地及香港、價值800美元或以下的小額包裹的關稅，提升至120%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799905_1_20250411123743.jpg&q=70)
   
 
-中國海警局新聞發言人劉德軍表示，經中方允許，菲律賓派1艘船隻對其非法「坐灘」仁愛礁軍艦運送生活物資，中國海警對菲船只詢問確認並全程監管。中方敦促菲方信守承諾，停止炒作，並同中方相向而行，共同管控好海上局勢。
+美國全國廣播公司商業頻道報道，白宮表示對華加徵的總關稅是145%、即時生效的同時，亦公布對來自中國內地及香港、價值800美元或以下的小額包裹的關稅，由日前提及的90%，提升至120%。
 
   
 
@@ -802,22 +779,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799650-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799650-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799650-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm)
 
 ---
 
-# TikTok「不賣就禁」再延75天　商務部反對強取豪奪
+# 王文濤就應對美國對等關稅分與南非貿工部長及沙特商務大臣交流
 
+![王文濤就應對美國對等關稅，分別與南非及沙特官員交流。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799897_1_20250411124037.jpg&q=90)
   
 
-美國總統特朗普日前宣布，延長中國字節跳動出售旗下短片分享平台TikTok在美業務的限期75日。
+在北京，商務部表示部長王文濤昨日與二十國集團輪值主席國、南非貿工部長帕克斯陶，進行視像通話，雙方圍繞應對美國加徵所謂對等關稅、加強中南經貿合作，發揮二十國集團、金磚國家等多邊平台作用等問題，進行交流。
 
   
 
@@ -825,23 +803,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799897-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799636-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799897-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799897-20250411.htm)
 
 ---
 
-# 美國對等關稅生效　對華貨品關稅增至104%
+# 人民日報文章指美國關稅訛詐　切斷全球產供鏈干擾各國經濟發展
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799624_1_20250409181624.jpg&q=90)
+![文章指中美經貿合作促進美國產業升級，為美國消費者帶來好處。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799902_1_20250411123655.jpg&q=70)
   
 
-美國對多個貿易夥伴開徵的對等關稅周三生效，總統特朗普表示，因應中國實施報復性關稅，決定對部分中國進口貨品額外徵收50%的關稅，累計加徵稅率達到104%；特朗普同時簽署行政命令，將中國內地及香港進口小額包裹關稅增至90%，下月2日起生效。
+《人民日報》發表文章，批評美國的「關稅訛詐」，嚴重擾亂全球產業鏈、供應鏈穩定，扭曲全球市場資源配置，損人不利己，重申中美作為全球前兩大經濟體，尤其需要視對方的發展為機遇而非挑戰，把對方當作夥伴，而非對手。
 
   
 
@@ -849,23 +827,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799624-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799624-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799624-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm)
 
 ---
 
-# 國家應急管理部向中國救援人員致以崇高敬意　為近年出動人數最多
+# 習近平將國事訪問越南與馬來西亞及柬埔寨
 
-![國家應急管理部指出，中國香港特區救援隊繼土耳其地震救援後，再次與內地救援隊伍在同一面國旗下開展國際救援行動。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799633_1_20250409181609.jpg&q=85)
+![習近平將先後國事訪問越南、馬來西亞及柬埔寨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799900_1_20250411102900.jpg&q=90)
   
 
-到緬甸參與地震救援行動的中國救援隊、中國國際救援隊，以及中國香港特區救援隊完成任務回國，國家應急管理部在北京首都國際機場停機坪舉行迎接儀式，救援隊隊員接受獻花。
+中共中央總書記、國家主席習近平應越南共產黨中央委員會總書記蘇林、越南社會主義共和國主席梁強邀請，將於本月14日至15日對越南進行國事訪問。
 
   
 
@@ -873,23 +851,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799633-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799900-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799633-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799633-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799900-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799900-20250411.htm)
 
 ---
 
-# 劉兆佳稱白皮書較中性沒有肆意批評美國　冀美方了解互利共贏本質
+# 陳美寶稱五大策略應對關稅戰致物流及航運不穩定不明朗情況
 
-![劉兆佳相信，中美貿易戰仍會持續一段時間，可能出現惡性循環。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799630_1_20250409175613.jpg&q=90)
+![陳美寶強調香港不能漠視今次這一浪有多大、有多高，當前急務是如何應對全球貨量交易減少。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799894_1_20250411110231.jpg&q=90)
   
 
-國新辦發表《關於中美經貿關係若干問題的中方立場》白皮書，重申貿易戰沒有贏家，希望中美雙方通過平等對話磋商解決問題。全國港澳研究會顧問劉兆佳認為，中方希望通過白皮書，用數據及說理方式闡述中國立場，說明中美貿易實際上是相對比較平衡，表明中方無意打貿易戰，美國亦沒有理由對中國展開關稅戰，嚴重損害雙方經濟貿易，以至整體關係。
+運輸及物流局長陳美寶接受《明報》訪問，表示關稅戰對本港物流、航運及航空界帶來持續的不穩定不明朗因素，當局將有五大策略應對，包括修例便利轉口、加強與大灣區港口協作「拉貨」、將探討藉減省報關手續提升轉口效率吸引轉口貨、深化與國際港口及船舶之間交流合作，擴大航運網絡、以及維持樞紐地位需升級轉型，提供多元化服務，令本港的能力和服務均能配合市場轉型。
 
   
 
@@ -897,23 +875,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799630-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799630-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799630-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm)
 
 ---
 
-# 多米尼加夜總會屋頂倒塌　最少98人死亡
+# 丘應樺透露行政長官下月聯同內地企業出訪中東
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799619_1_20250409183356.jpg&q=35)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799891_1_20250411102116.jpg&q=75)
   
 
-多米尼加首都聖多明各一間夜總會屋頂倒塌，最少98人死亡，過百人受傷，死者包括當地一名省長以及美國職棒大聯盟的退役球星。
+立法會財委會特別會議繼續舉行。全國人大常委、民建聯議員李慧琼說，貿易戰有不確定性，關注政府如何深化國際交流，以減少對美國市場的依賴。商務及經濟發展局局長丘應樺表示，一直擴展與其他國家的接觸，並與內地各省市「拼船出海」，透露下月行政長官將與內地企業一同出訪中東，在地緣發展緊張的情況下，謀求發展中東新市場和東盟市場。
 
   
 
@@ -921,23 +899,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799619-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799891-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799619-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799619-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799891-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799891-20250411.htm)
 
 ---
 
-# 中國救援隊包括香港隊員抵達北京　國家應急部在機場迎接
+# 《環看天下》：法國稱或承認巴勒斯坦國　以領袖訪美或空手而回
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799612_1_20250409164353.jpg&q=85)
+![馬克龍日前訪問埃及，重點討論中東局勢，包括了解埃及向加沙提供人道支援的工作。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799889_1_20250411092417.jpg&q=85)
   
 
-到緬甸參與地震救援行動的中國救援隊、中國國際救援隊和中國香港特區救援隊完成任務回國，他們乘坐的4架中國空軍飛機，下午約4時，抵達北京首都國際機場，國家應急部在機場舉行迎接儀式。
+法國總統馬克龍剛結束埃及的訪問，期間重點討論加沙局勢。他在一個訪問中表示，法國可能會在今年6月承認巴勒斯坦國。
 
   
 
@@ -945,23 +923,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799889-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799612-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799889-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799889-20250411.htm)
 
 ---
 
-# 物流業形容美國加徵關稅帶來毀滅性影響　可趁機開發不同地區市場
+# 首辦世界互聯網大會亞太峰會　黃志光稱香港能展示創科實力
 
-![劉浩然表示，業界相信，未來數個月，公司營運上不容樂觀，但不會坐以待斃。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799611_1_20250409163218.jpg&q=40)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799879_2_20250411090859.jpg&q=90)
   
 
-美國對來自中國內地和香港的小額包裹關稅將增至90%，下月2日生效。香港貨運物流業協會主席劉浩然說，今次美國的做法，對所有電商平台出貨，可說是帶來毀滅性影響，涉及所有供應鏈及產品，小至手機殻，大至大型家電，甚至食品及其他民生日用品都會受影響。他說，業界相信，未來數個月，公司營運上不容樂觀，但不會坐以待斃。
+世界互聯網大會亞太峰會下周一起，一連兩日在香港會展舉行，以「數智融合引領未來——攜手構建網絡空間命運共同體」為主題，由香港特區承辦。屆時有主論壇暨數智未來論壇，亦設有以人工智能大模型、數字金融、數字政府與智慧為題的分論壇。
 
   
 
@@ -969,23 +947,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799611-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799611-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799611-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm)
 
 ---
 
-# 烏克蘭稱俘獲2名中國士兵　外交部：正核實情況
+# 巴拿馬要求美方就聯合聲明英文版本補充關鍵主權表述
 
-![烏克蘭俘獲2名中國士兵，中方指正核實情況。（澤連斯基社交網站片段截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799601_1_20250409153859.jpg&q=90)
+![巴拿馬總統穆利諾訪問秘魯時表示，巴拿馬運河過去、現在和未來都永遠屬於巴拿馬。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799875_1_20250411082025.jpg&q=75)
   
 
-烏克蘭總統澤連斯基表示，烏軍在東部頓涅茨克，俘虜2名為俄軍作戰的中國公民。在北京，外交部表示，中方正向烏克蘭核實有關的情況。發言人林劍表示，中國政府始終要求公民遠離武裝衝突區域，避免以任何形式，捲入武裝衝突，尤其應應避免參加任何一方的軍事行動。
+巴拿馬外交部致函美國駐巴拿馬大使館，對近日兩國聯合聲明的美方英文版本中，遺漏關鍵主權表述表達關切，要求美方盡快補充。
 
   
 
@@ -993,23 +971,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799875-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799601-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799875-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799875-20250411.htm)
 
 ---
 
-# 美俄代表團將在伊斯坦布爾再會談
+# 紐約有直升機墜落哈德遜河　機上6人全部遇難
 
-![俄方代表團2月底曾在美國駐伊斯坦布爾領事官邸與美方進行會談。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799569_1_20250409124812.jpg&q=55)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799862_1_20250411063241.jpg&q=75)
   
 
-美俄代表團將在土耳其伊斯坦布爾就雙邊關係舉行第二輪會談。
+美國紐約有直升機墜落哈德遜河，機上6人全部遇難。
 
   
 
@@ -1017,23 +995,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799569-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799862-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799569-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799569-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799862-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799862-20250411.htm)
 
 ---
 
-# 外交部駐港公署斥美國個別政客詆毀香港經貿辦　干擾港美正常交流
+# 民主黨促查特朗普及核心是否從股市波動非法獲利　白宮為總統辯護
 
-![發言人指美國個別政客公然詆毁抹黑香港經貿辦，不僅干擾破壞港美正常交流合作，更暴露出其看不得香港安、見不得香港好的險惡用心。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799587_1_20250409154956.jpg&q=80)
+![特朗普公布的對等關稅政策，導致美股連日受挫。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799856_1_20250411055108.jpg&q=90)
   
 
-針對美國個别政客再次推動有關法案，詆毁香港自治和法治，叫囂取消香港駐美經貿辦事處有關待遇甚至關閉辦事處，外交部駐港公署發言人表示強烈譴責和堅決反對。
+美國有民主黨國會議員，要求調查總統特朗普或其核心圈子，是否透過內幕交易和操控市場從股市波動中非法獲利。
 
   
 
@@ -1041,23 +1019,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799856-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799587-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799856-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799856-20250411.htm)
 
 ---
 
-# 特朗普：將很快對進口藥物徵收關稅
+# 多米尼加首都夜總會屋頂倒塌增至221死
 
-![特朗普說，徵稅後，製藥公司將在美國設廠，因為美國是最大的市場。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799579_1_20250409130243.jpg&q=90)
+![搜救工作結束，死亡人數增至221人。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799853_1_20250411052107.jpg&q=20)
   
 
-美國總統特朗普稱，將很快對進口藥物徵收關稅。他認為，徵稅後，製藥公司將在美國設廠，因為美國是最大的市場。
+多米尼加首都聖多明各夜總會屋頂倒塌事故的搜救工作結束，死亡人數增至221人。
 
   
 
@@ -1065,23 +1043,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799579-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799853-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799579-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799579-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799853-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799853-20250411.htm)
 
 ---
 
-# 緬甸大地震增至逾3600人死亡　中國公民6死13傷
+# 紐約有直升機墜落哈德遜河　美媒稱至少一死
 
-![緬甸大地震增至超過3600人死亡，超過5000人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799566_1_20250409115358.jpg&q=55)
+![紐約有直升機墜落哈德遜河，救援人員到場搜救。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799852_1_20250411043624.jpg&q=90)
   
 
-緬甸大地震增至超過3600人死亡，超過5000人受傷，仍有100多人失蹤。中國駐緬甸大使館確認，地震至今造成中國公民6死13傷。
+美國紐約有直升機墜落哈德遜河，哥倫比亞廣播公司報道，至少一人死亡。
 
   
 
@@ -1089,23 +1067,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799566-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799852-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799566-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799566-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799852-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799852-20250411.htm)
 
 ---
 
-# 白宮︰中國內地和香港小額包裹關稅將增至90％　下月2日生效
+# 耿爽譴責以色列空襲敘利亞　促立即停止攻擊並盡快撤出敘國領土
 
-![美國傳媒報道，總統特朗普已經簽署行政命令，將從中國出口到美國、價值低於800美元包裹的關稅稅率提高三倍。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799555_1_20250409105853.jpg&q=90)
+![耿爽敦促以色列立即停止攻擊行為，盡快撤出敘利亞領土。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799851_1_20250411041609.jpg&q=85)
   
 
-美國傳媒引述白宮表示，來自中國內地和香港的小額包裹的關稅，將由30%增至90%，下月2日生效。
+中國常駐聯合國代表團臨時代辦耿爽譴責以色列上星期空襲敘利亞，敦促以色列立即停止攻擊行為，盡快撤出敘利亞領土。
 
   
 
@@ -1113,23 +1091,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799555-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799851-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799555-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799555-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799851-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799851-20250411.htm)
 
 ---
 
-# 葉劉淑儀稱如貿易戰持續或達兩年　全球或陷入衰退實體經濟萎縮
+# 兩架客機在華盛頓列根國家機場跑道碰撞無人傷
 
-![葉劉淑儀建議政府可以進一步考慮與最受打擊的行業，商討可以提供甚麼具體措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799554_1_20250409110731.jpg&q=90)
+![兩架美國航空客機在華盛頓列根國家機場跑道碰撞，無人員傷亡報告。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799849_1_20250411031712.jpg&q=85)
   
 
-美國向多個貿易夥伴加徵關稅，又會對中國部分貨品徵收104%關稅。行政會議召集人，新民黨主席葉劉淑儀在一個電台節目說，很多地方的貿易在關稅戰下已暫停，大家都觀望未來發展。她又說，行政長官昨日公布會在七方面加大力量支援企業，都是政策方向，建議政府可以進一步考慮與最受打擊的行業，商討可以提供甚麼具體措施，例如出口信貸保險實際可以如何作更好安排。另外，美元轉弱，港元亦轉弱，估計有利吸引遊客。
+兩架美國航空客機在華盛頓列根國家機場跑道碰撞，機翼受損，無人員傷亡報告。
 
   
 
@@ -1137,23 +1115,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799849-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799554-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799849-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799849-20250411.htm)
 
 ---
 
-# 多米尼加夜總會屋頂坍塌事故增至最少79死
+# 中方稱反制美國關稅是為了捍衛國際貿易規則和國際公平正義
 
-![多米尼加首都聖多明各一間夜總會屋頂坍塌事故。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799546_1_20250409102359.jpg&q=50)
+![中方代表說，歷史已反覆證明，保護主義沒有出路，開放合作才是正道。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799848_1_20250411030928.jpg&q=85)
   
 
-多米尼加首都聖多明各一間夜總會屋頂坍塌事故，增至最少79人死亡，死者包括多米尼加蒙特克里斯蒂省省長及美國職棒大聯盟退役球星，過百人送院。事故原因仍在調查。
+世界貿易組織舉行成立三十周年紀念活動。
 
   
 
@@ -1161,23 +1139,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799546-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799848-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799546-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799546-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799848-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799848-20250411.htm)
 
 ---
 
-# 李在明辭去共同民主黨黨魁職務　料準備參選總統
+# 歐盟與阿聯酋同意啟動自貿協定談判
 
-![韓聯社報道，預料李在明最快會在明日宣布參選總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799542_1_20250409100124.jpg&q=90)
+![歐盟委員會主席馮德萊恩與阿聯酋總統穆罕默德舉行電話會談。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799847_1_20250411023230.jpg&q=90)
   
 
-南韓最大在野黨共同民主黨黨魁李在明宣布辭去黨魁職務，被視作為全力參選總統做準備。韓聯社預料李在明最快會在明日宣布參選。
+歐盟與阿聯酋同意啟動自貿協定談判。
 
   
 
@@ -1185,23 +1163,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799542-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799847-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799542-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799542-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799847-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799847-20250411.htm)
 
 ---
 
-# 林宣武指大幅增關稅構成很大打擊　中小企面對很大壓力
+# 特朗普：非常接近達成關稅談判首份協議　相信能與習近平融洽相處
 
-![林宣武指中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799543_1_20250409102325.jpg&q=90)
+![被問到美中關係如何發展，特朗普說拭目以待。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799846_1_20250411023128.jpg&q=85)
   
 
-香港付貨人委員會主席林宣武說面對關稅戰，特區政府已盡力協助企業，但中小企即時面對很多問題，可能會要求出口商一起分擔新增稅款，或將新訂單暫時叫停生產，但這個做法不知要「拖幾耐」，面對非常大的壓力。
+美國總統特朗普表示，非常接近達成關稅談判的首份協議，強調希望達成對美國合適的協議。
 
   
 
@@ -1209,23 +1187,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799543-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799846-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799543-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799543-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799846-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799846-20250411.htm)
 
 ---
 
-# 林健鋒稱港商面對美國徵稅感憤怒和無奈　部分企業到危急存亡之秋
+# 敘利亞與南韓建立外交關係　韓方支持敘利亞重建進程
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799540_1_20250409101756.jpg&q=90)
+![敘利亞與南韓建立外交關係　韓方支持敘利亞重建進程](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799845_1_20250411015648.jpg&q=90)
   
 
-美國白宮證實會對中國部分貨品徵收104%關稅，行會成員、立法會商界議員林健鋒形容美國現時的做法是「大石砸死蟹」，港商非常憤怒，但亦非常無奈。面對一個如此高的稅率，即使供應鏈重組，成本都會劇增。現時不少企業面對貨品出不到，即使製造完成但都收不到錢，大大影響現金流，與美國做生意的商家是真正步入寒冬。
+敘利亞宣布與南韓建立外交關係。
 
   
 
@@ -1233,23 +1211,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799845-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799540-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799845-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799845-20250411.htm)
 
 ---
 
-# 中國救援隊伍完成緬甸地震救援任務　啟程回國
+# 白宮澄清對華加徵關稅總額為145％　特朗普承認過渡期或遇困難
 
-![緬甸曼德勒中國救援隊伍營地，緬甸領導人敏昂萊（前右二）日前慰問中國救援隊伍。（新華社資料圖片）。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799537_1_20250409094300.jpg&q=60)
+![特朗普在白宮主持內閣會議。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799844_1_20250411013158.jpg&q=90)
   
 
-到緬甸開展地震救援的中國救援隊、中國國際救援隊和中國香港特區救援隊完成國際救援任務，乘坐4架中國空軍飛機從內比都啟程回國。
+美國總統特朗普星期三暫緩向多個貿易夥伴徵收較高稅率的對等關稅90日，但進一步上調對中國的關稅至125%。白宮官員星期四澄清，特朗普所指的125%是對等關稅，連同之前因芬太尼問題加徵的兩成關稅，對中國加徵的總關稅是145%。
 
   
 
@@ -1257,23 +1235,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799537-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799844-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799537-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799537-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799844-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799844-20250411.htm)
 
 ---
 
-# 中國駐巴拿馬使館︰中國從未干涉運河事務　美方應停止歪曲污蔑
+# 美俄互換被扣押人員　華府官員稱普京欲釋出善意
 
-![中國駐巴拿馬使館發言人說，中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799532_1_20250409091302.jpg&q=45)
+![擁有美俄雙重國籍的女子卡列林娜獲俄方釋放。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799842_1_20250411002744.jpg&q=85)
   
 
-中國駐巴拿馬使館對美國國防部長赫格塞思訪問巴拿馬期間，就中國和中巴關係的言論發表聲明，指出中國從未參與巴拿馬運河管理和經營，也從未干涉運河事務，敦促美方應停止對中國歪曲污蔑。
+美國和俄羅斯在阿聯酋斡旋下，互換一名被扣押人員。
 
   
 
@@ -1281,23 +1259,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799532-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799842-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799532-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799532-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799842-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799842-20250411.htm)
 
 ---
 
-# 《環看天下》：平壤馬拉松相隔六年復辦　北韓或擴大向外國人開放
+# 歐盟暫緩實施反制美國關稅的措施90日
 
-![北韓相隔6年復辦平壤國際馬拉松賽，並容許外國人參與。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799533_1_20250409091038.jpg&q=85)
+![馮德萊恩警告，若果談判結果不令人滿意，將再啟動反制措施。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799840_1_20250410233651.jpg&q=90)
   
 
-北韓日前舉辦平壤國際馬拉松賽，除了北韓跑手外，據報有大約200名外國跑手參加。北韓傳媒報道，職業全馬和半馬賽事男女子組，都由北韓跑手贏得金牌。有多名香港跑手在業餘組賽事揚威。
+歐盟宣布，暫緩實施反制美國關稅的措施90日。
 
   
 
@@ -1305,23 +1283,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799533-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799840-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799533-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799533-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799840-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799840-20250411.htm)
 
 ---
 
-# 金與正稱北韓無核化是妄想　擁核國地位不因任何人否認而動搖
+# 美俄在土耳其會談　美方關注俄方禁止僱用當地僱員政策
 
-![金與正強烈譴責美日韓外長日前重申致力在北韓徹底無核化，是最嚴重的敵對行為。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799528_1_20250409084451.jpg&q=90)
+![美國與俄羅斯的代表團在土耳其伊斯坦布爾，就雙方大使館恢復正常運作舉行第二輪閉門會談。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799841_1_20250411001159.jpg&q=80)
   
 
-北韓《朝中社》報道，勞動黨中央委員會副部長金與正強調北韓無核化是不可實現的妄想，強烈譴責美日韓外長日前重申致力在北韓徹底無核化，是最嚴重的敵對行為。
+美國與俄羅斯的代表團在土耳其伊斯坦布爾，就雙方大使館恢復正常運作舉行第二輪閉門會談，歷時約5個半小時。
 
   
 
@@ -1329,23 +1307,24 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799528-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799841-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799528-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799528-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799841-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799841-20250411.htm)
 
 ---
 
-# 多米尼加夜總會屋頂坍塌事故增至最少66死　仍有人被困待救
+# 俄羅斯與美國在阿聯酋斡旋下交換被關押人員
 
-![約400名救援人員持續在瓦礫中搜尋生還者，戴著安全帽的工人在場挖掘。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799519_1_20250409073732.jpg&q=85)
+![俄羅斯公民彼得羅夫在阿布扎比機場被送還俄方。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799838_1_20250410225235.jpg&q=90)
+![擁有俄美雙重國籍的卡列林娜去年在俄羅斯一個法院被判叛國罪成。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799838_2_20250410225235.jpg&q=90)
   
 
-多米尼加首都聖多明各一間夜總會屋頂坍塌的事故，當局說增至最少66人死亡，包括一名政界人士及一名棒球明星，另有過百人受傷。
+俄羅斯與美國在阿聯酋交換被關押人員。
 
   
 
@@ -1353,23 +1332,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799519-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799838-20250410.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799519-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799519-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799838-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799838-20250410.htm)
 
 ---
 
-# 特朗普稱關稅措施對其美國願景至關重要　推出後大量錢湧入美國
+# 李強向列支敦士登新任首相哈斯致賀電
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799511_1_20250409073330.jpg&q=85)
+![李強表示，中方願同列方共同努力，推動中列關係不斷取得新進展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799835_1_20250410214525.jpg&q=90)
   
 
-美國總統特朗普形容，自己近日公布的關稅措施具「爆炸性」，但他堅信有關措施對他的美國願景是至關重要。
+國務院總理李強致電哈斯，祝賀她就任列支敦士登首相。
 
   
 
@@ -1377,23 +1356,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799835-20250410.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799511-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799835-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799835-20250410.htm)
 
 ---
 
-# 馬克龍促特朗普改變主意　加拿大會對部分美國進口車徵稅
+# 東電啟動福島第一核電站第12次核污水排海
 
-![馬克龍說歐盟正帶領各成員國採取應對美方關稅措施的行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799510_1_20250409035637.jpg&q=90)
+![東京電力公司啟動福島第一核電站第12次核污水排海，將排放約7800噸。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799830_1_20250410211614.jpg&q=30)
   
 
-法國總統馬克龍呼籲美國總統特朗普在對全球採取關稅措施方面，改變主意。
+日本東京電力公司啟動福島第一核電站第12次核污水排海，將排放約7800噸，是本財政年度的第一次。
 
   
 
@@ -1401,23 +1380,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799830-20250410.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799510-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799830-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799830-20250410.htm)
 
 ---
 
-# 古特雷斯重申貿易戰無贏家　特別擔心最脆弱發展中國家
+# 尹錫悅明午搬離韓總統官邸　近日接連晤黨內潛在大選候選人惹關注
 
-![古特雷斯說希望不會出現經濟衰退。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799509_1_20250409033825.jpg&q=90)
+![尹錫悅將於明日下午離開首爾龍山區的總統官邸。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799829_1_20250410211142.jpg&q=90)
   
 
-聯合國秘書長古特雷斯重申聯合國的立場，指貿易戰不會有贏家。
+南韓前總統尹錫悅將於明日下午5時離開首爾龍山區的總統官邸，搬回他在首爾市瑞草區的私人住宅。
 
   
 
@@ -1425,13 +1404,37 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799829-20250410.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm](https://news.rthk.hk/rthk/ch/component/k2/1799509-20250409.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799829-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799829-20250410.htm)
+
+---
+
+# 王毅：要敢於善於鬥爭　堅決維護國家主權、安全和發展利益
+
+![王毅說，要敢於善於鬥爭，堅決維護國家主權、安全和發展利益。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799825_1_20250410203611.jpg&q=90)
+  
+
+中共中央政治局委員、外交部長王毅在北京出席外交部駐外使節工作會議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799825-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799825-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799825-20250410.htm)
 
 ---

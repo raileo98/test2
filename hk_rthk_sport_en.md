@@ -1,3 +1,171 @@
+# Justin Rose retains lead at the Masters after Round 2
+
+![Rose plays out of a bunker on the 17th hole. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800039_1_20250412083305.jpg&q=90)
+  
+
+Justin Rose remained atop a star-studded leaderboard after the second round of the Masters on Friday , with defending champion Scottie Scheffler, Rory McIlroy and Bryson DeChambeau all within three shots of the lead.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800039-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800039-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800039-20250412.htm)
+
+---
+
+# Salah driven to keep delivering after signing new deal
+
+![Mohamed Salah says the prospect of winning before a full Enfield is what drives him crazy every day. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799966_1_20250411175726.jpg&q=80)
+  
+
+Mohamed Salah said he is driven every day to deliver Premier League glory to Liverpool this season after signing a new two-year contract on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799966-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799966-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799966-20250411.htm)
+
+---
+
+# Lazio freeze as Bodo/Glimt take 2-0 first leg win
+
+![Ulrik Saltnes celebrates after breaking the deadlock against Lazio. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799883_2_20250411110636.jpg&q=80)
+  
+
+Two goals from Ulrik Saltnes spurred Bodo/Glimt to a 2-0 home victory over Lazio in the first leg of their Europa League quarter-final, with the one-sided encounter played out in freezing conditions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799883-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799883-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799883-20250411.htm)
+
+---
+
+# 10-man Rangers hold Bilbao to Europa League draw
+
+![Rangers' Dujon Sterling handles the ball before Athletic Bilbao are awarded a penalty kick following a VAR review. Photo: Action Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799882_1_20250411090153.jpg&q=85)
+  
+
+Rangers held Athletic Bilbao to a nail-biting goalless draw at home in the first leg of their Europa League quarter-final, despite being reduced to 10 men early on.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799882-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799882-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799882-20250411.htm)
+
+---
+
+# Simmi Chan wins U23 World Squash silver
+
+![Simmi Chan is Hong Kong’s first female athlete to secure a silver medal at the Under-23 World Squash Championships. Photo: Squash Association of Hong Kong, China's Instagram](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799876_3_20250411091433.jpg&q=90)
+  
+
+Hong Kong, China squash player Simmi Chan secured a historic silver medal at the inaugural Under-23 World Squash Championships in Pakistan.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799876-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799876-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799876-20250411.htm)
+
+---
+
+# BJK tennis finals in Shenzhen to be in September
+
+![Elena Rybakina, right, and Yulia Putintseva connect with fans following their win over Australia at the Patrick Rafter Tennis Centre in Brisbane.  Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799812_1_20250410182637.jpg&q=60)
+  
+
+The Billie Jean King Cup finals in Shenzhen have been brought forward from November to September, organisers announced on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799812-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799812-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799812-20250410.htm)
+
+---
+
+# Manchester United promise to put on a show in HK
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799801_1_20250410172604.jpg&q=75)
+  
+
+Manchester United on Thursday assured SAR fans that a “full team” including captain Bruno Fernandes will be featured in a friendly against Hong Kong, China next month.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799801-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799801-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799801-20250410.htm)
+
+---
+
 # Alejandro Tabilo stuns Djokovic in Monte Carlo
 
 ![Novak Djokovic crashes out of Monte-Carlo Masters, losing to Chilean Alejandro Tabilo in the second round. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799731_1_20250410114405.jpg&q=85)
@@ -1272,175 +1440,5 @@ Manchester City were dealt a major blow with leading scorer Erling Haaland set f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798367-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798367-20250401.htm)
-
----
-
-# Cycling to adopt 23-team format for Grand Tours
-
-![The initiative for the Grand Tours has been rubber-stamped by the International Cycling Union, the sport's governing body. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798362_1_20250401071622.jpg&q=50)
-  
-
-The Giro d'Italia, Tour de France and Vuelta a Espana will all involve 23 teams from this year, with the initiative rubber-stamped by the International Cycling Union.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm)
-
----
-
-# McIlroy smashes into PGA Tour's US$100 million club
-
-![McIlroy in action in the first round of the Houston Open golf tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798360_1_20250401063902.jpg&q=90)
-  
-
-Rory McIlroy has joined Tiger Woods in surpassing US$100 million in career earnings on the PGA Tour, becoming just the second player to do so.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798360-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798360-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798360-20250401.htm)
-
----
-
-# HK set to see Reds, Arsenal, Spurs and Milan in action
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798296_1_20250331174722.jpg&q=85)
-  
-
-Four of the world’s top football teams will be coming to Hong Kong this summer for pre-season friendlies as they gear up for the 2025-26 season, organisers said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm)
-
----
-
-# Teenage ace Mensik beats childhood hero Djokovic
-
-![Jakub Mensik slammed 14 aces past Novak Djokovic, who could only manage half that number. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798220_1_20250331110937.jpg&q=90)
-![Novak Djokovic had no answer for the creativity and speed of the Czech ace. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798220_2_20250331110937.jpg&q=90)
-  
-
-Novak Djokovic faced a series of obstacles in the Miami Open final: a delay of more than five-and-a-half hours before the match, an eye infection and a slippery court due to high levels of humidity following the rain.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm)
-
----
-
-# Seven kicked out of NBA game after court 'brawl'
-
-![Pistons forward Ronald Holland drives towards the basket as Timberwolves center Naz Reid defends during the second quarter at Target Center in Minnesota. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798214_1_20250331103953.jpg&q=85)
-  
-
-Seven players and members of coaching staff were ejected after a wild brawl broke out during the Minnesota Timberwolves' 123-104 victory over the Detroit Pistons in the NBA.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798214-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798214-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798214-20250331.htm)
-
----
-
-# Rashford lifts Villa into FA Cup semis; Man City roll
-
-![Marcus Rashford bagged a brace for Aston Villa in the win. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798189_1_20250331085621.jpg&q=75)
-![Manchester City's Erling Haaland was substituted with an ankle injury in the 60th minute against Bournemouth. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798189_2_20250331085621.jpg&q=85)
-  
-
-Marcus Rashford's first goals for Aston Villa inspired a 3-0 win against Preston that sent his side into the FA Cup semi-finals for the first time in 10 years.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm)
-
----
-
-# Mitchell magic as Cavs down Clippers to bag 60th win
-
-![Donovan Mitchell scored 24 points in the Cavs' win over the Los Angeles Clippers. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798179_1_20250331075136.jpg&q=85)
-  
-
-Donovan Mitchell led from the front as the Cleveland Cavaliers bagged their 60th win of the NBA season with a 127-122 victory over the in-form Los Angeles Clippers.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798179-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798179-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798179-20250331.htm)
 
 ---

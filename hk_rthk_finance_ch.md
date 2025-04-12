@@ -1,32 +1,9 @@
-# 有市民稱不再郵寄貨物往美國　改為將貨品帶予當地家人
+# 聯儲局：市場運作良好　絕對準備好必要時穩定市場
 
-![在中環一間郵局，有市民表示，如果日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799806_1_20250410173610.jpg&q=70)
+![柯林斯表示現時市場繼續良好運作，若出現問題，聯儲局有工具應對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800037_1_20250412080000.jpg&q=60)
   
 
-美國早前宣布，由5月2日起取消香港寄往美國物品的小額免稅安排。在中環一間郵局，有市民表示，家人都住在美國，平時兩至三個月就需要寄一次日常用品到當地，每次約花費數百至1千元，日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國，改為由家人將貨品帶到美國，估計補給次數將會由平均兩個月一次，改為5至8個月一次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm)
-
----
-
-# 北京有民眾不擔心必需品供應　亦有藥房不打算增加美國藥物存貨量
-
-  
-
-中國由中午起，對原產於美國的所有進口商品加徵關稅至84%。在北京，有長者說平日習慣服用進口藥，控制心臟病和高血壓，認為藥效好。他認為關稅的實際影響目前仍未顯現，但只要價格不是高得離譜，例如增加一倍以內都能接受，不打算提早備存太多存貨。但亦有民眾說擔心物價上漲。
+波士頓聯儲銀行總裁柯林斯表示，聯儲局絕對準備好在必要時應對金融市場運作問題，穩定市場。
 
   
 
@@ -34,22 +11,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800037-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800037-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800037-20250412.htm)
 
 ---
 
-# 貿發局籲本港業界勿自亂陣腳做好產品及服務　升級轉型提高競爭力
+# 聯儲局官員料關稅導致今年通脹率升到3.5%至4%
 
+![威廉姆斯表示，特朗普政府的貿易政策將導致今年通脹加速，料今年通脹率升至3.5%至4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800036_1_20250412074826.jpg&q=30)
   
 
-貿發局副總裁張淑芬表示，美國關稅不只對香港帶來影響，環球出口都直接受影響，業界經營會較辛苦，但呼籲切勿自亂陣腳，需要做好自己產品和服務，積極升級轉型，提高競爭力。
+紐約聯儲銀行總裁威廉姆斯表示，特朗普政府的貿易政策將導致今年通脹加速，聯儲局要防止長期價格壓力預期脫離錨定的重要作用。
 
   
 
@@ -57,23 +35,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800036-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800036-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800036-20250412.htm)
 
 ---
 
-# 昂坪360首季平均每日訪客按年升12.3%創疫後新高
+# 港股ADR較本港昨日收市價普遍上升
 
-![昂坪360指，首季的長短途國際市場旅客於整體旅客人數佔51.3%。（昂坪360提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799799_1_20250410172640.jpg&q=50)
+![港股ADR普遍上升，港交所升近2%，騰訊靠穩。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800035_1_20250412073020.jpg&q=85)
   
 
-昂坪360表示，今年首季來自長短途國際市場的旅客，平均每日到訪人數較去年同期上升12.3%，數字創疫後新高。佔比方面，首季的長短途國際市場旅客於整體旅客人數當中，佔超過一半，達51.3%。其次是內地，佔約三成，而本地居民則佔約兩成。
+港股美國預託證券(ADR)普遍上升。
 
   
 
@@ -81,23 +59,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800035-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800035-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800035-20250412.htm)
 
 ---
 
-# 廖李可期稱密切評估加徵關稅情況　多方面支援本地企業
+# 美國10年期國債息率一度逼近4.6厘
 
-![廖李可期說，新聞從業員可擔當重要角色，提供最新及最準確的資訊。（鍾慧儀攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799795_1_20250410171153.jpg&q=80)
+![分析擔心，特朗普的政策，將削弱美元作為儲備貨幣、美債避險作用。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800034_1_20250412072454.jpg&q=85)
   
 
-美國上調對中國加徵的關稅至125%，新聞處處長廖李可期表示，對此霸凌行徑，特區政府除了堅決反對之外，亦會密切評估有關情況和發展，並從多方面為本地企業提供支援。
+美國國債息率上升，10年期國債收益率及30年期國債收益率，分別創2001年及1987年以來最大單星期升幅。
 
   
 
@@ -105,22 +83,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm)
 
 ---
 
-# 甯漢豪稱設北都管理局非最好方法　探討成立管理公司年內有建議
+# 金價升約2%　資金流入黃金避險
 
+![現貨金較早報每盎司3235.89美元，上升近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800031_1_20250412065952.jpg&q=75)
   
 
-政府正全力推進北部都會區建設。在立法會財委會特別會議，民建聯議員劉國勳表示，北都工作進入新一頁，認為北部都會區統籌辦事處的角色可以加強，建議政府考慮成立「北都管理局」。
+金價突破每盎司3200美元，本周升逾6%，美元下跌，加上貿易戰陰霾引發對經濟衰退的擔憂，資金流入黃金避險。
 
   
 
@@ -128,23 +107,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm)
 
 ---
 
-# 當局推出三項措施支援香港出口貿易　協助企業加快開拓新興市場
+# 美元兌瑞郎跌至10年新低　美匯失守100
 
-![丘應樺表示，美國朝令夕改，連日調高關稅，呼籲業界團結一致，迎難而上。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799789_1_20250410165429.jpg&q=90)
+![衡量美元兌一籃子貨幣的美元指數失守100大關，較早時報99.786，跌0.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800028_1_20250412060238.jpg&q=55)
   
 
-商務及經濟發展局表示，面對美國濫施關稅，包括進一步調高所謂對等關稅，香港出口信用保險局會即時推出3項支援措施，支援香港出口貿易，協助企業加快開拓新興市場。
+美元兌主要貨幣下跌，衡量美元兌一籃子貨幣的美元指數失守100大關，較早時報99.786，跌0.73%。
 
   
 
@@ -152,23 +131,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800028-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800028-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800028-20250412.htm)
 
 ---
 
-# 舜宇光學上月手機鏡頭出貨量按年跌逾16%
+# 油價反彈逾2%收市
 
-![舜宇光學3月手機鏡頭出貨量按年跌16.3%，按月跌2.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799787_1_20250410163529.jpg&q=85)
+![油價反彈逾2%。美國表示可以阻止伊朗石油出口，市場預計或令供應減少。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800027_1_20250412055427.jpg&q=80)
   
 
-舜宇光學3月手機鏡頭出貨量按年跌16.3%，按月跌2.9%；手機攝像模組出貨量按年跌10.9%，按月升5.5%，主要是專注於中高端產品，以及產品結構改善。
+原油期貨價格反彈逾2%。美國能源部長表示，作為總統特朗普就德黑蘭核項目施壓計劃的一部分，可以阻止伊朗石油出口，市場預計或令供應減少。
 
   
 
@@ -176,23 +155,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799787-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800027-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799787-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799787-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800027-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800027-20250412.htm)
 
 ---
 
-# 盧金榮支持國家堅定立場維護自身合法權益
+# 道指升619點　全周升近5%
 
-![盧金榮表示，美國總統特朗普再加關稅已經沒有意義。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799786_1_20250410172051.jpg&q=75)
+![美股3大指數升逾1%至逾2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800026_1_20250412054911.jpg&q=90)
   
 
-廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
+美股先低後高，3大指數升逾1%至逾2%，波士頓聯儲銀行總裁柯林斯表示，聯儲局絕對準備好在必要時，部署工具來應對金融市場的運作問題。他的言論紓緩投資者緊張情緒。
 
   
 
@@ -200,23 +179,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800026-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800026-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800026-20250412.htm)
 
 ---
 
-# 港股高收417點　手機設備及關稅敏感股造好
+# 英股升逾0.6%　法德股市低收0.3%至近1%
 
-![恒生指數收市報20681點，升417點，升幅2.06%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799781_1_20250410162123.jpg&q=45)
+![法國CAC指數收報7104點，跌21點，跌幅0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800022_1_20250412053347.jpg&q=75)
   
 
-港股連升3個交易日。美國對中國加徵的關稅稅率提升至125%，但暫緩對其他國家徵收較高稅率的對等關稅90日，港股初段曾跟隨外圍急升，最多曾升近950點，高位見21211點，其後升幅收窄。恒生指數收市報20681點，升417點，升幅2.06%，主板成交額逾3955億元。
+歐洲股市3大指數個別發展。
 
   
 
@@ -224,23 +203,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799781-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800022-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799781-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799781-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800022-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800022-20250412.htm)
 
 ---
 
-# 李家超籲僑界於國際輿論場全力發聲一同推廣自由貿易
+# 寧德時代：聯交所上市委員會已審閱公司的H股上市申請
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799780_1_20250410170122.jpg&q=75)
+![寧德時代：聯交所上市委員會已審閱公司的上市申請，但信函不構成正式的上市批准。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800007_1_20250411225447.jpg&q=90)
   
 
-行政長官李家超表示，最近美國單方面宣布所謂對等關稅，破壞全球共同建立的自由貿易體系規則，大搞單邊主義，滿口歪理霸淩，違背經濟規律，嚴重踐踏及侮辱多邊貿易體系。
+寧德時代表示，正在申請發行H股，並進行在香港主板掛牌上市的相關工作，聯交所上市委員會已於昨日舉行上市聆訊。
 
   
 
@@ -248,23 +227,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800007-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800007-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800007-20250411.htm)
 
 ---
 
-# 甯漢豪稱今年內將完成沙嶺數據園用地改劃程序
+# 美國密歇根大學4月消費者信心指數初值跌至50.8遜預期
 
-![甯漢豪說，下半年起會就三個「片區開發」試點陸續招標。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799774_1_20250410160444.jpg&q=80)
+![美國密歇根大學消費者調查顯示，美國4月消費者信心指數初值跌至50.8，低過預期的54.5。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800006_1_20250411221641.jpg&q=50)
   
 
-發展局局長甯漢豪說，政府全力推進北部都會區建設，下半年起會就三個「片區開發」試點陸續招標，今年稍後亦會邀請土地業權人就新田科技城提出原址換地申請，兩幅分別位於元朗及洪水橋的多層現代產業大樓用地，正以「雙信封制」進行招標，7月底截止。
+美國密歇根大學消費者調查顯示，美國4月消費者信心指數初值跌至50.8，低過預期的54.5。
 
   
 
@@ -272,23 +251,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800006-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800006-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800006-20250411.htm)
 
 ---
 
-# 歐洲股市上升　德股升逾8%
+# 卡什卡利：聯儲局應該在市場真正受到衝擊時才謹慎地干預
 
-![法蘭克福DAX指數較早時報 21249點，升1579點，升幅8.03%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799771_1_20250410152732.jpg&q=90)
+![卡什卡利表示，聯儲局應該在市場真正受到衝擊時，才以非常謹慎的態度干預。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800002_1_20250411220055.jpg&q=60)
   
 
-歐洲主要股市早段顯著上揚。
+美國明尼亞波利斯聯邦儲備銀行總裁卡什卡利表示，聯儲局應該在市場真正受到衝擊時，才以非常謹慎的態度干預，強調聯儲局和財政部的介入，應在真正需要的時候才出手。
 
   
 
@@ -296,23 +275,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799771-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799771-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799771-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm)
 
 ---
 
-# 滬深股市高收逾1%至2%
+# 美股初段向下
 
-![上證指數一度升1.7%，收報3223點，升36點，升幅1.16%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799765_1_20250410150827.jpg&q=85)
+![道瓊斯指數較早時報39280點，跌312點，跌幅0.79%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799997_1_20250411213735.jpg&q=70)
   
 
-滬深股市高收逾1%至逾2%。貴金屬、消費電子、跨境電商、機械人、物流股等上升。
+美股初段向下。投資者正在消化中國對原產於美國進口商品關稅稅率提高至125%的影響。
 
   
 
@@ -320,23 +299,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799765-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799765-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799765-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm)
 
 ---
 
-# 外交部駐港公署指美方揮舞關稅大棒迫就範　勿指望等到中國電話
+# 紫金礦業上季盈利按年升逾62%
 
-![公署指，美方舉動不會讓美國再次偉大，只會讓美國變成21世紀的野蠻人。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799766_1_20250410155459.jpg&q=90)
+![紫金礦業今年首季盈利101.7億元人民幣，按年升逾62%，按季升32%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799996_1_20250411205208.jpg&q=85)
   
 
-外交部駐港公署就美國對華加徵嚴重不合理關稅，致信《南華早報》表示，美方不顧國際社會普遍反對，以荒唐借口對所有交易夥伴徵收所謂「對等關稅」，是典型的單邊主義、保護主義、經濟霸淩，嚴重侵犯各國正當權益，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序。公署表示，美方此舉不會讓美國再次偉大，只會讓美國變成21世紀的野蠻人。
+紫金礦業公布，今年首季盈利101.7億元人民幣，按年升逾62%，按季升32%。扣除非經常性損益，盈利98.8億元，按年升近59%。
 
   
 
@@ -344,23 +323,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799766-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799766-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799766-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm)
 
 ---
 
-# 外電：寧德時代到港上市計劃將獲聯交所批准　料今季內上市
+# 美國3月最終需求PPI及核心指數按年升幅都低過預期
 
-![外電：寧德時代到香港上市集資的計劃，將於稍後獲得聯交所批准，預計將於第2季上市，集資最少50億美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799763_1_20250410145813.jpg&q=70)
+![美國3月最終需求生產物價指數(PPI)按年上升2.7%，低過預期的3.3%；按月則意外下跌0.4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799994_1_20250411204408.jpg&q=35)
   
 
-外電引述消息人士報道，內地電池製造商寧德時代到香港上市集資的計劃，將於稍後獲得聯交所批准。
+美國3月反映上游成本的最終需求生產物價指數(PPI)按年上升2.7%，低過預期的3.3%；按月則意外下跌0.4%，市場原先預期會升0.2%。
 
   
 
@@ -368,23 +347,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799763-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799994-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799763-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799763-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799994-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799994-20250411.htm)
 
 ---
 
-# 陳家齊稱與科技平台合作有助港投公司生態圈內公司「出海」
+# 多家內地企業助外貿企業出口轉內銷　京東擬採購至少2千億元產品
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799762_1_20250410144752.jpg&q=90)
+![京東表示，未來一年內將大規模採購不少於2000億元人民幣的出口轉內銷商品，幫助中國的外貿企業快速開拓國內市場。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799990_1_20250411201204.jpg&q=70)
   
 
-港投公司宣布與金融科技平台WeLab啟動戰略合作。港投公司行政總裁陳家齊表示，今次合作亦包括投資，不過基於敏感性，具體金額不會透露。她說 WeLab有獨特性，有關公司在東南亞發展已有根基，憑著經驗和人脈，將有助港投公司生態圈內的公司「出海」，而且WeLab已具備企業對消費者 (B2C) 的業務，這些都是過往港投公司所沒有的投資組合。
+多家內地零售企業啟動扶持計劃，幫助中國外貿企業開拓國內市場，包括京東、盒馬鮮生、聯華超市等。
 
   
 
@@ -392,23 +371,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799762-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799990-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799762-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799762-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799990-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799990-20250411.htm)
 
 ---
 
-# 韓股急升近7%收市
+# 摩根大通上季盈利按年升逾9%
 
-![首爾綜合指數收市報2445點，升151點，升幅6.6%。（KRX圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799761_1_20250410143758.jpg&q=90)
+![摩根大通今年首季盈利146.4億美元，按年增長逾9%，按季升近5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799993_1_20250411203319.jpg&q=85)
   
 
-南韓股市急升近7%收市。首爾綜合指數收市報2445點，升151點，升幅6.6%。
+摩根大通公布，今年首季盈利146.4億美元，按年增長逾9%，按季升近5%。每股經調整盈利5.07美元，按年升14%，按季升逾5%。
 
   
 
@@ -416,23 +395,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799761-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799761-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799761-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm)
 
 ---
 
-# 日股急升逾9%收市
+# 劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰
 
-![日經指數收市報34609點，升2894點，升幅9.13%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799760_1_20250410143557.jpg&q=65)
+![劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799992_1_20250411213700.jpg&q=85)
   
 
-日股急升逾9%收市。
+中共中央總書記、國家主席習近平在北京與西班牙首相桑切斯會面時，首次就近日的關稅議題發聲，強調「打關稅戰」沒有贏家，同世界作對將孤立自己，重申中方不畏懼任何無理打壓。
 
   
 
@@ -440,23 +419,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799760-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799760-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799760-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm)
 
 ---
 
-# 台股高收逾9%
+# 金融監管總局發指導意見促進金融資產管理公司高質量發展
 
-![台灣加權指數收市報19000點，升1608點，升幅9.25%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799757_1_20250410134842.jpg&q=90)
+![國家金融監管總局發出指導意見，要求金融資產管理公司支持受困房企項目紓困化險。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799984_1_20250411185302.jpg&q=75)
   
 
-台灣股市顯著反彈，加權指數收市報19000點，升1608點，升幅9.25%。
+國家金融監管總局發出指導意見，提出16條意見措施，要求金融資產管理公司做強做優不良資產收購處置業務，服務化解中小金融機構、房地產等領域風險，持續加強風險管理和內控機制建設，強化存量風險資產處置，嚴控增量業務風險，加強資產負債和流動性管理。
 
   
 
@@ -464,23 +443,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799757-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799757-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799757-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm)
 
 ---
 
-# 報道：內地決策層今日召開重要會議　討論推出更多經濟刺激政策
+# 中方指美方對華關稅稅率異常高淪數字游戲　如再加將不予理會
 
-![據報內地決策層今日召開重要會議，討論推出更多經濟刺激政策，聚焦樓市、消費和科技創新等領域。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799753_1_20250410131146.jpg&q=75)
+![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字游戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799980_1_20250411195622.jpg&q=25)
   
 
-外電引述消息人士指，內地決策層今日召開重要會議，討論推出更多經濟刺激政策，以應對貿易戰。
+中國再度反制美國，向原產於美國的進口商品，加徵關稅稅率上調至125%。
 
   
 
@@ -488,23 +467,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799753-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799753-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799753-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm)
 
 ---
 
-# 恒指下午初段升逾300點
+# 代理：本周末二手屋苑預約睇樓減少　關稅戰令觀望氣氛明顯轉濃
 
-![恒指較早時報20600點，升335點，升幅1.66%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799752_1_20250410130519.jpg&q=70)
+![地產代理預料本周末十大屋苑成交宗數未必能達雙位數。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799978_1_20250411183339.jpg&q=50)
   
 
-港股下午初段升逾300點，恒指較早時報20600點，升335點，升幅1.66%。
+中原地產數字顯示，本周末十大屋苑預約睇樓有401組，按周跌約13.6%，創近5星期新低。
 
   
 
@@ -512,23 +491,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799752-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799978-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799752-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799752-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799978-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799978-20250411.htm)
 
 ---
 
-# 花旗：中美緊張局勢蔓延至金融領域風險加大　中國或加碼刺激政策
+# 習近平強調關稅戰無贏家　中方不畏懼任何無理打壓
 
-![花旗預計中國今年中會有1至1.5萬億元人民幣的加碼刺激政策推出。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799746_1_20250410124817.jpg&q=55)
+![習近平會見訪華的西班牙首相桑切斯，期間談及關稅議題。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799977_1_20250411193050.jpg&q=90)
   
 
-中美關稅戰升級。投行花旗表示，雙邊關稅已經達到禁止性水平，認為反制對經濟的直接衝擊有限，但升級不利談判展開，又指緊張局勢蔓延至金融領域的風險加大，而中國較之前更快推出刺激措施的可能性加大。
+國家主席習近平在北京，會見訪華的西班牙首相桑切斯，期間談及關稅議題。
 
   
 
@@ -536,23 +515,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799746-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799977-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799746-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799746-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799977-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799977-20250411.htm)
 
 ---
 
-# 港投公司擬下月舉辦國際耐心資本論壇　下一季率團出訪東南亞
+# 習近平︰打關稅戰沒有贏家　中國不畏懼任何無理打壓
 
-![港投公司擬下月舉辦國際耐心資本論壇　下一季率團出訪東南亞。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799744_1_20250410130157.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799972_1_20250411183030.jpg&q=90)
   
 
-港投公司行政總裁陳家齊表示，看好「一帶一路」市場潛力，正積極把握機遇，包括5月舉辦首屆「國際耐心資本論壇」，推動世界各地「耐心資本」機構之間協同效應，聯通資本和投資機遇。港投公司亦計劃下季率團出訪東南亞，助力被投企業與合作夥伴拓展業務及網絡，將適時公布更多舉措。
+國家主席習近平在北京會見訪華的西班牙首相桑切斯。習近平強調，打關稅戰沒有贏家，同世界作對將孤立自己。
 
   
 
@@ -560,23 +539,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799744-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799744-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799744-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm)
 
 ---
 
-# 陳茂波稱致力建立鼓勵創新金融科技生態　發揮對社會積極影響力
+# 有北京居民稱不擔心關稅戰　將令國家更強大
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799748_1_20250410130301.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799971_1_20250411184913.jpg&q=75)
   
 
-港投公司與金融科技平台WeLab宣布啟動戰略合作，推動人工智能驅動金融科技服務及亞洲數字金融普惠發展，支持人工智能應用及創新文化傳承，以及助力港投公司的生態圈發展。
+關稅貿易戰危及全球經濟，有北京居民指不擔心，已購入部分黃金等避險資產，又相信國家必要時會出手。有居民認為國家將內部改革，認為貿易戰將令國家更強大、更團結。
 
   
 
@@ -584,23 +563,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799748-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799971-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799748-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799748-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799971-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799971-20250411.htm)
 
 ---
 
-# 金管局向銀行公開防騙伺服器紀錄內可疑戶口供審查防詐騙
+# 在岸人民幣高收逾180點子
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799742_1_20250410124616.jpg&q=90)
+![在岸人民幣高收逾180點子，收報7.3245兌1美元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799968_1_20250411175855.jpg&q=65)
   
 
-金管局聯同警方及銀行公會公布聯合打擊傀儡戶口網絡的措施，金管局助理總裁陳景宏表示，將有5項新措施，包括向主要銀行公開防騙伺服器紀錄內的可疑電話號碼及電郵地址，如果有客戶要求轉錢入這些戶口，銀行可以考慮是否作進一步審查。
+在岸人民幣高收逾180點子，收報7.3245兌1美元。中間價結束6連跌，報7.2087兌1美元，較上日微升5點子，與市場預測偏離收窄至逾1000點子。
 
   
 
@@ -608,23 +587,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799742-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799968-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799742-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799742-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799968-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799968-20250411.htm)
 
 ---
 
-# 5項新措施打擊傀儡戶口　將修例推動銀行之間分享戶口資料
+# 人行等部門發文要求金融機構支持合條件體育企業發債
 
-![金管局聯同警方及香港銀行公會採取聯合措施，打擊傀儡戶口網絡。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799741_1_20250410153516.jpg&q=90)
+![人行、國家體育總局等部門聯合發出指導意見，要求發揮金融促進體育消費增長功能。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799959_1_20250411171421.jpg&q=60)
   
 
-金管局聯同警方及香港銀行公會採取聯合措施，打擊傀儡戶口網絡。
+人民銀行、國家體育總局、國家金融監管總局、中國證監會聯合發出指導意見，要求金融機構加大對體育場館等體育基礎設施建設和營運的支持力度；支持符合條件的體育企業發行公司債券，鼓勵發展股權融資，提升體育產業的直接融資比重等。
 
   
 
@@ -632,23 +611,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799741-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799959-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799741-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799741-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799959-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799959-20250411.htm)
 
 ---
 
-# 恒生銀行：內地今年物價仍保持平穩
+# 白宮稱中國總關稅為145%　特朗普：期望與中方達成協議
 
-![薛俊昇分析內地消費物價壓力較低，為推刺激內需措施提供空間。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799739_1_20250410123223.jpg&q=20)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799969_1_20250411183308.jpg&q=90)
   
 
-內地連續兩個月通縮，3月居民消費價格指數（CPI）按年跌0.1%，跌幅顯著收窄。工業生產者出廠價格指數（PPI）按年跌幅擴大至2.5%。
+美國總統特朗普早前宣布，對中國進口貨品的關稅稅率提高至125%，白宮官員澄清，特朗普所指的125%是對等關稅，連同早前因芬太尼問題加徵的20%關稅，美國對中國貨加徵的總關稅是145%。
 
   
 
@@ -656,24 +635,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799739-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799969-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799739-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799739-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799969-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799969-20250411.htm)
 
 ---
 
-# 許正宇與越南財金官員及日本駐港總領事會面　加深國際交往
+# 特首下月聯同內地企業出訪中東
 
-![許正宇與越南財金官員會面。（財庫局圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799738_1_20250410122817.jpg&q=60)
-![許正宇與日本駐港總領事（大使）三浦潤見面。（財庫局圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799738_2_20250410122817.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799967_1_20250411183404.jpg&q=90)
   
 
-財經事務及庫務局局長許正宇周三在港分別與越南財金官員和日本駐港總領事會面。
+商務及經濟發展局局長丘應樺透露，行政長官5月將聯同內地企業出訪中東。丘應樺指，特區政府與內地各個省市有很強的配合，「拼船出海」，在地緣政治緊張之下謀求發展。
 
   
 
@@ -681,23 +659,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799738-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799967-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799738-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799738-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799967-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799967-20250411.htm)
 
 ---
 
-# 恒指半日升幅收窄至364點　成交逾2400億元
+# 本港二手樓價按周微升　中原料今季樓價或再跌近3%
 
-![恒指中午收市報20628點，升364點，升幅1.8%。（周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799737_2_20250410140146.jpg&q=90)
+![中原地產指貿易衝突升級，環球股市大幅波動，本港二手樓成交轉慢，今季樓價或再跌2.85%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799947_1_20250411161932.jpg&q=40)
   
 
-美國對中國加徵的關稅稅率提升至125%，但暫緩對其他國家徵收較高稅率的對等關稅90日，港股跟隨外圍高開500多點後，升幅最多擴大至近950點，高位見21211點，臨近中午收市升幅收窄。恒生指數中午收市報20628點，升364點，升幅1.8%，主板半日成交額2454億元。
+反映本港二手樓價走勢的中原城市領先指數（CCL）最新報136.9，按周微升0.06%，但仍處於超過8年半以來低位。本周中美互相加徵關稅，全球股市大跌對樓市的影響將於5月上旬的樓價反映。
 
   
 
@@ -705,23 +683,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799737-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799947-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799737-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799737-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799947-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799947-20250411.htm)
 
 ---
 
-# 滬深股市半日升近1%至逾2%
+# 港股高收逾1%　連升4個交易日　恒指本周累跌近8.5%
 
-![上證指數半日收報3216點，升29點，升幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799730_1_20250410114329.jpg&q=45)
+![恒指收市報20914點，升幅1.13%，連升4個交易日，全星期累計跌近8.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799952_1_20250411163948.jpg&q=20)
   
 
-滬深股市升幅收窄。貴金屬股、消費電子股上升。
+港股先跌後回升，恒指初段最多跌近240點，其後轉升，下午曾升近450點，高見21127點，但未能企穩21000點關口，收市報20914點，升232點，升幅1.13%，連升4個交易日，主板成交額減少至約2764億元。
 
   
 
@@ -729,23 +707,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799730-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799952-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799730-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799730-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799952-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799952-20250411.htm)
 
 ---
 
-# 羅淑佩稱擬於維港增遊艇泊位　海島遊垂釣「即撈即捕即食」
+# 投資推廣署稱香港是中東企業拓展亞太及內地市場策略門戶
 
-![羅淑佩透露商界人士對香港發展海島及海岸線旅遊感到興趣。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799725_2_20250410125901.jpg&q=90)
+![吳國才（右）說，憑藉香港的營商優勢，與中東企業可以在金融、科技、可持續發展等加強合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799956_1_20250411165957.jpg&q=65)
   
 
-文化體育及旅遊局局長羅淑佩早前在北京拜會中央港澳辦主任、國務院港澳辦主任夏寶龍，匯報重點工作及未來工作計劃。羅淑佩接受報章訪問時表示，夏寶龍特別關注香港在旅遊方面如何推陳出新，特別是用好海岸和海島旅遊。
+投資推廣署助理署長吳國才結束在中東的訪問，出訪利雅得、吉達和迪拜，宣傳香港是中東企業拓展亞太地區及內地市場的策略性門戶。
 
   
 
@@ -753,23 +731,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799725-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799956-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799725-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799725-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799956-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799956-20250411.htm)
 
 ---
 
-# 業界指美再加關稅影響物流鏈　有立法會議員料重塑供應鏈
+# 中國於世貿組織爭端解決機制追加起訴美國進一步提高對華關稅
 
-![有業界指，不少出口商或電商平台趁著措施未生效前、即是下月2日前，盡快出貨。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799722_1_20250410112214.jpg&q=85)
+![中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799949_1_20250411162733.jpg&q=80)
   
 
-美國總統特朗普宣布，即時上調對中國加徵的關稅至125%。香港貨運物流業協會主席劉浩然說，關稅影響太大，廠商都擔驚受怕，寧願出少些貨，在連鎖反應下，物流鏈包括空運及海運都出現問題。
+中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。
 
   
 
@@ -777,23 +755,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799949-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799949-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799949-20250411.htm)
 
 ---
 
-# 日股半日飆升2639點
+# 商務部嚴厲譴責美國提高對華關稅　指畸高關稅淪數字游戲及笑話
 
-![日經指數半日收報34353點，升2639點，升幅8.32%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799719_1_20250410103606.jpg&q=75)
+![商務部新聞發言人表示，嚴厲譴責美方肆意的單邊關稅措施堅決反對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799948_1_20250411162016.jpg&q=40)
   
 
-東京股市顯著造好。
+中國再反制美國提高對華關稅。
 
   
 
@@ -801,23 +779,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799719-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799948-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799719-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799719-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799948-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799948-20250411.htm)
 
 ---
 
-# 王文濤：中方願與包括東盟在內貿易夥伴加強溝通協調
+# 中國對原產於美國進口商品關稅稅率提高至125%
 
-![王文濤表示，中方願與包括東盟在內的貿易夥伴一道，加強溝通協調。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799717_1_20250410102343.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799946_1_20250411165306.jpg&q=90)
   
 
-在北京，商務部部長王文濤昨日與東盟輪值主席國、馬來西亞貿工部長扎夫魯視頻通話，雙方圍繞加強中馬和中國—東協經貿合作、共同應對美國加徵所謂「對等關稅」等問題交換意見。
+國務院關稅稅則委員會發公告，明日起，對所有原產於美國的進口商品，加徵關稅稅率，由84%提高至125%。
 
   
 
@@ -825,23 +803,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799946-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799946-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799946-20250411.htm)
 
 ---
 
-# 恒指升幅擴至逾900點　重上21000點以上
+# 回應美國對華加徵關稅　外交部稱不願打關稅戰但也不怕打
 
-![港股升幅擴大至逾900點，恒指重上21000點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799716_1_20250410100209.jpg&q=70)
+![林劍表示關稅戰、貿易戰沒有贏家，中方不願打，但也不怕打。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799935_1_20250411145114.jpg&q=90)
   
 
-港股升幅擴大逾900點，恒指重上21000點，較早時報21185點，升920點，升幅4.54%。
+在北京，外交部回應美國對華產品加徵145%關稅。發言人林劍表示，關稅戰、貿易戰沒有贏家，中方不願打，但也不怕打。他說如果美方真的想通過對話談判解決問題，就應該停止極限施壓、胡作非為，任何對話都必須建立在平等、尊重、互惠的基礎上。如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。
 
   
 
@@ -849,23 +827,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799716-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799716-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799716-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm)
 
 ---
 
-# 內地3月通縮0.1%
+# 內地股市先低後高　滬股本周累跌逾3%
 
-![內地3月居民消費價格指數（CPI）按年跌0.1%；首季亦跌0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799715_1_20250410095829.jpg&q=20)
+![內地股市先低後高。上證指數收市報3238點，升14點，升幅0.45%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799937_2_20250411151809.jpg&q=75)
   
 
-國家統計局公布，3月居民消費價格指數（CPI）按年跌0.1%，連跌兩個月，但跌幅較2月收窄0.6個百分點。食品價格跌1.4%，非食品價格升0.2%。
+內地股市先低後高，下午走勢轉強，半導體、資源、貴金屬、人型機械人概念股上升；農業、白酒股向下。
 
   
 
@@ -873,23 +851,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799937-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799937-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799937-20250411.htm)
 
 ---
 
-# 陳美寶稱全速推展智慧綠色集體運輸系統項目
+# 韓股低收0.5%　本周累跌逾1%
 
-![陳美寶說，當局亦正檢討與交通相關的收費和罰款，包括停車收費錶及交通違例事項定額罰款等。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799714_1_20250410101213.jpg&q=85)
+![首爾綜合指數收市報2432點，跌12點，跌幅0.5%。（KRX圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799934_1_20250411144704.jpg&q=80)
   
 
-運輸及物流局局長陳美寶表示，正在施工的東涌線延綫、小蠔灣站、屯門南延綫、古洞站和洪水橋站將在2027年起落成。北環綫主線的前期建造工程亦已展開，目標是於2034年落成。政府亦正全速推展智慧綠色集體運輸系統項目，目標是分別於今年就啟德項目招標，明年就東九龍及洪水橋／厦村及元朗南新發展區項目招標，希望於翌年批出合約。同時，力爭於今年內就南港島綫（西段）項目開展詳細規劃及設計。
+南韓股市下跌。首爾綜合指數收市報2432點，跌12點，跌幅0.5%。
 
   
 
@@ -897,23 +875,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799714-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799934-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799714-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799714-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799934-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799934-20250411.htm)
 
 ---
 
-# 人行逆回購操作659億元人民幣
+# 日股跌近3%　本周累跌近0.6%
 
-![人行進行659億元人民幣7日期逆回購操作。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799710_1_20250410093001.jpg&q=80)
+![日經指數收市報33585點，跌幅2.96%。本周累計下跌近0.6%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799933_1_20250411144010.jpg&q=75)
   
 
-人民銀行公開市場進行659億元人民幣7日期逆回購操作，利率維持在1.5厘，對沖到期量後，單日淨回籠1575億元，連續兩日淨回籠。
+日股受壓。日經指數初段一度挫近6%，收市報33585點，跌1023點，跌幅2.96%。
 
   
 
@@ -921,23 +899,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799710-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799933-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799710-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799710-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799933-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799933-20250411.htm)
 
 ---
 
-# 滬深股市初段造好　上證指數重上3200點
+# 習近平晤桑切斯談及關稅戰指無贏家　與世界作對將孤立自己
 
-![上證指數收復3200點，較早時報3213點，升26點，升幅0.82%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799713_1_20250410093659.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799932_1_20250411150400.jpg&q=90)
   
 
-滬深股市初段造好，上證指數收復3200點，較早時報3213點，升26點，升幅0.82%。
+國家主席習近平在北京釣魚台國賓館，會見訪華的西班牙首相桑切斯，期間談及關稅議題。
 
   
 
@@ -945,23 +923,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799713-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799932-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799713-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799713-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799932-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799932-20250411.htm)
 
 ---
 
-# 恒指高開545點　科指升近3.7%
+# 台股倒升約3%收市　本周累跌逾8%
 
-![恒指在競價時段報20810點，升545點，升幅2.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799709_1_20250410092324.jpg&q=75)
+![台灣股市先跌後升，加權指數收市報19528點，升528點，升幅2.78%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799930_1_20250411142450.jpg&q=85)
   
 
-港股跟隨亞太區股市高開，恒指在競價時段報20810點，升545點，升幅2.69%。
+台灣股市先跌後升，加權指數收市報19528點，升528點，升幅2.78%。
 
   
 
@@ -969,23 +947,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799709-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799930-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799709-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799709-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799930-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799930-20250411.htm)
 
 ---
 
-# 《環看天下》：應對美國關稅威脅　分析：或促使中歐經貿回暖
+# 恒指一度重上21000點　升逾300點
 
-![今年前兩個月中歐班列累計到發176列，同比增長22.9%。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799707_1_20250410092107.jpg&q=55)
+![恒指較早時報20993點，升311點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799926_1_20250411133422.jpg&q=55)
   
 
-今年是中歐建交50周年，國務院總理李強日前同歐盟委員會主席馮德萊恩通電話。李強表示，中歐關係呈現穩中向好勢頭，中方願同歐方攜手努力，增進政治互信，拓展務實合作，並分享發展機遇。
+港股升幅擴大，恒指一度重上21000點以上，升逾330點，較早時報20993點，升311點。
 
   
 
@@ -993,23 +971,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799926-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799926-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799926-20250411.htm)
 
 ---
 
-# 人民幣兌美元中間價下調26點子　創逾1年半新低
+# 港股下午初段升逾0.8%
 
-![人民幣中間價報7.2092兌1美元，較上日中間價下調26點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799706_1_20250410091921.jpg&q=65)
+![恒指較早時升0.83%，科指升2.05%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799924_1_20250411130849.jpg&q=80)
   
 
-人民幣中間價報7.2092兌1美元，較上日中間價下調26點，創2023年9月11日以來新低。
+港股下午初段升逾0.8%。
 
   
 
@@ -1017,23 +995,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799706-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799924-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799706-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799706-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799924-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799924-20250411.htm)
 
 ---
 
-# 長江生命科技開市前停牌
+# IIF：關稅憂慮令上月新興市場逾170億美元資金流出股債
 
-![長江生命科技開市前停牌，停牌前報0.48元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799703_1_20250410091007.jpg&q=85)
+![IIF表示，對關稅憂慮和全球不確定性，引發3月新興市場債券和股票資金外流。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799866_1_20250411073936.jpg&q=80)
   
 
-長江生命科技開市前停牌，停牌前報0.48元。
+國際金融協會（IIF）表示，對關稅憂慮和全球不確定性引發3月新興市場債券和股票投資組合資金外流，尤其是流出中國。
 
   
 
@@ -1041,23 +1019,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799703-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799866-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799703-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799703-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799866-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799866-20250411.htm)
 
 ---
 
-# 工總稱進出口商已無生意做　學者料美方欲與中方脫勾斷鏈
+# 研究：特朗普汽車關稅或令美國車廠成本增加逾千億美元
 
-![莊子雄說，進出口商都處於觀望態度；麥萃才認為，商界應該專注發展其他市場。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799704_1_20250410093313.jpg&q=70)
+![研究發現汽車關稅將令美國汽車製造商成本增加。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799907_1_20250411113126.jpg&q=90)
   
 
-美國總統特朗普宣布，即時上調對中國加徵的關稅至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。香港工業總會主席莊子雄表示，在貿易戰下，無論美方加徵多少關稅，數字上已經無影響，因為大家已經無可能再做生意，他形容美方非常不理性，進出口商都處於觀望態度。
+美國汽車研究中心一項分析發現，美國總統特朗普4月初實施25%汽車關稅，將令美國汽車製造商今年成本增加約1080億美元。
 
   
 
@@ -1065,23 +1043,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799907-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799907-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799907-20250411.htm)
 
 ---
 
-# 台股初段急升逾9%　鴻海及台積電升停
+# 孫東稱利用本港科技優勢講究策略與方法　擴大人文交往及科技交流
 
-![台灣加權指數初段報18972點，升1580點，升近9.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799702_1_20250410090500.jpg&q=85)
+![孫東強調本港要發揮獨特作用，保持自由、開放及國際化，同時要加強出海平台的建設。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799922_1_20250411143014.jpg&q=85)
   
 
-台灣股市大幅反彈，終止多日跌勢。美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。
+中美貿易戰升溫，創新科技及工業局局長孫東在立法會財委會特別會議表示，就本港科技發展，本港要緊密對接國家發展大局，過程中亦要利用本港優勢，並講究策略和方法，按現有步驟繼續穩步向前，擴大人文交往及科技交流，會按創科藍圖指定方向，以及按過去3年的施政報告和財政預算案，提出措施向前推進。
 
   
 
@@ -1089,23 +1067,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799702-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799922-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799702-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799702-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799922-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799922-20250411.htm)
 
 ---
 
-# 美暫緩多地高額對等關稅　日股升至逾8%　金價觸及3100美元
+# 美國貿易政策不確定　市場關注美元資產信心會否減弱
 
-![日韓股市造好，較早時分別升逾8%及近半成。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799701_1_20250410090046.jpg&q=90)
+![市場憂慮中美貿易衝突升級，資金持續流入避險資產。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799921_1_20250411125533.jpg&q=75)
   
 
-美國總統特朗普暫緩對中國以外其他國家及地區徵收較高稅率的對等關稅90日，東京股市升幅擴大至逾8%。
+市場憂慮中美貿易衝突升級，資金持續流入避險資產。現貨金創新高，升穿每盎司3200美元。在亞洲時段，美元兌主要貨幣下跌，兌瑞士法郎創10年新低；兌日圓跌至143水平。1歐元兌1.134美元附近，美匯指數失守100大關，為2023年7月以來首次。
 
   
 
@@ -1113,23 +1091,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799701-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799921-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799701-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799701-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799921-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799921-20250411.htm)
 
 ---
 
-# 商務部：李強剛與馮德萊恩通電話　中方願與歐方深化合作
+# 黃志光專訪稱當局會透過世界互聯網大會亞太峰會尋合作並招商引資
 
-![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=25)
+![黃志光說，因應全球地緣政治局勢，本港更要發揮好內聯外通角色。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799918_1_20250411124920.jpg&q=90)
   
 
-商務部部長王文濤表示，國務院總理李強剛剛與歐盟委員會主席馮德萊恩通電話，向外界傳遞積極資訊。表示中方願與歐方相向而行，共同落實好中歐領導人達成的重要共識，加強溝通交流，深化中歐貿易、投資和產業合作。
+世界互聯網大會亞太峰會下周在會展舉行。數字政策專員黃志光接受本台專訪，表示因應全球地緣政治局勢，本港更要發揮好內聯外通角色，當局會透過今次峰會探索合作機會，招商引資，吸引人才。
 
   
 
@@ -1137,23 +1115,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799918-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799918-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799918-20250411.htm)
 
 ---
 
-# 韓股初段升逾4%
+# 陳茂波︰特區政府與中央緊密協作構築抵禦風險屏障
 
-![首爾綜合指數較早時報2398點，升104點，升幅4.56%。（KRX圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799694_1_20250410080250.jpg&q=85)
+![陳茂波表示政府會令香港在全力拚經濟、謀發展的同時，做好金融安全工作。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799916_1_20250411124143.jpg&q=80)
   
 
-南韓股市初段升逾4%。
+財政司司長陳茂波表示，特區政府會從監察風險、化解風險、做大做強自身實力三方面構建金融防護網，令香港在全力拚經濟、謀發展的同時，做好金融安全工作。
 
   
 
@@ -1161,23 +1139,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799694-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799916-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799694-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799694-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799916-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799916-20250411.htm)
 
 ---
 
-# 日股初段升近2%
+# 丘應樺︰特首下月訪中東謀發展新市場　陳美寶︰有策略應對關稅戰
 
-![日經指數較早時32325點，升611點，升幅1.93%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799696_1_20250410080607.jpg&q=75)
+![丘應樺表示，行政長官下月將與內地企業一同出訪中東。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799915_1_20250411123930.jpg&q=85)
   
 
-東京股市初段跟隨隔夜美股上升。
+商務及經濟發展局局長丘應樺表示，行政長官下月將與內地企業一同出訪中東，在地緣發展緊張的情況下，謀求發展中東新市場和東盟市場。
 
   
 
@@ -1185,23 +1163,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799696-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799915-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799696-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799696-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799915-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799915-20250411.htm)
 
 ---
 
-# 聯儲局會議記錄：面對通脹上升和經濟增長放緩　或將面對艱難取捨
+# 港股臨近中午收市轉升　恒指半日升116點
 
-![部分決策者指出，聯儲局未來或將面對艱難的取捨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799693_1_20250410074842.jpg&q=75)
+![恒指半日收報20798點，升116點，升幅0.56%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799914_1_20250411121246.jpg&q=70)
   
 
-美國聯儲局會議記錄顯示，決策者在上月會議上幾乎一致認為，美國經濟同時面臨通脹上升和經濟增長放緩的風險，部分決策者指出，聯儲局未來或將面對艱難的取捨。
+港股先跌後回升，恒指最多跌近240點，臨近中午收市轉升，並以近半日高位收市，報20798點，升116點，升幅0.56%，主板成交額縮至約1279億元。
 
   
 
@@ -1209,23 +1187,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799693-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799914-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799693-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799693-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799914-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799914-20250411.htm)
 
 ---
 
-# 美元兌日圓和瑞士法郎反彈逾1%
+# 滬深股市臨近中午收市再轉升
 
-![美元兌日圓和瑞士法郎等，美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799690_1_20250410071102.jpg&q=75)
+![上證指數半日收報3227點，升4點，升幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799908_1_20250411114228.jpg&q=80)
   
 
-美元兌日圓和瑞士法郎等避險貨幣反彈，美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。
+滬深股市走勢反覆，臨近中午收市由低位反彈，再度轉升。貴金屬、半導體股上升。種植業與林業股下跌。
 
   
 
@@ -1233,23 +1211,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799690-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799908-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799690-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799690-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799908-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799908-20250411.htm)
 
 ---
 
-# 港股ADR較本港昨日收市價相比個別發展　滙控急升近7%
+# 美國對中國內地及香港800美元或以下小額包裹關稅增至120%
 
-![港股ADR個別發展，滙控急升近7%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799689_1_20250410065725.jpg&q=90)
+![美國對來自中國內地及香港、價值800美元或以下的小額包裹的關稅，提升至120%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799905_1_20250411123743.jpg&q=70)
   
 
-港股美國預託證券(ADR)個別發展。
+美國全國廣播公司商業頻道報道，白宮表示對華加徵的總關稅是145%、即時生效的同時，亦公布對來自中國內地及香港、價值800美元或以下的小額包裹的關稅，由日前提及的90%，提升至120%。
 
   
 
@@ -1257,23 +1235,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799689-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799689-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799689-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm)
 
 ---
 
-# 金價升3%或以上　市場憂中美貿易緊張局勢進一步升級
+# 人民日報文章指美國關稅訛詐　切斷全球產供鏈干擾各國經濟發展
 
-![金價升3%或以上，受避險資金推動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799687_1_20250410054033.jpg&q=75)
+![文章指中美經貿合作促進美國產業升級，為美國消費者帶來好處。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799902_1_20250411123655.jpg&q=70)
   
 
-金價升3%或以上，受避險資金推動，市場擔心中美貿易緊張局勢進一步升級。
+《人民日報》發表文章，批評美國的「關稅訛詐」，嚴重擾亂全球產業鏈、供應鏈穩定，扭曲全球市場資源配置，損人不利己，重申中美作為全球前兩大經濟體，尤其需要視對方的發展為機遇而非挑戰，把對方當作夥伴，而非對手。
 
   
 
@@ -1281,23 +1259,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799687-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799687-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799687-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm)
 
 ---
 
-# 歐洲3大指數跌近3%或以上
+# 日股半日跌逾4%
 
-![法國CAC指數收報6863點，跌237點，跌幅3.34%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799686_1_20250410053534.jpg&q=90)
+![日經指數半日收報33148點，跌1460點，跌幅4.22%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799901_1_20250411103348.jpg&q=85)
   
 
-歐洲3大指數下跌。
+東京股市顯著下挫。
 
   
 
@@ -1305,23 +1283,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799686-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799901-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799686-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799686-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799901-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799901-20250411.htm)
 
 ---
 
-# 油價轉升逾4%收市
+# 習近平將國事訪問越南與馬來西亞及柬埔寨
 
-![油價初段跌約7%，最終收市升逾4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799685_1_20250410053148.jpg&q=90)
+![習近平將先後國事訪問越南、馬來西亞及柬埔寨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799900_1_20250411102900.jpg&q=90)
   
 
-原油期貨價格由跌轉升，美國總統特朗普暫緩對中國以外國家徵收較高額對等關稅90日。
+中共中央總書記、國家主席習近平應越南共產黨中央委員會總書記蘇林、越南社會主義共和國主席梁強邀請，將於本月14日至15日對越南進行國事訪問。
 
   
 
@@ -1329,23 +1307,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799685-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799900-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799685-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799685-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799900-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799900-20250411.htm)
 
 ---
 
-# 特朗普暫緩多國高額關稅但上調對華關稅　相信最終會與華達成協議
+# 人行逆回購操作量降至285億元人民幣
 
-![特朗普相信，美方會在某個時候接到中方的電話，雙方最終會達成一項非常好的協議。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799684_1_20250410053117.jpg&q=90)
+![人行逆回購操作降至285億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799898_1_20250411094617.jpg&q=40)
   
 
-美國總統特朗普宣布，即時上調對中國加徵的關稅至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。
+人民銀行公開市場7日期逆回購操作降至285億元人民幣，利率維持1.5厘，今日無逆回購到期。
 
   
 
@@ -1353,23 +1331,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799684-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799898-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799684-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799684-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799898-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799898-20250411.htm)
 
 ---
 
-# 道指急升2962點　納指飆逾12%　美國暫緩多國高額對等關稅
+# 陳茂波稱針對不同情境制定預案　確保金融安全風險處置及時有效
 
-![美股急升，美國暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799683_1_20250410052450.jpg&q=85)
+![陳茂波鼓勵機構邀請國家安全領域專家深入企業，針對高層管理人員與中層員工進行分層培訓。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799899_1_20250411112826.jpg&q=80)
   
 
-美股急升，美國總統特朗普表示，對中國加徵的關稅稅率提升至125%，但暫緩對其他國家徵收較高稅率的對等關稅90日。
+財政司司長陳茂波接受報章訪問時表示，特區政府會從監察風險、化解風險、做大做強自身實力三方面構建金融防護網，令香港在全力拚經濟、謀發展的同時，做好金融安全工作。
 
   
 
@@ -1377,23 +1355,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799683-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799899-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799683-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799683-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799899-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799899-20250411.htm)
 
 ---
 
-# 世貿總幹事稱中美商品貿易或減少多達八成
+# 內地股市初段變動不大
 
-![伊維拉呼籲所有成員透過合作與對話來應對挑戰。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799681_1_20250410042358.jpg&q=90)
+![滬深股市初段變動不大。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799895_1_20250411093813.jpg&q=30)
   
 
-世貿總幹事伊維拉表示，中美貿易緊張局勢不斷升級，構成雙邊貿易大幅萎縮的重大風險，初步預測可能令兩國商品貿易減少多達八成。
+滬深股市初段變動不大。
 
   
 
@@ -1401,23 +1379,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799895-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799895-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799895-20250411.htm)
 
 ---
 
-# 美股急升　道指重上4萬點　納指升逾一成
+# 港元逼近強方兌換保證水平
 
-![道指重上4萬點水平。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799676_1_20250410024258.jpg&q=90)
+![港元兌美元今早升至7.7575水平，逼近強方兌換保證水平。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799892_1_20250411092856.jpg&q=35)
   
 
-美國總統特朗普宣布90日暫停向中國以外國家徵收高額對等關稅，刺激美股急升。
+港元近期走強，兌美元今早升至7.7575水平，逼近強方兌換保證水平。
 
   
 
@@ -1425,13 +1403,37 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799892-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799892-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799892-20250411.htm)
+
+---
+
+# 陳美寶稱五大策略應對關稅戰致物流及航運不穩定不明朗情況
+
+![陳美寶強調香港不能漠視今次這一浪有多大、有多高，當前急務是如何應對全球貨量交易減少。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799894_1_20250411110231.jpg&q=90)
+  
+
+運輸及物流局長陳美寶接受《明報》訪問，表示關稅戰對本港物流、航運及航空界帶來持續的不穩定不明朗因素，當局將有五大策略應對，包括修例便利轉口、加強與大灣區港口協作「拉貨」、將探討藉減省報關手續提升轉口效率吸引轉口貨、深化與國際港口及船舶之間交流合作，擴大航運網絡、以及維持樞紐地位需升級轉型，提供多元化服務，令本港的能力和服務均能配合市場轉型。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm)
 
 ---

@@ -1,9 +1,8 @@
-# 本台作品奪恒大最佳經濟及金融政策新聞報道影像及聲音組銀獎
+# 周一鳴：積極推動「智慧警政」　在市區或郊區試行無人機高空巡邏
 
-![獲獎作品為《受惠自貿協定及一帶一路碼頭秘魯米商、鞋企盼拓展香港市場》，由本台新聞部記者林漢山(右)及葉燿坤(左)製作。(鍾慧儀攝)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799807_1_20250410173427.jpg&q=80)
   
 
-第九屆香港恒生大學商業新聞獎舉行頒獎禮，接獲超過600份作品參賽，屬歷屆最多。香港電台奪得「最佳經濟及金融政策新聞報道獎」影像及聲音組銀獎 。
+警務處處長周一鳴表示，將積極推動「智慧警政」，利用科技、簡化流程等，做到事半功倍的效果，指會推動無人機高空巡邏試驗計劃，在市區或郊區試行。他又表示，會利用大數據，找出較多交通、治安等問題的區域，再靈活調配人手。
 
   
 
@@ -11,23 +10,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799807-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800051-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799807-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799807-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800051-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800051-20250412.htm)
 
 ---
 
-# 有市民稱不再郵寄貨物往美國　改為將貨品帶予當地家人
+# 完成再入主白宮後首次體檢　特朗普稱自己狀態非常好
 
-![在中環一間郵局，有市民表示，如果日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799806_1_20250410173610.jpg&q=70)
+![特朗普在專機上表示，已完成體檢，自己的狀態非常好。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800050_1_20250412102349.jpg&q=90)
   
 
-美國早前宣布，由5月2日起取消香港寄往美國物品的小額免稅安排。在中環一間郵局，有市民表示，家人都住在美國，平時兩至三個月就需要寄一次日常用品到當地，每次約花費數百至1千元，日後取消免稅安排，寄件的整體成本上升，不會再用郵寄方式將貨物寄往美國，改為由家人將貨品帶到美國，估計補給次數將會由平均兩個月一次，改為5至8個月一次。
+美國總統特朗普在馬里蘭州一個陸軍醫療中心完成再度入主白宮以來的首次年度體檢，形容自己的狀態非常好。
 
   
 
@@ -35,22 +34,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800050-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799806-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800050-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800050-20250412.htm)
 
 ---
 
-# 北京有民眾擔心物價上漲　有民眾則不擔心生活必需品供應
+# 天文台：驟雨及強烈狂風雷暴下午至黃昏影響珠江口一帶
 
+![天文台：驟雨及強烈狂風雷暴下午至黃昏影響珠江口一帶](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800049_1_20250412100733.jpg&q=90)
   
 
-中國由中午起，對原產於美國的所有進口商品加徵關稅至84%。在北京，有長者說平日習慣服用進口藥，控制心臟病和高血壓，認為藥效好。他認為關稅的實際影響目前仍未顯現，但只要價格不是高得離譜，例如增加一倍以內都能接受，不打算提早備存太多存貨。但亦有民眾說擔心物價上漲。
+天文台發出特別天氣提示，位於廣東北部的一道冷鋒正逐漸向南移動，預料與其相關的驟雨及強烈狂風雷暴會在今日下午至黃昏影響珠江口一帶，部分地區雨勢較大，亦有猛烈陣風。
 
   
 
@@ -58,22 +58,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800049-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800049-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800049-20250412.htm)
 
 ---
 
-# 貿發局籲本港業界勿自亂陣腳做好產品及服務　升級轉型提高競爭力
+# 北京大風早上10時進入最強時段　部分交通停駛公園關閉
 
+![全國大風預報圖。（央視新聞）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800048_1_20250412101330.jpg&q=75)
   
 
-貿發局副總裁張淑芬表示，美國關稅不只對香港帶來影響，環球出口都直接受影響，業界經營會較辛苦，但呼籲切勿自亂陣腳，需要做好自己產品和服務，積極升級轉型，提高競爭力。
+內地中央氣象台發布強對流天氣、大風、暴雪、暴雨和沙塵暴預警。預計強對流主要影響時段是早上至中午。
 
   
 
@@ -81,23 +82,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800048-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799804-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800048-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800048-20250412.htm)
 
 ---
 
-# 昂坪360首季平均每日訪客按年升12.3%創疫後新高
+# 周一鳴稱須居安思危提升市民國安意識　社會存暗湧以另類手法煽動
 
-![昂坪360指，首季的長短途國際市場旅客於整體旅客人數佔51.3%。（昂坪360提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799799_1_20250410172640.jpg&q=50)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800046_1_20250412095452.jpg&q=85)
   
 
-昂坪360表示，今年首季來自長短途國際市場的旅客，平均每日到訪人數較去年同期上升12.3%，數字創疫後新高。佔比方面，首季的長短途國際市場旅客於整體旅客人數當中，佔超過一半，達51.3%。其次是內地，佔約三成，而本地居民則佔約兩成。
+警務處處長周一鳴表示，國安法實施5年，整體社會平穩、安居樂意，但不代表完全沒有暗湧，不用理會國家安全，認為必須要居安思危，同時希望提升市民對國家安全的意識。
 
   
 
@@ -105,23 +106,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800046-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799799-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800046-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800046-20250412.htm)
 
 ---
 
-# 外交部斥美方大肆利用關稅對全球威脅訛詐
+# 發展商多關注片區基建設施時間表　甯漢豪有信心試點能成功招標
 
-![林劍說，美方大肆利用關稅對全球威脅訛詐，是在試圖扼住各國的喉嚨，逼使各國在美方的霸凌面前做出妥協退讓。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799798_1_20250410171631.jpg&q=90)
+![甯漢豪表示，正就收回的片區開發意向書進行詳細分析。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800045_1_20250412095333.jpg&q=80)
   
 
-在北京，外交部發言人林劍回應美國財長貝森特指，西班牙和中國走得更近，無異於割自己喉嚨的言論時表示，美方大肆利用關稅對全球威脅訛詐，才是在試圖扼住各國的喉嚨，逼使各國在美方的霸凌面前做出妥協退讓。
+發展局就位於洪水橋/厦村新發展區、粉嶺北新發展區及新田科技城的三個「片區開發」試點，邀請市場提交意向書，早前共收到22份。發展局局長甯漢豪表示，正就意向書進行詳細分析，初步看有不少意向書提出，希望政府可盡快公布日後在片區內外進行基建設施的時間表。另外亦有發展商關注，若日後片區內的設施無法如期「交貨」，政府會否訂立巨額罰則等。
 
   
 
@@ -129,23 +130,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800045-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800045-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800045-20250412.htm)
 
 ---
 
-# 中方發布赴美風險提示　外交部：將繼續採取堅決有力措施
+# 美國移民法官裁定巴勒斯坦學生哈利勒可被驅逐出境
 
-![林劍表示，中方將繼續採取堅決有力措施，堅決維護自身的正當合法權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799796_1_20250410171411.jpg&q=90)
+![哈利勒去年在哥大校園聲援巴勒斯坦示威活動中，發揮重要作用。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800042_1_20250412092037.jpg&q=85)
   
 
-國家文化和旅遊部昨天對赴美中國遊客發布風險提示，提醒中國遊客充分評估赴美旅遊風險，謹慎前往。
+美國一名移民法官裁定，被政府拘留的巴勒斯坦學生示威者哈利勒可以被驅逐出境。
 
   
 
@@ -153,23 +154,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800042-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800042-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800042-20250412.htm)
 
 ---
 
-# 廖李可期稱密切評估加徵關稅情況　多方面支援本地企業
+# 甯漢豪冀放寬精簡申請　助商場用好室內及戶外空間帶旺經濟
 
-![廖李可期說，新聞從業員可擔當重要角色，提供最新及最準確的資訊。（鍾慧儀攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799795_1_20250410171153.jpg&q=80)
+![甯漢豪希望透過為申請程序拆牆鬆綁，助商場用好公共空間帶旺經濟。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800041_1_20250412095145.jpg&q=65)
   
 
-美國上調對中國加徵的關稅至125%，新聞處處長廖李可期表示，對此霸凌行徑，特區政府除了堅決反對之外，亦會密切評估有關情況和發展，並從多方面為本地企業提供支援。
+發展局推出試行計劃，放寛商場或其他商業項目的室內和戶外公共空間在地契下限制，精簡相關審批程序，為期兩年。發展局局長甯漢豪表示，今次拆牆鬆綁是希望可以用好商場的公共空間，在不阻街的情況下，帶旺經濟。
 
   
 
@@ -177,23 +178,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800041-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799795-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800041-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800041-20250412.htm)
 
 ---
 
-# 美國對中國船隻徵港口停泊費　外交部：無法振興美國造船業
+# 周一鳴：騙案已形成產業鏈　要靠國際間合作破案
 
-![林劍說，美方單邊主義、保護主義的霸道做法不得人心，對世界各國的利益造成損害。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799794_1_20250410171102.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800040_1_20250412090440.jpg&q=90)
   
 
-在北京，外交部發言人林劍表示，美方單邊主義、保護主義的霸道做法不得人心，只會推高全球的海運成本，擾亂全球的產供鏈穩定，對世界各國的利益造成損害，最終也無法振興美國的造船業。
+警務處處長周一鳴表示，騙案已形成產業鏈，破案的難處在於騙徒及詐騙集團未必在香港，難以容易即時破案，需要靠國際間的合作，例如與國際刑警協調。他又表示，很多發生在本港的騙案，均涉及傀儡戶口，所以將會重點打擊售賣戶口的人士。
 
   
 
@@ -201,23 +202,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800040-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800040-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800040-20250412.htm)
 
 ---
 
-# 6男女涉46宗騙案被捕　警方指涉案集團已清洗逾2.9億元黑錢
+# 美伊今天在阿曼談判　特朗普：伊朗不能擁有核武器
 
-![行動中，警方檢獲19張懷疑屬於傀儡戶口持有人的提款卡、25萬港元現金、一部點鈔機、多部電腦及手提電話等。（警方提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799793_1_20250410170915.jpg&q=85)
+![特朗普在「空軍一號」專機上會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800038_1_20250412082346.jpg&q=85)
   
 
-警方拘捕6名男女，涉嫌與46宗騙案有關，騙案總損失金額超過1360萬港元。警方相信有關集團在去年7月至本月期間，已清洗超過2億9千萬港元懷疑非法犯罪得益。
+美國與伊朗將於今天在阿曼就核問題談判。美國總統特朗普在談判前重申，伊朗不能擁有核武器。
 
   
 
@@ -225,960 +226,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799793-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800038-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799793-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799793-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800038-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800038-20250412.htm)
 
 ---
 
-# 林淑儀將出任特首辦常任秘書長　蔡傑銘任運輸及物流局常任秘書長
+# 聯儲局：市場運作良好　絕對準備好必要時穩定市場
 
-![現任特首政策組副組長林淑儀（左）將出任行政長官辦公室常任秘書長；現任行政長官辦公室常任秘書長蔡傑銘（右）將出任運輸及物流局常任秘書長。（政府新聞處）
-
-；](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799792_1_20250410171323.jpg&q=90)
-  
-
-政府宣布高層官員任命，行政長官辦公室常任秘書長蔡傑銘將於本月14日出任運輸及物流局常任秘書長；特首政策組副組長林淑儀於本月14日出任行政長官辦公室常任秘書長；屋宇署副署長何鎮雄於本月13日出任屋宇署署長，接替將於同日展開退休前休假的余寶美。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799792-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799792-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799792-20250410.htm)
-
----
-
-# 馮德萊恩：美國暫緩徵收對等關稅是朝穩定全球經濟邁出重要一步
-
-![馮德萊恩表示，歐盟仍致力與美國進行建設性談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799783_2_20250410164947.jpg&q=90)
-![歐盟委員會表示，需要時間評估美國有關關稅措施的最新進展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799783_1_20250410162214.jpg&q=30)
-  
-
-美國總統特朗普宣布，暫緩對中國以外其他國家及地區徵收較高稅率的對等關稅90日，以便談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799783-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799783-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799783-20250410.htm)
-
----
-
-# 甯漢豪稱設北都管理局非最好方法　探討成立管理公司年內有建議
-
-  
-
-政府正全力推進北部都會區建設。在立法會財委會特別會議，民建聯議員劉國勳表示，北都工作進入新一頁，認為北部都會區統籌辦事處的角色可以加強，建議政府考慮成立「北都管理局」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799790-20250410.htm)
-
----
-
-# 當局推出三項措施支援香港出口貿易　協助企業加快開拓新興市場
-
-![丘應樺表示，美國朝令夕改，連日調高關稅，呼籲業界團結一致，迎難而上。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799789_1_20250410165429.jpg&q=90)
-  
-
-商務及經濟發展局表示，面對美國濫施關稅，包括進一步調高所謂對等關稅，香港出口信用保險局會即時推出3項支援措施，支援香港出口貿易，協助企業加快開拓新興市場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799789-20250410.htm)
-
----
-
-# 舜宇光學上月手機鏡頭出貨量按年跌逾16%
-
-![舜宇光學3月手機鏡頭出貨量按年跌16.3%，按月跌2.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799787_1_20250410163529.jpg&q=85)
-  
-
-舜宇光學3月手機鏡頭出貨量按年跌16.3%，按月跌2.9%；手機攝像模組出貨量按年跌10.9%，按月升5.5%，主要是專注於中高端產品，以及產品結構改善。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799787-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799787-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799787-20250410.htm)
-
----
-
-# 盧金榮支持國家堅定立場維護自身合法權益
-
-![盧金榮表示，美國總統特朗普再加關稅已經沒有意義。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799786_1_20250410172051.jpg&q=75)
-  
-
-廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm)
-
----
-
-# 曼聯訪港門票390至2990元　明午12時起購票通網站發售
-
-  
-
-英超球隊曼聯將於5月30日晚上8時，在香港大球場對陣中國香港足球代表隊，門票明日中午12時起在購票通網站發售，票價介乎390至2990元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799785-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799785-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799785-20250410.htm)
-
----
-
-# 港股高收417點　手機設備及關稅敏感股造好
-
-![恒生指數收市報20681點，升417點，升幅2.06%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799781_1_20250410162123.jpg&q=45)
-  
-
-港股連升3個交易日。美國對中國加徵的關稅稅率提升至125%，但暫緩對其他國家徵收較高稅率的對等關稅90日，港股初段曾跟隨外圍急升，最多曾升近950點，高位見21211點，其後升幅收窄。恒生指數收市報20681點，升417點，升幅2.06%，主板成交額逾3955億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799781-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799781-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799781-20250410.htm)
-
----
-
-# 李家超籲僑界於國際輿論場全力發聲一同推廣自由貿易
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799780_1_20250410170122.jpg&q=75)
-  
-
-行政長官李家超表示，最近美國單方面宣布所謂對等關稅，破壞全球共同建立的自由貿易體系規則，大搞單邊主義，滿口歪理霸淩，違背經濟規律，嚴重踐踏及侮辱多邊貿易體系。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm)
-
----
-
-# 美俄代表在伊斯坦布爾會談　商議恢復兩國外交使團運作正常化
-
-![美俄代表團2月27日亦曾在伊斯坦布爾舉行會談。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799770_1_20250410152006.jpg&q=55)
-  
-
-美國與俄羅斯代表團在土耳其伊斯坦布爾，就恢復兩國外交使團運作正常化舉行會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799770-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799770-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799770-20250410.htm)
-
----
-
-# 康文署邀請有意贊助國慶煙花匯演機構下月2日或以前遞交申請
-
-![康文署邀請有意贊助的機構，於下月2日或以前遞交申請。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799778_1_20250410162412.jpg&q=75)
-  
-
-國慶煙花匯演10月1日舉行，康文署邀請有意贊助的機構，於下月2日或以前遞交申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799778-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799778-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799778-20250410.htm)
-
----
-
-# 商務部：將幫助出口遇阻外貿企業開拓國内市場
-
-![何咏前說，中國超大規模市場潛力不斷釋放，穩經濟、穩外貿政策接續發力，中國外貿有信心、有底氣應對各種風險挑戰。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799776_1_20250410155921.jpg&q=90)
-  
-
-在北京，商務部新聞發言人何咏前表示，美方對中國濫施關稅，抑制雙邊貿易，對中國的外貿企業造成負面影響，中方將堅定不移辦好自己的事，以中國的確定性，對沖外部環境的不確定性，商務部將會幫助出口遇阻的外貿企業開拓國内市場，用好消費品以舊換新政策，深入開展内外貿一體化工作等等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799776-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799776-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799776-20250410.htm)
-
----
-
-# 甯漢豪稱今年內將完成沙嶺數據園用地改劃程序
-
-![甯漢豪說，下半年起會就三個「片區開發」試點陸續招標。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799774_1_20250410160444.jpg&q=80)
-  
-
-發展局局長甯漢豪說，政府全力推進北部都會區建設，下半年起會就三個「片區開發」試點陸續招標，今年稍後亦會邀請土地業權人就新田科技城提出原址換地申請，兩幅分別位於元朗及洪水橋的多層現代產業大樓用地，正以「雙信封制」進行招標，7月底截止。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799774-20250410.htm)
-
----
-
-# 外交部：若美方執意打關稅戰、貿易戰　中方必將奉陪到底
-
-![林劍批評美方出於一己之私，將關稅作為極限施壓、謀取私利的武器，是與整個世界作對。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799773_1_20250410154756.jpg&q=90)
-  
-
-美國總統特朗普以「中國不尊重世界市場」為由，即時調高對華加徵的關稅至125%。在北京，外交部發言人林劍批評，美方出於一己之私，將關稅作為極限施壓、謀取私利的武器，嚴重侵犯各國的正當權益，嚴重違反世界貿易組織規則，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序穩定。這是公然冒天下之大不韙，與整個世界作對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799773-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799773-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799773-20250410.htm)
-
----
-
-# 商務部：對話必須在相互尊重基礎上以平等方式進行
-
-![何咏前重申，中方的立場明確和一貫，談判大門敞開，但對話必須在相互尊重的基礎上以平等方式進行。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799772_1_20250410154014.jpg&q=90)
-  
-
-在北京，商務部發言人何咏前表示，中方不惹事也不怕事，中國人民和世界人民的正當發展權利不容剝奪，中國和世界各國主權安全發展利益不容侵犯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm)
-
----
-
-# 歐洲股市上升　德股升逾8%
-
-![法蘭克福DAX指數較早時報 21249點，升1579點，升幅8.03%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799771_1_20250410152732.jpg&q=90)
-  
-
-歐洲主要股市早段顯著上揚。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799771-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799771-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799771-20250410.htm)
-
----
-
-# 商務部：面對美國霸凌關稅　中方將堅定不移推進高水平對外開放
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799769_1_20250410151926.jpg&q=90)
-  
-
-在北京，商務部再次強烈譴責和堅決反對美國以各種藉口濫施關稅，強調作為全球第二大經濟體和第二大商品消費市場，面對美國霸凌關稅，中方將堅定不移推進高水平對外開放，堅定不移走好自己的路，以自身的穩定發展為全球經濟注入更多確定性。中國外貿有信心、有底氣應對各種風險挑戰。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799769-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799769-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799769-20250410.htm)
-
----
-
-# 滬深股市高收逾1%至2%
-
-![上證指數一度升1.7%，收報3223點，升36點，升幅1.16%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799765_1_20250410150827.jpg&q=85)
-  
-
-滬深股市高收逾1%至逾2%。貴金屬、消費電子、跨境電商、機械人、物流股等上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799765-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799765-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799765-20250410.htm)
-
----
-
-# 入境處第五次奪得全球最佳機場出入境服務大獎
-
-![郭俊峯（左）表示，能夠五度獲得殊榮，是對入境處秉承提供最優質出入境服務理念的肯定。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799767_1_20250410162039.jpg&q=85)
-  
-
-入境處在國際專業航空運輸研究機構Skytrax的年度旅客意見調查，贏得2025年度全球最佳機場出入境服務大獎，是入境處第五次獲得該項殊榮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799767-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799767-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799767-20250410.htm)
-
----
-
-# 外交部駐港公署指美方揮舞關稅大棒迫就範　勿指望等到中國電話
-
-![公署指，美方舉動不會讓美國再次偉大，只會讓美國變成21世紀的野蠻人。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799766_1_20250410155459.jpg&q=90)
-  
-
-外交部駐港公署就美國對華加徵嚴重不合理關稅，致信《南華早報》表示，美方不顧國際社會普遍反對，以荒唐借口對所有交易夥伴徵收所謂「對等關稅」，是典型的單邊主義、保護主義、經濟霸淩，嚴重侵犯各國正當權益，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序。公署表示，美方此舉不會讓美國再次偉大，只會讓美國變成21世紀的野蠻人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799766-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799766-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799766-20250410.htm)
-
----
-
-# 有北京民眾不打算讓留學子女提早回國　有民眾稱或選美國以外院校
-
-![有北京民眾不打算讓留學子女提早回國　有民眾稱或選美國以外院校](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799764_1_20250410163934.jpg&q=90)
-  
-
-國家教育部近日發布赴美留學預警，提醒廣大留學人員增強防範意識。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799764-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799764-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799764-20250410.htm)
-
----
-
-# 外電：寧德時代到港上市計劃將獲聯交所批准　料今季內上市
-
-![外電：寧德時代到香港上市集資的計劃，將於稍後獲得聯交所批准，預計將於第2季上市，集資最少50億美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799763_1_20250410145813.jpg&q=70)
-  
-
-外電引述消息人士報道，內地電池製造商寧德時代到香港上市集資的計劃，將於稍後獲得聯交所批准。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799763-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799763-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799763-20250410.htm)
-
----
-
-# 陳家齊稱與科技平台合作有助港投公司生態圈內公司「出海」
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799762_1_20250410144752.jpg&q=90)
-  
-
-港投公司宣布與金融科技平台WeLab啟動戰略合作。港投公司行政總裁陳家齊表示，今次合作亦包括投資，不過基於敏感性，具體金額不會透露。她說 WeLab有獨特性，有關公司在東南亞發展已有根基，憑著經驗和人脈，將有助港投公司生態圈內的公司「出海」，而且WeLab已具備企業對消費者 (B2C) 的業務，這些都是過往港投公司所沒有的投資組合。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799762-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799762-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799762-20250410.htm)
-
----
-
-# 韓股急升近7%收市
-
-![首爾綜合指數收市報2445點，升151點，升幅6.6%。（KRX圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799761_1_20250410143758.jpg&q=90)
-  
-
-南韓股市急升近7%收市。首爾綜合指數收市報2445點，升151點，升幅6.6%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799761-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799761-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799761-20250410.htm)
-
----
-
-# 日股急升逾9%收市
-
-![日經指數收市報34609點，升2894點，升幅9.13%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799760_1_20250410143557.jpg&q=65)
-  
-
-日股急升逾9%收市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799760-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799760-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799760-20250410.htm)
-
----
-
-# 台股高收逾9%
-
-![台灣加權指數收市報19000點，升1608點，升幅9.25%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799757_1_20250410134842.jpg&q=90)
-  
-
-台灣股市顯著反彈，加權指數收市報19000點，升1608點，升幅9.25%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799757-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799757-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799757-20250410.htm)
-
----
-
-# 中國對原產於美國進口商品加徵84%關稅開始執行
-
-![中國中午12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799759_1_20250410142035.jpg&q=90)
-  
-
-中國反制美國的關稅措施開始執行，中午12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm)
-
----
-
-# 習近平：中國與拉美關係進入新階段　樹立南南合作典範
-
-![習近平指出，中拉關係歷經國際風雲變幻考驗，已經進入平等、互利、創新、開放、惠民的新階段。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799758_1_20250410135938.jpg&q=80)
-  
-
-拉美和加勒比國家共同體第九屆峰會在輪值主席國洪都拉斯舉行，國家主席習近平向峰會致賀信。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799758-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799758-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799758-20250410.htm)
-
----
-
-# 報道：內地決策層今日召開重要會議　討論推出更多經濟刺激政策
-
-![據報內地決策層今日召開重要會議，討論推出更多經濟刺激政策，聚焦樓市、消費和科技創新等領域。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799753_1_20250410131146.jpg&q=75)
-  
-
-外電引述消息人士指，內地決策層今日召開重要會議，討論推出更多經濟刺激政策，以應對貿易戰。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799753-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799753-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799753-20250410.htm)
-
----
-
-# 恒指下午初段升逾300點
-
-![恒指較早時報20600點，升335點，升幅1.66%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799752_1_20250410130519.jpg&q=70)
-  
-
-港股下午初段升逾300點，恒指較早時報20600點，升335點，升幅1.66%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799752-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799752-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799752-20250410.htm)
-
----
-
-# 花旗：中美緊張局勢蔓延至金融領域風險加大　中國或加碼刺激政策
-
-![花旗預計中國今年中會有1至1.5萬億元人民幣的加碼刺激政策推出。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799746_1_20250410124817.jpg&q=55)
-  
-
-中美關稅戰升級。投行花旗表示，雙邊關稅已經達到禁止性水平，認為反制對經濟的直接衝擊有限，但升級不利談判展開，又指緊張局勢蔓延至金融領域的風險加大，而中國較之前更快推出刺激措施的可能性加大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799746-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799746-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799746-20250410.htm)
-
----
-
-# 港投公司擬下月舉辦國際耐心資本論壇　下一季率團出訪東南亞
-
-![港投公司擬下月舉辦國際耐心資本論壇　下一季率團出訪東南亞。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799744_1_20250410130157.jpg&q=85)
-  
-
-港投公司行政總裁陳家齊表示，看好「一帶一路」市場潛力，正積極把握機遇，包括5月舉辦首屆「國際耐心資本論壇」，推動世界各地「耐心資本」機構之間協同效應，聯通資本和投資機遇。港投公司亦計劃下季率團出訪東南亞，助力被投企業與合作夥伴拓展業務及網絡，將適時公布更多舉措。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799744-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799744-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799744-20250410.htm)
-
----
-
-# 現金津貼試行計劃將取消　何永賢稱簡約公屋及過渡房屋可取代
-
-![何永賢說，雖然過往申請現金津貼計劃大概有11萬人，但現時有5萬5000個申請人已經有公屋「上樓」機會，因此會取消他們的現金津貼。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799749_1_20250410171647.jpg&q=90)
-  
-
-特區政府在2021年推行現金津貼試行計劃，以紓緩長期輪候公屋家庭的生活困難，計劃將於今年6月30日取消。在立法會財委會特別會議，選委界立法會議員林筱魯關注，取消計劃後，當局如何處理市民的住屋需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799749-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799749-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799749-20250410.htm)
-
----
-
-# 陳茂波稱致力建立鼓勵創新金融科技生態　發揮對社會積極影響力
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799748_1_20250410130301.jpg&q=90)
-  
-
-港投公司與金融科技平台WeLab宣布啟動戰略合作，推動人工智能驅動金融科技服務及亞洲數字金融普惠發展，支持人工智能應用及創新文化傳承，以及助力港投公司的生態圈發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799748-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799748-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799748-20250410.htm)
-
----
-
-# 未來五年公營房屋19萬個　何永賢稱每十年更新策略保持靈活性
-
-![何永賢表示，政府致力大幅增加公營房屋供應。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799747_1_20250410164348.jpg&q=80)
-  
-
-房屋局局長何永賢表示，政府致力大幅增加公營房屋供應，連同大約3萬個簡約公屋在內，未來5年的總體公營房屋供應量將達到19萬個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799747-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799747-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799747-20250410.htm)
-
----
-
-# 懲教署冀「更生先鋒計劃」培養年輕人愛護家國與奉公守法
-
-![「更生先鋒計劃」有很多活動包括青少年座談會等，希望培養年輕人愛護家國、奉公守法。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799745_1_20250410155847.jpg&q=60)
-  
-
-懲教署表示，署方除了透過羈管和更生工作，履行維護國家安全的使命，亦積極走進社區，向公眾特別是青少年，宣揚國家安全信息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799745-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799745-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799745-20250410.htm)
-
----
-
-# 何永賢稱可辦「睇樓團」讓有意入住過渡房屋市民了解情況
-
-![何永賢說，政府會與市建局緊密聯繫，檢視首置項目銷售策略。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799743_1_20250410152347.jpg&q=85)
-  
-
-根據房屋局提供的資料，去年獲局方資助的過渡房屋項目，整體使用率約為94%。在立法會財委會特別會議，民建聯議員陳學鋒指出，雖然整體使用率非常理想，但部分項目的入住率不過一半，關注政府如何提高入住率。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799743-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799743-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799743-20250410.htm)
-
----
-
-# 金管局向銀行公開防騙伺服器紀錄內可疑戶口供審查防詐騙
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799742_1_20250410124616.jpg&q=90)
-  
-
-金管局聯同警方及銀行公會公布聯合打擊傀儡戶口網絡的措施，金管局助理總裁陳景宏表示，將有5項新措施，包括向主要銀行公開防騙伺服器紀錄內的可疑電話號碼及電郵地址，如果有客戶要求轉錢入這些戶口，銀行可以考慮是否作進一步審查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799742-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799742-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799742-20250410.htm)
-
----
-
-# 5項新措施打擊傀儡戶口　將修例推動銀行之間分享戶口資料
-
-![金管局聯同警方及香港銀行公會採取聯合措施，打擊傀儡戶口網絡。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799741_1_20250410153516.jpg&q=90)
-  
-
-金管局聯同警方及香港銀行公會採取聯合措施，打擊傀儡戶口網絡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799741-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799741-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799741-20250410.htm)
-
----
-
-# 恒生銀行：內地今年物價仍保持平穩
-
-![薛俊昇分析內地消費物價壓力較低，為推刺激內需措施提供空間。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799739_1_20250410123223.jpg&q=20)
+![柯林斯表示現時市場繼續良好運作，若出現問題，聯儲局有工具應對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800037_1_20250412080000.jpg&q=60)
   
 
-內地連續兩個月通縮，3月居民消費價格指數（CPI）按年跌0.1%，跌幅顯著收窄。工業生產者出廠價格指數（PPI）按年跌幅擴大至2.5%。
+波士頓聯儲銀行總裁柯林斯表示，聯儲局絕對準備好在必要時應對金融市場運作問題，穩定市場。
 
   
 
@@ -1186,24 +250,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799739-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800037-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799739-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799739-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800037-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800037-20250412.htm)
 
 ---
 
-# 許正宇與越南財金官員及日本駐港總領事會面　加深國際交往
+# 聯儲局官員料關稅導致今年通脹率升到3.5%至4%
 
-![許正宇與越南財金官員會面。（財庫局圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799738_1_20250410122817.jpg&q=60)
-![許正宇與日本駐港總領事（大使）三浦潤見面。（財庫局圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799738_2_20250410122817.jpg&q=85)
+![威廉姆斯表示，特朗普政府的貿易政策將導致今年通脹加速，料今年通脹率升至3.5%至4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800036_1_20250412074826.jpg&q=30)
   
 
-財經事務及庫務局局長許正宇周三在港分別與越南財金官員和日本駐港總領事會面。
+紐約聯儲銀行總裁威廉姆斯表示，特朗普政府的貿易政策將導致今年通脹加速，聯儲局要防止長期價格壓力預期脫離錨定的重要作用。
 
   
 
@@ -1211,23 +274,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799738-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800036-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799738-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799738-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800036-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800036-20250412.htm)
 
 ---
 
-# 恒指半日升幅收窄至364點　成交逾2400億元
+# 港股ADR較本港昨日收市價普遍上升
 
-![恒指中午收市報20628點，升364點，升幅1.8%。（周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799737_2_20250410140146.jpg&q=90)
+![港股ADR普遍上升，港交所升近2%，騰訊靠穩。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800035_1_20250412073020.jpg&q=85)
   
 
-美國對中國加徵的關稅稅率提升至125%，但暫緩對其他國家徵收較高稅率的對等關稅90日，港股跟隨外圍高開500多點後，升幅最多擴大至近950點，高位見21211點，臨近中午收市升幅收窄。恒生指數中午收市報20628點，升364點，升幅1.8%，主板半日成交額2454億元。
+港股美國預託證券(ADR)普遍上升。
 
   
 
@@ -1235,23 +298,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799737-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800035-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799737-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799737-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800035-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800035-20250412.htm)
 
 ---
 
-# 滬深股市半日升近1%至逾2%
+# 美國10年期國債息率一度逼近4.6厘
 
-![上證指數半日收報3216點，升29點，升幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799730_1_20250410114329.jpg&q=45)
+![分析擔心，特朗普的政策，將削弱美元作為儲備貨幣、美債避險作用。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800034_1_20250412072454.jpg&q=85)
   
 
-滬深股市升幅收窄。貴金屬股、消費電子股上升。
+美國國債息率上升，10年期國債收益率及30年期國債收益率，分別創2001年及1987年以來最大單星期升幅。
 
   
 
@@ -1259,23 +322,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799730-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799730-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799730-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm)
 
 ---
 
-# 多米尼加夜總會屋頂坍塌事故　增至最少184死
+# 金價升約2%　資金流入黃金避險
 
-![當局表示，300多名救援隊員連日來努力清理廢墟，救助傷患，全力救出倖存者。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799729_1_20250410113511.jpg&q=35)
+![現貨金較早報每盎司3235.89美元，上升近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800031_1_20250412065952.jpg&q=75)
   
 
-多米尼加首都聖多明各一間夜總會屋頂坍塌事故，死亡人數增至最少184人。
+金價突破每盎司3200美元，本周升逾6%，美元下跌，加上貿易戰陰霾引發對經濟衰退的擔憂，資金流入黃金避險。
 
   
 
@@ -1283,23 +346,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799729-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799729-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799729-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm)
 
 ---
 
-# 耿爽：希望法國與沙特6月會議能為落實「兩國方案」注入新動能
+# 《環看天下》：烏克蘭派團隊赴美商礦產協議　據報美方方案苛刻
 
-![耿爽表示，「兩國方案」是解決巴以問題的唯一可行出路。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799724_1_20250410110022.jpg&q=85)
+![美俄官員在伊斯坦布爾進行第二輪會談。( 路透社 )](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800033_1_20250412071521.jpg&q=50)
   
 
-中國常駐聯合國代表團臨時代辦耿爽，對法國與沙特阿拉伯計劃6月在紐約聯合舉辦有關巴勒斯坦問題的會議，表示讚賞，希望會議能為落實「兩國方案」注入新動能，並有助於平息當下的緊張局勢。
+美國與俄羅斯繼續推動雙邊關係回暖之際，美國斡旋俄烏停火進展緩慢。美國總統特朗普對俄羅斯持續攻擊烏克蘭一再表達不滿，烏克蘭總統澤連斯基就抱怨美國對俄施壓不足。分析指俄烏都希望在戰場上，為日後可能出現的和談獲取更多籌碼。
 
   
 
@@ -1307,23 +370,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799724-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800033-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799724-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799724-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800033-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800033-20250412.htm)
 
 ---
 
-# 羅淑佩稱擬於維港增遊艇泊位　海島遊垂釣「即撈即捕即食」
+# 沙拿與利物浦續約兩年
 
-![羅淑佩透露商界人士對香港發展海島及海岸線旅遊感到興趣。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799725_2_20250410125901.jpg&q=90)
+![沙拿與紅軍續約兩年。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800032_1_20250412070716.jpg&q=90)
   
 
-文化體育及旅遊局局長羅淑佩早前在北京拜會中央港澳辦主任、國務院港澳辦主任夏寶龍，匯報重點工作及未來工作計劃。羅淑佩接受報章訪問時表示，夏寶龍特別關注香港在旅遊方面如何推陳出新，特別是用好海岸和海島旅遊。
+效力英超利物浦的埃及前鋒沙拿與球會續約兩年，直至2027年。
 
   
 
@@ -1331,23 +394,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799725-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800032-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799725-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799725-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800032-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800032-20250412.htm)
 
 ---
 
-# 業界指美再加關稅影響物流鏈　有立法會議員料重塑供應鏈
+# 廣東大部分地區將出現強對流天氣　北京風力增強多個景區關閉
 
-![有業界指，不少出口商或電商平台趁著措施未生效前、即是下月2日前，盡快出貨。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799722_1_20250410112214.jpg&q=85)
+![廣東大部分地區將會出現強對流天氣，並有短時間強降雨。（中央氣象台網站圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800030_1_20250412064117.jpg&q=80)
   
 
-美國總統特朗普宣布，即時上調對中國加徵的關稅至125%。香港貨運物流業協會主席劉浩然說，關稅影響太大，廠商都擔驚受怕，寧願出少些貨，在連鎖反應下，物流鏈包括空運及海運都出現問題。
+內地中央氣象台發布強對流天氣、大風、暴雪和沙塵暴預警。
 
   
 
@@ -1355,23 +418,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800030-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799722-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800030-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800030-20250412.htm)
 
 ---
 
-# 陳美寶稱正籌備預約車統一平台　持續打擊非法載客取酬
+# 路透：為俄軍作戰的中國公民屬僱傭兵　似乎與中國政府沒直接聯繫
 
-![陳美寶表示，五支的士車隊正用各自方法籌備，政府會積極協助。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799720_1_20250410110708.jpg&q=75)
+![一名被烏軍俘虜的男子在鏡頭前稱自己是中國人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800029_1_20250412062455.jpg&q=90)
   
 
-立法會財委會繼續舉行特別會議。選委會界議員吳傑莊表示，5支的士車隊須於7月前運作，關注當局有否更多資源協助車隊提升市民體驗，以及會否調整網約車合法化管理框架。
+路透社引述美國官員和西方前情報人員報道，大約200名在烏克蘭為俄羅斯軍隊作戰的中國公民都是僱傭兵，似乎與中國政府沒有直接聯繫，但有中國軍官在北京批准下，在俄羅斯戰線後方戰區，並從中汲取戰術經驗。
 
   
 
@@ -1379,23 +442,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799720-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800029-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799720-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799720-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800029-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800029-20250412.htm)
 
 ---
 
-# 日股半日飆升2639點
+# 美元兌瑞郎跌至10年新低　美匯失守100
 
-![日經指數半日收報34353點，升2639點，升幅8.32%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799719_1_20250410103606.jpg&q=75)
+![衡量美元兌一籃子貨幣的美元指數失守100大關，較早時報99.786，跌0.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800028_1_20250412060238.jpg&q=55)
   
 
-東京股市顯著造好。
+美元兌主要貨幣下跌，衡量美元兌一籃子貨幣的美元指數失守100大關，較早時報99.786，跌0.73%。
 
   
 
@@ -1403,23 +466,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799719-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800028-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799719-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799719-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800028-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800028-20250412.htm)
 
 ---
 
-# 共同民主黨前黨魁李在明宣布參加新一屆南韓總統選舉
+# 油價反彈逾2%收市
 
-![李在明目前在不同機構的民調中領先。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799718_1_20250410102415.jpg&q=80)
+![油價反彈逾2%。美國表示可以阻止伊朗石油出口，市場預計或令供應減少。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800027_1_20250412055427.jpg&q=80)
   
 
-南韓最大在野黨共同民主黨前黨魁李在明宣布，參加新一屆總統選舉。
+原油期貨價格反彈逾2%。美國能源部長表示，作為總統特朗普就德黑蘭核項目施壓計劃的一部分，可以阻止伊朗石油出口，市場預計或令供應減少。
 
   
 
@@ -1427,23 +490,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799718-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800027-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799718-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799718-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800027-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800027-20250412.htm)
 
 ---
 
-# 王文濤：中方願與包括東盟在內貿易夥伴加強溝通協調
+# 道指升619點　全周升近5%
 
-![王文濤表示，中方願與包括東盟在內的貿易夥伴一道，加強溝通協調。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799717_1_20250410102343.jpg&q=90)
+![美股3大指數升逾1%至逾2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800026_1_20250412054911.jpg&q=90)
   
 
-在北京，商務部部長王文濤昨日與東盟輪值主席國、馬來西亞貿工部長扎夫魯視頻通話，雙方圍繞加強中馬和中國—東協經貿合作、共同應對美國加徵所謂「對等關稅」等問題交換意見。
+美股先低後高，3大指數升逾1%至逾2%，波士頓聯儲銀行總裁柯林斯表示，聯儲局絕對準備好在必要時，部署工具來應對金融市場的運作問題。他的言論紓緩投資者緊張情緒。
 
   
 
@@ -1451,23 +514,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800026-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799717-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800026-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800026-20250412.htm)
 
 ---
 
-# 恒指升幅擴至逾900點　重上21000點以上
+# 冷鋒相關驟雨及強烈狂風雷暴日間影響珠江口一帶　氣溫將顯著下降
 
-![港股升幅擴大至逾900點，恒指重上21000點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799716_1_20250410100209.jpg&q=70)
+![冷鋒相關驟雨及強烈狂風雷暴日間影響珠江口一帶　氣溫將顯著下降](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800025_1_20250412054358.jpg&q=90)
   
 
-港股升幅擴大逾900點，恒指重上21000點，較早時報21185點，升920點，升幅4.54%。
+天文台表示，位於華中的一道低壓槽會在今日逐漸發展為一道冷鋒，隨著冷鋒向南移動，預料相關的驟雨及強烈狂風雷暴會在日間影響珠江口一帶，部分地區雨勢較大，亦有猛烈陣風。
 
   
 
@@ -1475,23 +538,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799716-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800025-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799716-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799716-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800025-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800025-20250412.htm)
 
 ---
 
-# 內地3月通縮0.1%
+# 英股升逾0.6%　法德股市低收0.3%至近1%
 
-![內地3月居民消費價格指數（CPI）按年跌0.1%；首季亦跌0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799715_1_20250410095829.jpg&q=20)
+![法國CAC指數收報7104點，跌21點，跌幅0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800022_1_20250412053347.jpg&q=75)
   
 
-國家統計局公布，3月居民消費價格指數（CPI）按年跌0.1%，連跌兩個月，但跌幅較2月收窄0.6個百分點。食品價格跌1.4%，非食品價格升0.2%。
+歐洲股市3大指數個別發展。
 
   
 
@@ -1499,23 +562,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800022-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800022-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800022-20250412.htm)
 
 ---
 
-# 陳美寶稱全速推展智慧綠色集體運輸系統項目
+# 普京晤美國特使　白宮形容屬美俄朝著解決烏克蘭問題邁出的又一步
 
-![陳美寶說，當局亦正檢討與交通相關的收費和罰款，包括停車收費錶及交通違例事項定額罰款等。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799714_1_20250410101213.jpg&q=85)
+![俄羅斯總統普京在聖彼得堡會見到訪的美國中東問題特使威特科夫。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800023_1_20250412053545.jpg&q=90)
   
 
-運輸及物流局局長陳美寶表示，正在施工的東涌線延綫、小蠔灣站、屯門南延綫、古洞站和洪水橋站將在2027年起落成。北環綫主線的前期建造工程亦已展開，目標是於2034年落成。政府亦正全速推展智慧綠色集體運輸系統項目，目標是分別於今年就啟德項目招標，明年就東九龍及洪水橋／厦村及元朗南新發展區項目招標，希望於翌年批出合約。同時，力爭於今年內就南港島綫（西段）項目開展詳細規劃及設計。
+俄羅斯總統普京在聖彼得堡會見到訪的美國中東問題特使威特科夫，討論烏克蘭問題，是兩人今年第三次會晤。
 
   
 
@@ -1523,23 +586,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799714-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800023-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799714-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799714-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800023-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800023-20250412.htm)
 
 ---
 
-# 洛杉磯奧運將新增22個小項　將增設乒乓混合團體賽
+# 普京：海軍戰略核力量已全面配備現代化武器和裝備
 
-![國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799712_1_20250410093619.jpg&q=75)
+![普京在聖彼得堡舉行的海軍發展戰略會議上發表講話。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800021_1_20250412051721.jpg&q=90)
   
 
-國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額，共設351個小項，較巴黎奧運會的329個小項增加22項，其中乒乓混合團體賽將作為新增小項登上洛杉磯奧運會舞台。
+俄羅斯總統普京表示，海軍戰略核力量已全面配備現代化武器和裝備。
 
   
 
@@ -1547,23 +610,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799712-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800021-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799712-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799712-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800021-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800021-20250412.htm)
 
 ---
 
-# 人行逆回購操作659億元人民幣
+# 也門胡塞武裝稱襲擊美國杜魯門號航母編隊
 
-![人行進行659億元人民幣7日期逆回購操作。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799710_1_20250410093001.jpg&q=80)
+![也門首都薩那星期五有大批民眾上街，抗議美軍空襲當地。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800019_1_20250412043157.jpg&q=40)
   
 
-人民銀行公開市場進行659億元人民幣7日期逆回購操作，利率維持在1.5厘，對沖到期量後，單日淨回籠1575億元，連續兩日淨回籠。
+也門胡塞武裝表示，組織星期五襲擊了部署在紅海北部的美國航母編隊。
 
   
 
@@ -1571,23 +634,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799710-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800019-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799710-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799710-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800019-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800019-20250412.htm)
 
 ---
 
-# 滬深股市初段造好　上證指數重上3200點
+# 美國特使冀與伊朗建立信任　德黑蘭稱若美放棄威脅很可能達成協議
 
-![上證指數收復3200點，較早時報3213點，升26點，升幅0.82%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799713_1_20250410093659.jpg&q=75)
+![雙方代表團分別由美國中東問題特使威特科夫及伊朗外長阿拉格齊率領。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800018_1_20250412042656.jpg&q=80)
   
 
-滬深股市初段造好，上證指數收復3200點，較早時報3213點，升26點，升幅0.82%。
+美國和伊朗今日在阿曼就伊朗核問題談判，雙方代表團分別由美國中東問題特使威特科夫及伊朗外長阿拉格齊率領。
 
   
 
@@ -1595,23 +658,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799713-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800018-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799713-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799713-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800018-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800018-20250412.htm)
 
 ---
 
-# 恒指高開545點　科指升近3.7%
+# 北京發布近十年首個全市大風橙色預警　部分地區最高陣風達14級
 
-![恒指在競價時段報20810點，升545點，升幅2.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799709_1_20250410092324.jpg&q=75)
+![北京發布近十年首個全市大風橙色預警，星期五入夜後風力增強。（氣象北京徵博圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800017_1_20250412034521.jpg&q=90)
   
 
-港股跟隨亞太區股市高開，恒指在競價時段報20810點，升545點，升幅2.69%。
+內地中央氣象台發布強對流天氣、大風、暴雪、暴雨和沙塵暴預警。
 
   
 
@@ -1619,23 +682,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799709-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800017-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799709-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799709-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800017-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800017-20250412.htm)
 
 ---
 
-# 《環看天下》：應對美國關稅威脅　分析：或促使中歐經貿回暖
+# 特朗普：關稅政策非常好　白宮不評論是否等待中方首先行動
 
-![今年前兩個月中歐班列累計到發176列，同比增長22.9%。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799707_1_20250410092107.jpg&q=55)
+![白宮發言人萊維特強調，特朗普對貿易協議取得進展持樂觀態度。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800016_1_20250412031324.jpg&q=85)
   
 
-今年是中歐建交50周年，國務院總理李強日前同歐盟委員會主席馮德萊恩通電話。李強表示，中歐關係呈現穩中向好勢頭，中方願同歐方攜手努力，增進政治互信，拓展務實合作，並分享發展機遇。
+中國今日起對美國進口商品加徵的關稅稅率提高至125%，又表明如果美方繼續關稅數字遊戲，中方將不予理會。
 
   
 
@@ -1643,23 +706,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800016-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800016-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800016-20250412.htm)
 
 ---
 
-# 人民幣兌美元中間價下調26點子　創逾1年半新低
+# 美國佛州小型飛機墜毀　機上三人死亡地面一人受傷
 
-![人民幣中間價報7.2092兌1美元，較上日中間價下調26點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799706_1_20250410091921.jpg&q=65)
+![飛機在機場附近一條州際公路邊墜毀並起火。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800015_1_20250412023739.jpg&q=90)
   
 
-人民幣中間價報7.2092兌1美元，較上日中間價下調26點，創2023年9月11日以來新低。
+美國佛羅里達州南部有一架小型飛機墜毀，機上三人死亡、地面一人受傷。
 
   
 
@@ -1667,23 +730,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799706-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800015-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799706-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799706-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800015-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800015-20250412.htm)
 
 ---
 
-# 長江生命科技開市前停牌
+# 美伊今於阿曼談判　白宮稱特朗普目標是確保伊朗永遠無法取得核武
 
-![長江生命科技開市前停牌，停牌前報0.48元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799703_1_20250410091007.jpg&q=85)
+![萊維特表示，總統特朗普的最終目標是確保伊朗永遠無法取得核武器。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800014_1_20250412022949.jpg&q=85)
   
 
-長江生命科技開市前停牌，停牌前報0.48元。
+美國和伊朗今日將會在阿曼就伊朗核問題舉行談判，白宮發言人萊維特強調，會談將會是直接的。
 
   
 
@@ -1691,23 +754,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799703-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800014-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799703-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799703-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800014-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800014-20250412.htm)
 
 ---
 
-# 指明潛逃者許穎婷被通緝　據悉其父母被帶往警署協助調查
+# 普京晤美國特使　克宮稱俄美元首通電話理論上是可能
 
-![據了解，許穎婷的父母被帶到警署協助調查。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799705_1_20250410093438.jpg&q=90)
+![俄羅斯總統普京在聖彼得堡會見到訪的美國中東問題特使威特科夫。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800013_1_20250412012752.jpg&q=90)
   
 
-被警方通緝、列為指明危害國家安全罪行潛逃者的許穎婷，據了解，她的父母被帶到警署協助調查，調查有關許穎婷涉嫌勾結外部勢力危害國家安全的罪行，預計稍後完成調查後將離開警署。
+俄羅斯總統普京在聖彼得堡會見到訪的美國中東問題特使威特科夫，是兩人今年第三次會晤，討論烏克蘭局勢調解問題。
 
   
 
@@ -1715,23 +778,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799705-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800013-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799705-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799705-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800013-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800013-20250412.htm)
 
 ---
 
-# 工總稱進出口商已無生意做　學者料美方欲與中方脫勾斷鏈
+# 烏克蘭盟友承諾新一輪軍援　澤連斯基冀提供10套愛國者系統
 
-![莊子雄說，進出口商都處於觀望態度；麥萃才認為，商界應該專注發展其他市場。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799704_1_20250410093313.jpg&q=70)
+![英國、德國和烏克蘭防長出席記者會。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800012_1_20250412005240.jpg&q=85)
   
 
-美國總統特朗普宣布，即時上調對中國加徵的關稅至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。香港工業總會主席莊子雄表示，在貿易戰下，無論美方加徵多少關稅，數字上已經無影響，因為大家已經無可能再做生意，他形容美方非常不理性，進出口商都處於觀望態度。
+烏克蘭防務問題國際聯絡小組會議在比利時布魯塞爾舉行，美國、英國、德國等大約50個國家的代表出席，承諾向基輔提供210億歐元的新一輪軍事援助。
 
   
 
@@ -1739,23 +802,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800012-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799704-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800012-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800012-20250412.htm)
 
 ---
 
-# 台股初段急升逾9%　鴻海及台積電升停
+# 天文台料冷鋒相關驟雨及強烈狂風雷暴日間影響珠江口一帶
 
-![台灣加權指數初段報18972點，升1580點，升近9.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799702_1_20250410090500.jpg&q=85)
+![天文台料冷鋒相關驟雨及強烈狂風雷暴日間影響珠江口一帶](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800011_1_20250412002738.jpg&q=90)
   
 
-台灣股市大幅反彈，終止多日跌勢。美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。
+天文台表示，現時位於華中的一道低壓槽會在今日發展為一道冷鋒，隨著冷鋒向南移動，預料相關的驟雨及強烈狂風雷暴會在日間影響珠江口一帶，部分地區雨勢較大，亦有猛烈陣風。
 
   
 
@@ -1763,23 +826,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799702-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800011-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799702-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799702-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800011-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800011-20250412.htm)
 
 ---
 
-# 美暫緩多地高額對等關稅　日股升至逾8%　金價觸及3100美元
+# 內地料出現強對流及大風　北京市屬公園停開　珠江口多條客運停航
 
-![日韓股市造好，較早時分別升逾8%及近半成。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799701_1_20250410090046.jpg&q=90)
+![中央氣象台預料，部分地區出現短時間強降雨。（中央氣象台網站圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800010_1_20250411234928.jpg&q=80)
   
 
-美國總統特朗普暫緩對中國以外其他國家及地區徵收較高稅率的對等關稅90日，東京股市升幅擴大至逾8%。
+內地中央氣象台發布強對流天氣、大風、暴雪、暴雨和沙塵暴預警。
 
   
 
@@ -1787,23 +850,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799701-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800010-20250412.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799701-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799701-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800010-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800010-20250412.htm)
 
 ---
 
-# 澤連斯基：烏克蘭「技術團隊」將於華盛頓與美方就礦產協議磋商
+# 強對流天氣影響　珠江客運明後日多個航班停航
 
-![澤連斯基表示，烏克蘭的「技術團隊」將會在華盛頓與美方就礦產協議展開磋商。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799699_1_20250410100354.jpg&q=90)
+![珠江客運表示，受強對流天氣影響， 明天和後天多個航班將會停航。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800009_1_20250411230109.jpg&q=75)
   
 
-烏克蘭媒體報道，總統澤連斯基表示，烏克蘭的「技術團隊」將會在美國首都華盛頓與美方就礦產協議展開磋商。
+珠江客運表示，受強對流天氣影響， 明天和後天多個航班將會停航。
 
   
 
@@ -1811,23 +874,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799699-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800009-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799699-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799699-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800009-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800009-20250411.htm)
 
 ---
 
-# 商務部：李強剛與馮德萊恩通電話　中方願與歐方深化合作
+# 寧德時代：聯交所上市委員會已審閱公司的H股上市申請
 
-![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=25)
+![寧德時代：聯交所上市委員會已審閱公司的上市申請，但信函不構成正式的上市批准。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800007_1_20250411225447.jpg&q=90)
   
 
-商務部部長王文濤表示，國務院總理李強剛剛與歐盟委員會主席馮德萊恩通電話，向外界傳遞積極資訊。表示中方願與歐方相向而行，共同落實好中歐領導人達成的重要共識，加強溝通交流，深化中歐貿易、投資和產業合作。
+寧德時代表示，正在申請發行H股，並進行在香港主板掛牌上市的相關工作，聯交所上市委員會已於昨日舉行上市聆訊。
 
   
 
@@ -1835,23 +898,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800007-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800007-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800007-20250411.htm)
 
 ---
 
-# 韓股初段升逾4%
+# 蘇炳添：如無法在全運會為接力隊帶來優勢沒必要堅持
 
-![首爾綜合指數較早時報2398點，升104點，升幅4.56%。（KRX圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799694_1_20250410080250.jpg&q=85)
+![蘇炳添在廣東肇慶舉行的全國田徑大獎賽首站，男子100米預賽中跑出10秒49，晉級半決賽。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800008_1_20250411225859.jpg&q=85)
   
 
-南韓股市初段升逾4%。
+國家短跑名將蘇炳添在廣東肇慶舉行的全國田徑大獎賽首站，男子100米預賽中跑出10秒49，晉級半決賽。他賽後表示，這次比賽有可能是自己的百米告別戰。
 
   
 
@@ -1859,23 +922,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799694-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800008-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799694-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799694-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800008-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800008-20250411.htm)
 
 ---
 
-# 日股初段升近2%
+# 美國密歇根大學4月消費者信心指數初值跌至50.8遜預期
 
-![日經指數較早時32325點，升611點，升幅1.93%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799696_1_20250410080607.jpg&q=75)
+![美國密歇根大學消費者調查顯示，美國4月消費者信心指數初值跌至50.8，低過預期的54.5。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800006_1_20250411221641.jpg&q=50)
   
 
-東京股市初段跟隨隔夜美股上升。
+美國密歇根大學消費者調查顯示，美國4月消費者信心指數初值跌至50.8，低過預期的54.5。
 
   
 
@@ -1883,23 +946,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799696-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800006-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799696-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799696-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800006-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800006-20250411.htm)
 
 ---
 
-# 聯儲局會議記錄：面對通脹上升和經濟增長放緩　或將面對艱難取捨
+# 卡什卡利：聯儲局應該在市場真正受到衝擊時才謹慎地干預
 
-![部分決策者指出，聯儲局未來或將面對艱難的取捨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799693_1_20250410074842.jpg&q=75)
+![卡什卡利表示，聯儲局應該在市場真正受到衝擊時，才以非常謹慎的態度干預。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800002_1_20250411220055.jpg&q=60)
   
 
-美國聯儲局會議記錄顯示，決策者在上月會議上幾乎一致認為，美國經濟同時面臨通脹上升和經濟增長放緩的風險，部分決策者指出，聯儲局未來或將面對艱難的取捨。
+美國明尼亞波利斯聯邦儲備銀行總裁卡什卡利表示，聯儲局應該在市場真正受到衝擊時，才以非常謹慎的態度干預，強調聯儲局和財政部的介入，應在真正需要的時候才出手。
 
   
 
@@ -1907,23 +970,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799693-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799693-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799693-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm)
 
 ---
 
-# 歐聯八強首回合　巴塞羅那4:0多蒙特　聖日耳門3:1維拉
+# 運輸署籲啟德演唱會觀眾今晚離場時盡量乘搭港鐵
 
-![巴塞羅那今仗有利雲度夫斯基（右二）連續攻入兩球。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799692_1_20250410073427.jpg&q=85)
+![英國樂隊Coldplay今晚在啟德體育園主場館舉行第三場演唱會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800003_1_20250411221818.jpg&q=70)
   
 
-歐聯八強首回合，巴塞羅那4:0大勝多蒙特，巴黎聖日耳門3:1反勝阿士東維拉。
+英國樂隊Coldplay今晚在啟德體育園主場館舉行第三場演唱會，運輸署預計今晚稍後結束時，同一時間離場觀眾較多，呼籲盡量乘搭港鐵。
 
   
 
@@ -1931,23 +994,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799692-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800003-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799692-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799692-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800003-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800003-20250411.htm)
 
 ---
 
-# 美元兌日圓和瑞士法郎反彈逾1%
+# 郭蔭庶：香港可成為國家及全球科技產業協作樞紐
 
-![美元兌日圓和瑞士法郎等，美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799690_1_20250410071102.jpg&q=75)
+![公務員學院在政府總部舉辦第四場「撮合南北：多極世界中的中國系列」講座。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800001_3_20250411224836.jpg&q=80)
   
 
-美元兌日圓和瑞士法郎等避險貨幣反彈，美國總統特朗普暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。
+公務員學院在政府總部舉辦第四場「撮合南北：多極世界中的中國系列」講座，由上海交通大學溥淵未來技術學院院長倪軍主講，大約190名分別來自44個決策局或部門的首長級和中高級公務員，現場或透過網上參與。
 
   
 
@@ -1955,23 +1018,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799690-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800001-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799690-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799690-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800001-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800001-20250411.htm)
 
 ---
 
-# 港股ADR較本港昨日收市價相比個別發展　滙控急升近7%
+# 法庭拒絕新田科技城環評覆核案更換申請人　政府表示歡迎
 
-![港股ADR個別發展，滙控急升近7%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799689_1_20250410065725.jpg&q=90)
+![高等法院頒布裁決，拒絕新田科技城環境影響評估報告司法覆核更換申請人，並同時撤銷原有司法覆核個案。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800000_1_20250411220843.jpg&q=90)
   
 
-港股美國預託證券(ADR)個別發展。
+新田科技城環境影響評估司法覆核申請人謝世傑申請退出訴訟，​高等法院頒布裁決，拒絕改由前西貢區議員陳嘉琳代替謝世傑，同時撤銷原有司法覆核個案。政府對裁決表示歡迎。
 
   
 
@@ -1979,23 +1042,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799689-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800000-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799689-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799689-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800000-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800000-20250411.htm)
 
 ---
 
-# 金價升3%或以上　市場憂中美貿易緊張局勢進一步升級
+# Tesla中國暫停接受兩款進口型號汽車新訂單
 
-![金價升3%或以上，受避險資金推動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799687_1_20250410054033.jpg&q=75)
+![Tesla中國官網已暫停接受Model S和Model X兩個型號汽車的新訂單，僅保留「查看現車」選項。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799999_1_20250411214432.jpg&q=80)
   
 
-金價升3%或以上，受避險資金推動，市場擔心中美貿易緊張局勢進一步升級。
+貿易戰下，美國電動車生產商Tesla的中國官網，已暫停接受Model S和Model X兩個型號汽車的新訂單，僅保留「查看現車」選項，意味消費者只能選購現有庫存車輛。
 
   
 
@@ -2003,23 +1066,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799687-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799687-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799687-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm)
 
 ---
 
-# 歐洲3大指數跌近3%或以上
+# 副特派員潘雲東冀各界依托優勢講好國家及香港故事
 
-![法國CAC指數收報6863點，跌237點，跌幅3.34%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799686_1_20250410053534.jpg&q=90)
+![助理廣播處長李慶華（右）出席外交部駐港特派員公署舉辦的短視頻比賽頒獎禮，並頒發獎項給得獎者。（張連登攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799998_2_20250411230517.jpg&q=75)
   
 
-歐洲3大指數下跌。
+外交部駐港特派員公署副特派員潘雲東表示，國家正以中國式現代化全面推進強國建設和民族復興偉業，國際社會日益聚焦中國、矚目香港，期望社會各界繼續發揮創造力和聰明才智，依托香港「背靠祖國、聯通世界」的優勢，講好香港故事和國家故事。
 
   
 
@@ -2027,23 +1090,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799686-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799686-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799686-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm)
 
 ---
 
-# 油價轉升逾4%收市
+# 美股初段向下
 
-![油價初段跌約7%，最終收市升逾4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799685_1_20250410053148.jpg&q=90)
+![道瓊斯指數較早時報39280點，跌312點，跌幅0.79%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799997_1_20250411213735.jpg&q=70)
   
 
-原油期貨價格由跌轉升，美國總統特朗普暫緩對中國以外國家徵收較高額對等關稅90日。
+美股初段向下。投資者正在消化中國對原產於美國進口商品關稅稅率提高至125%的影響。
 
   
 
@@ -2051,23 +1114,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799685-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799685-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799685-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm)
 
 ---
 
-# 特朗普暫緩多國高額關稅但上調對華關稅　相信最終會與華達成協議
+# 紫金礦業上季盈利按年升逾62%
 
-![特朗普相信，美方會在某個時候接到中方的電話，雙方最終會達成一項非常好的協議。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799684_1_20250410053117.jpg&q=90)
+![紫金礦業今年首季盈利101.7億元人民幣，按年升逾62%，按季升32%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799996_1_20250411205208.jpg&q=85)
   
 
-美國總統特朗普宣布，即時上調對中國加徵的關稅至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。
+紫金礦業公布，今年首季盈利101.7億元人民幣，按年升逾62%，按季升32%。扣除非經常性損益，盈利98.8億元，按年升近59%。
 
   
 
@@ -2075,23 +1138,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799684-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799684-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799684-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm)
 
 ---
 
-# 道指急升2962點　納指飆逾12%　美國暫緩多國高額對等關稅
+# 美國3月最終需求PPI及核心指數按年升幅都低過預期
 
-![美股急升，美國暫緩對中國以外其他國家徵收較高稅率的對等關稅90日。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799683_1_20250410052450.jpg&q=85)
+![美國3月最終需求生產物價指數(PPI)按年上升2.7%，低過預期的3.3%；按月則意外下跌0.4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799994_1_20250411204408.jpg&q=35)
   
 
-美股急升，美國總統特朗普表示，對中國加徵的關稅稅率提升至125%，但暫緩對其他國家徵收較高稅率的對等關稅90日。
+美國3月反映上游成本的最終需求生產物價指數(PPI)按年上升2.7%，低過預期的3.3%；按月則意外下跌0.4%，市場原先預期會升0.2%。
 
   
 
@@ -2099,23 +1162,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799683-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799994-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799683-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799683-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799994-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799994-20250411.htm)
 
 ---
 
-# 世貿總幹事稱中美商品貿易或減少多達八成
+# 美國撤格陵蘭基地指揮官職務　據報因她與萬斯劃清界線
 
-![伊維拉呼籲所有成員透過合作與對話來應對挑戰。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799681_1_20250410042358.jpg&q=90)
+![美國駐格陵蘭軍事基地指揮官邁耶斯（圖左），曾與副總統萬斯交談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799995_1_20250411204858.jpg&q=75)
   
 
-世貿總幹事伊維拉表示，中美貿易緊張局勢不斷升級，構成雙邊貿易大幅萎縮的重大風險，初步預測可能令兩國商品貿易減少多達八成。
+美國駐格陵蘭軍事基地指揮官邁耶斯被撤職，據報因她曾發電郵就副總統萬斯批評丹麥的言論劃清界線。
 
   
 
@@ -2123,23 +1186,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799681-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm)
 
 ---
 
-# 馬克龍：法國可能在今年6月承認巴勒斯坦國
+# 多家內地企業助外貿企業出口轉內銷　京東擬採購至少2千億元產品
 
-![馬克龍認為，在適當時機承認巴勒斯坦國是正當。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799680_1_20250410034904.jpg&q=90)
+![京東表示，未來一年內將大規模採購不少於2000億元人民幣的出口轉內銷商品，幫助中國的外貿企業快速開拓國內市場。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799990_1_20250411201204.jpg&q=70)
   
 
-法國總統馬克龍表示，法國可能在今年6月承認巴勒斯坦國。
+多家內地零售企業啟動扶持計劃，幫助中國外貿企業開拓國內市場，包括京東、盒馬鮮生、聯華超市等。
 
   
 
@@ -2147,23 +1210,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799680-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799990-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799680-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799680-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799990-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799990-20250411.htm)
 
 ---
 
-# 英王查理斯三世與王后卡米拉到梵蒂岡與教宗會晤
+# 摩根大通上季盈利按年升逾9%
 
-![查理斯三世與卡米拉到訪意大利。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799678_1_20250410034010.jpg&q=80)
+![摩根大通今年首季盈利146.4億美元，按年增長逾9%，按季升近5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799993_1_20250411203319.jpg&q=85)
   
 
-出訪意大利的英王查理斯三世與王后卡米拉突然前往梵蒂岡，與教宗方濟各會面。
+摩根大通公布，今年首季盈利146.4億美元，按年增長逾9%，按季升近5%。每股經調整盈利5.07美元，按年升14%，按季升逾5%。
 
   
 
@@ -2171,23 +1234,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799678-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799678-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799678-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm)
 
 ---
 
-# 澤連斯基：155名中國公民為俄軍作戰
+# 劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰
 
-![澤連斯基說，烏方正試圖評估這些被招募人員是否接受來自北京的指示。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799677_1_20250410033738.jpg&q=90)
+![劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799992_1_20250411213700.jpg&q=85)
   
 
-烏克蘭總統澤連斯基表示，情報部門掌握的信息顯示，有155名中國公民正在為俄羅斯軍隊作戰，對抗烏克蘭，指俄羅斯透過社交媒體招募中國公民參戰，中國官員亦知情，烏方正試圖評估這些被招募人員是否接受來自北京的指示。
+中共中央總書記、國家主席習近平在北京與西班牙首相桑切斯會面時，首次就近日的關稅議題發聲，強調「打關稅戰」沒有贏家，同世界作對將孤立自己，重申中方不畏懼任何無理打壓。
 
   
 
@@ -2195,23 +1258,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799677-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799677-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799677-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm)
 
 ---
 
-# 美股急升　道指重上4萬點　納指升逾一成
+# 李強批美國關稅措施損國際經貿秩序　為全球經濟帶來巨大負面影響
 
-![道指重上4萬點水平。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799676_1_20250410024258.jpg&q=90)
+![李強表示，美國加徵所謂「對等關稅」，嚴重損害國際經貿秩序，為全球經濟帶來巨大負面影響。（新華社圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799991_1_20250411201807.jpg&q=50)
   
 
-美國總統特朗普宣布90日暫停向中國以外國家徵收高額對等關稅，刺激美股急升。
+國務院總理李強與訪華的西班牙首相桑切斯會談。
 
   
 
@@ -2219,23 +1282,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799991-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799676-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799991-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799991-20250411.htm)
 
 ---
 
-# 特朗普：對等關稅90日內暫降至一成　對華關稅即時增至125%
+# 元朗5人涉策劃傷人案　遇查反抗遭警員擎槍制服
 
-![特朗普表示，由於中國對世界市場的不尊重，決定將美國對中國徵收的關稅提高至125%，即時生效。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799674_1_20250410015631.jpg&q=90)
+![行動中2名警員受傷，警方一度擎槍制服疑犯。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799989_1_20250411213724.jpg&q=90)
   
 
-美國總統特朗普宣布，即時上調對中國加徵的關稅稅率至125%，並暫緩對其他國家徵收較高稅率的對等關稅90日。
+警方採取情報主導行動，拘捕5名非華裔男子，年齡介乎20至25歲，涉嫌串謀意圖傷人、意圖傷人及行使虛假文書。行動中2名警員受傷，警方一度擎槍制服疑犯。
 
   
 
@@ -2243,23 +1306,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799989-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799674-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799989-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799989-20250411.htm)
 
 ---
 
-# 中方從中午起對美加徵84%關稅　文化和旅遊部對赴美遊客發提示
+# 金融監管總局發指導意見促進金融資產管理公司高質量發展
 
-![商務部表示，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799673_1_20250410012424.jpg&q=25)
+![國家金融監管總局發出指導意見，要求金融資產管理公司支持受困房企項目紓困化險。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799984_1_20250411185302.jpg&q=75)
   
 
-中方進一步反制美國向中國產品徵收104%的關稅措施，今日中午起對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。
+國家金融監管總局發出指導意見，提出16條意見措施，要求金融資產管理公司做強做優不良資產收購處置業務，服務化解中小金融機構、房地產等領域風險，持續加強風險管理和內控機制建設，強化存量風險資產處置，嚴控增量業務風險，加強資產負債和流動性管理。
 
   
 
@@ -2267,23 +1330,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm)
 
 ---
 
-# 中方稱美國對等關稅開錯方、吃錯藥　無助解決貿易不平衡問題
+# 特區政府對范禮全請辭表示遺憾　稱不會削弱本港司法制度基礎
 
-![世界貿易組織召開貨物貿易理事會年度首次會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799672_1_20250410004211.jpg&q=85)
+![特區政府對范禮全請辭表示遺憾，並感謝范禮全過去多年的貢獻。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799986_1_20250411191605.jpg&q=75)
   
 
-世界貿易組織召開貨物貿易理事會年度首次會議，中方嚴重關切美國對等關稅措施及其惡劣影響，要求美方切實遵守世貿規則，避免對全球經濟和多邊貿易體制造成負面衝擊。
+終審法院非常任法官范禮全請辭。特區政府表示遺憾，並感謝范禮全過去多年的貢獻，又指個別法官的去留不會削弱香港司法制度的基礎，亦無損特區政府堅持維護法治的決心。特區政府會全力支持司法機構日後繼續致力委任和保留外籍非常任法官的工作，並竭盡所能善用普通法制度，堅定維護香港法治。
 
   
 
@@ -2291,23 +1354,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799986-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799986-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799986-20250411.htm)
 
 ---
 
-# 伊朗總統：德黑蘭將在有尊嚴情況下與美國間接談判
+# 鄧炳強稱本港面對四大國安風險　將致力提升市民慎思明辨能力
 
-![佩澤希齊揚參觀伊朗國家核工業成就展。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799671_1_20250410003924.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799985_1_20250411190632.jpg&q=85)
   
 
-伊朗總統佩澤希齊揚表示，德黑蘭將在有尊嚴情況下，與美國進行間接談判。
+保安局局長鄧炳強表示，政府會繼續加強國家安全及反恐情報收集及分析，以及與其他政策局及部門合作，更好地履行維護國家安全的責任。
 
   
 
@@ -2315,23 +1378,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799671-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799985-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799671-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799671-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799985-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799985-20250411.htm)
 
 ---
 
-# 德國聯盟黨與社民黨公布執政協議　默茨稱歐洲需共同回應美國關稅
+# 菲律賓鋼鐵大王郭從願遭綁架撕票　中方要求將凶手繩之於法
 
-![默茨說，德國正迎來一個強大而有效的政府。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799670_1_20250410003022.jpg&q=90)
+![菲律賓鋼鐵大王郭從願遭綁架撕票　中方要求將凶手繩之於法](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799940_1_20250411154405.jpg&q=90)
   
 
-由基督教民主聯盟和基督教社會聯盟組成的德國聯盟黨，與德國社會民主黨公布聯合執政協議。
+有菲律賓「鋼鐵大王」之稱的著名華僑郭從願，在菲律賓遭綁架撕票。
 
   
 
@@ -2339,23 +1402,23 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799670-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799670-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799670-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm)
 
 ---
 
-# 救援隊指揮官：隊員體能消耗嚴重獲特許缺勤　隊員讚揚搜救犬表現
+# 王毅指美國不能任意妄為　歷史車輪不能倒退
 
-![​香港特區救援隊完成緬甸地震災區搜救任務，指揮官趙汝珏透露，今次出發前只花15分鐘就成功召集隊員。（施華駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799669_1_20250410001423.jpg&q=85)
+![王毅與格羅西會晤。（外交部圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799983_1_20250411184900.jpg&q=80)
   
 
-​香港特區救援隊完成緬甸地震災區搜救任務，晚上返抵本港。特區救援隊指揮官趙汝珏表示，在救援期間經歷過4次餘震，要緊急撤離，又提到緬甸日間超過40度，晚間亦超過30度，導致隊員體能消耗嚴重，未能很好休息。隊員由周四起享有4天的特許缺勤。
+中共中央政治局委員、外交部長王毅在北京，與國際原子能機構總幹事格羅西會面時批評美國推出的關稅措施，凌駕各國利益，美國不能任意妄為。
 
   
 
@@ -2363,13 +1426,13 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799669-20250410.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799669-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799669-20250410.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm)
 
 ---

@@ -1,3 +1,243 @@
+# Argentina ends foreign exchange restrictions
+
+![Economy minister Luis Caputo said the controls limited the normal functioning of the economy. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800047_1_20250412095454.jpg&q=90)
+  
+
+Argentina dismantled key parts of its years-long currency controls and loosened its grip on the peso on Friday as it sealed a US$20 billion, 48-month Extended Fund Facility deal with the International Monetary Fund (IMF).
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800047-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800047-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800047-20250412.htm)
+
+---
+
+# US stocks finish on upbeat tone after volatile week
+
+![Investors are also turning attention to quarterly earnings season, which began on Friday. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800024_1_20250412054829.jpg&q=80)
+  
+
+Wall Street stocks finished solidly higher on Friday, concluding a rollercoaster week on a positive note amid hopes that the market has absorbed the worst headlines about trade conflicts.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800024-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800024-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800024-20250412.htm)
+
+---
+
+# HK stocks end up as Beijing has last say on tariffs
+
+![The Hang Seng Index ended up 1.13 percent to close at 20,914.69. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799960_1_20250411172140.jpg&q=90)
+  
+
+The US dollar tumbled along with most stocks while gold hit a fresh record high as panic gripped markets again on Friday, while China retaliated against Donald Trump's latest tariff blitz against the world's number two economy.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799960-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799960-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799960-20250411.htm)
+
+---
+
+# HK to firmly safeguard nation's financial security: FS
+
+![Paul Chan says the SAR government has formulated various response plans to help fend off financial risks. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799904_1_20250411111509.jpg&q=85)
+  
+
+Financial Secretary Paul Chan on Friday said Hong Kong is building a comprehensive financial protection network with systematic response plans and monitoring mechanisms to safeguard what he called the "southern gate" of the nation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799904-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799904-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799904-20250411.htm)
+
+---
+
+# Diversity key to success amid tariff war: lawmaker
+
+![Lawmaker Kennedy Wong says having a diversified set of trading partners will be increasingly important for Hong Kong firms. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799911_1_20250411115034.jpg&q=70)
+  
+
+Lawmaker Kennedy Wong on Friday said the world had entered a new period of uncertainty and disruption because of the US tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799911-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799911-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799911-20250411.htm)
+
+---
+
+# Local stocks open down 0.6pc amid tariff woes
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799887_1_20250411091935.jpg&q=70)
+  
+
+Hong Kong stocks fell on Friday, hurt by growing concerns about the US trade war and the potential for a global recession.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799887-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799887-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799887-20250411.htm)
+
+---
+
+# Trump tariff worries hammer Asian stocks
+
+![A display in Tokyo shows stock market declines in the wake of US President Donald Trump's tariff announcements. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799881_1_20250411090527.jpg&q=35)
+  
+
+Continuing jitters about US tariffs hit Asian stocks in early trade on Friday, with Japan's Nikkei tumbling more than five percent and gold hitting another record high.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799881-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799881-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799881-20250411.htm)
+
+---
+
+# Country Garden reaches debt deal with some creditors
+
+![Country Garden said creditors holding 29.9 percent of US$10.3 billion in bonds had agreed to the plan. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799869_1_20250411075059.jpg&q=90)
+  
+
+Chinese property developer Country Garden said on Friday it had reached an agreement with creditors holding nearly 30 percent of its existing offshore bond debt and was close to finalising terms with another group of bank creditors.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799869-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799869-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799869-20250411.htm)
+
+---
+
+# US stocks dive amid fears over US-China trade war
+
+![Major US indices spent the entire day in the red, disappointing traders who'd been hoping to extend Wednesday's rally following Trump's pivot on tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799860_1_20250411061810.jpg&q=50)
+  
+
+Wall Street stocks suffered another battering on Thursday, giving back a sizeable portion of the prior session's gains as investors grappled with lingering uncertainty about US President Donald Trump's trade and economic policies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799860-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799860-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799860-20250411.htm)
+
+---
+
+# Democrats want insider probe over Trump's flip-flop
+
+![Donald Trump is said to have posted a few minutes after Wall Street opened that 'IT'S TIME TO BUY', hours before he announced a 90-day suspension of additional tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799813_1_20250410183656.jpg&q=75)
+  
+
+Several American senators have called for an investigation into whether US President Donald Trump engaged in insider trading or market manipulation by encouraging people to buy stocks just before his dramatic reversal on global tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799813-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799813-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799813-20250410.htm)
+
+---
+
 # HK stocks keep rising despite Trump's China escalation
 
 ![The Hang Seng Index ended up 2.06 percent at 20,681.78. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799800_1_20250410172543.jpg&q=90)
@@ -1196,245 +1436,5 @@ Hong Kong stocks ended higher on Tuesday, with the benchmark Hang Seng Index up 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm)
-
----
-
-# Stocks market maker plans to expand in Central
-
-![Jane Street is said to be in talks with Hongkong Land to take over two more floors in Central. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798414_1_20250401120606.jpg&q=75)
-  
-
-Jane Street, one of the world's largest quant trading firms and market makers, is planning a sharp increase in Hong Kong office space, two people familiar with the matter said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm)
-
----
-
-# Tesla faces backlash over Musk, weakening demand
-
-![Sales of Tesla EVs are slowing in Europe amid a growing backlash against its CEO Elon Musk over his political views. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798413_1_20250401120524.jpg&q=75)
-  
-
-Tesla investors are bracing for a drop in first-quarter vehicle deliveries as a backlash against CEO Elon Musk's politics exacerbates weakening demand for the electric vehicle maker's lineup.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm)
-
----
-
-# Hong Kong stocks rise ahead of Trump tariffs
-
-![US President Donald Trump will announces his new tariff regime on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798391_1_20250401101418.jpg&q=25)
-  
-
-The Hang Seng Index gained 97.53 points, or 0.42 percent, to open at 23,217.11 points on Tuesday, as the market prepares for more news about US tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm)
-
----
-
-# OpenAI to raise US$40 billion in new funding
-
-![SoftBank is to pump US$10 billion into OpenAI to start, and US$30 billion more by the end of this year pending certain conditions. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798374_1_20250401084730.jpg&q=85)
-  
-
-OpenAI on Monday said it raised US$40 billion in a new funding round that valued the ChatGPT maker at US$300 billion, the biggest capital-raising session ever for a startup.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm)
-
----
-
-# US stocks recover from sell-off ahead of Trump tariffs
-
-![On Wall Street, the S&P 500 bounced into positive territory from a six-month low. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798357_1_20250401060041.jpg&q=85)
-  
-
-US stocks shook off some early gloom about Donald Trump's imminent tariff announcement to close mixed on Monday, with the S&P 500 bouncing into positive territory from a six-month low.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm)
-
----
-
-# Retail sales slip again in February
-
-![Hong Kong's retail sales dropped by 13 percent year on year in February, partly due to high pre-festival spending from the Lunar New Year holiday falling in the same month last year. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798288_1_20250331172638.jpg&q=80)
-  
-
-Hong Kong's retail sales suffered a notable decline last month, dropping by 13 percent year on year partially due to the different timing of the Lunar New Year holiday, according to official figures.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798288-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798288-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798288-20250331.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 1.3 percent at 23,119. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798291_1_20250331172815.jpg&q=20)
-  
-
-Hong Kong stocks ended lower on Monday, with the benchmark Hang Seng Index down 1.3 percent at 23,119.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798291-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798291-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798291-20250331.htm)
-
----
-
-# China's factory PMI expands at fastest pace in a year
-
-![Official data shows the purchasing managers' index for manufacturing was up 0.3 percentage points from February. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798209_1_20250331101633.jpg&q=50)
-  
-
-China's manufacturing activity expanded at the fastest pace in a year in March, an official factory survey showed on Monday, in a positive sign for the world's second-largest economy as it deals with an escalating US trade war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm)
-
----
-
-# Hong Kong stocks open slightly lower at opening
-
-![On Monday, official data showed the mainland's manufacturing activity expanding at its fastest pace in a year. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798185_1_20250331104203.jpg&q=55)
-  
-
-The Hang Seng Index lost 0.94 percent to open at 23,207 points on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm)
-
----
-
-# Four large state-owned banks recapitalise
-
-![The fundraising will boost the ability of the banks to bolster the real economy. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798177_1_20250331072356.jpg&q=75)
-  
-
-Four of the mainland's largest state-owned banks said on Sunday they plan to raise a combined 520 billion yuan (US$71.60 billion) in private placements from investors, including the Ministry of Finance (MOF), after Beijing pledged to help them support the economy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798177-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798177-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798177-20250331.htm)
 
 ---

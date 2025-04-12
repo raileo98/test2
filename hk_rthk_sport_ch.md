@@ -1,5 +1,150 @@
+# 沙拿與利物浦續約兩年
+
+![沙拿與紅軍續約兩年。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800032_1_20250412070716.jpg&q=90)
+  
+
+效力英超利物浦的埃及前鋒沙拿與球會續約兩年，直至2027年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800032-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800032-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800032-20250412.htm)
+
+---
+
+# 蘇炳添：如無法在全運會為接力隊帶來優勢沒必要堅持
+
+![蘇炳添在廣東肇慶舉行的全國田徑大獎賽首站，男子100米預賽中跑出10秒49，晉級半決賽。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800008_1_20250411225859.jpg&q=85)
+  
+
+國家短跑名將蘇炳添在廣東肇慶舉行的全國田徑大獎賽首站，男子100米預賽中跑出10秒49，晉級半決賽。他賽後表示，這次比賽有可能是自己的百米告別戰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800008-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800008-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800008-20250411.htm)
+
+---
+
+# 人行等部門發文要求金融機構支持合條件體育企業發債
+
+![人行、國家體育總局等部門聯合發出指導意見，要求發揮金融促進體育消費增長功能。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799959_1_20250411171421.jpg&q=60)
+  
+
+人民銀行、國家體育總局、國家金融監管總局、中國證監會聯合發出指導意見，要求金融機構加大對體育場館等體育基礎設施建設和營運的支持力度；支持符合條件的體育企業發行公司債券，鼓勵發展股權融資，提升體育產業的直接融資比重等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799959-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799959-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799959-20250411.htm)
+
+---
+
+# 港隊陳善鈺U23世界壁球錦標賽奪得銀牌
+
+![陳善鈺奪得U23世錦賽亞軍。（中國香港壁球總會提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799868_1_20250411074822.jpg&q=80)
+  
+
+港隊女子壁球代表陳善鈺在23歲以下世界壁球錦標賽奪得銀牌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799868-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799868-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799868-20250411.htm)
+
+---
+
+# 歐霸盃八強首回合　曼聯2:2里昂　熱刺1:1法蘭克福
+
+![曼聯作客尾段取得入球，但最終被追和。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799864_1_20250411072650.jpg&q=90)
+  
+
+歐霸盃八強首回合，曼聯作客里昂賽和2:2。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799864-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799864-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799864-20250411.htm)
+
+---
+
+# 曼聯巡迴賽主管冀大家相信隊中球星將來港比賽
+
+![曼聯希望大家相信隊中球星包括般奴費南迪斯、加拿祖、卡斯美路等，將參與今場比賽。（施華駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799811_1_20250410181335.jpg&q=80)
+  
+
+英超球隊曼聯將於5月30日晚上8時，在香港大球場對陣港隊，門票明日中午起在網上發售，票價介乎390至2990元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799811-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799811-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799811-20250410.htm)
+
+---
+
 # 曼聯訪港門票390至2990元　明午12時起購票通網站發售
 
+![曼聯繼2013年訪港後，時隔12年再次來港作賽。（施華駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799785_1_20250410181021.jpg&q=80)
   
 
 英超球隊曼聯將於5月30日晚上8時，在香港大球場對陣中國香港足球代表隊，門票明日中午12時起在購票通網站發售，票價介乎390至2990元。
@@ -1313,149 +1458,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797821-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797821-20250328.htm)
-
----
-
-# 「超級三月」帶動旅客人數升　羅淑佩稱重視為旅客打造優質體驗
-
-![羅淑佩認為，「香港盛匯超級三月」聚焦體育、藝術及旅遊活動，已成功帶動旅客人數顯著上升。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797815_1_20250328110405.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩認為「香港盛匯超級三月」聚焦體育、藝術及旅遊活動，已成功帶動旅客人數顯著上升，但當局並非單純追求人數，更重視為旅客打造優質體驗，其中一項新策略是善用海岸線和離島，重塑旅遊產業面貌，吸引高消費旅客來港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm)
-
----
-
-# 七欖開鑼　九龍城餐廳稱人流增兩至三成將延長營業時間
-
-![九龍城餐廳東主指感受到啟德體育園周邊的生意有增長，早前在測試賽及開幕禮時，已見到九龍城區內人流明顯增加大約兩至三成。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797806_1_20250328101357.jpg&q=45)
-  
-
-香港國際七人欖球賽一連3日在啟德體育園舉行，九龍城區議會提振地區經濟專責工作小組主席黃文莉表示，社會重視交通安排，港鐵與巴士公司有與區議會緊密聯繫，溝通後有改善特別巴士線和的士上落客區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm)
-
----
-
-# 七欖開鑼　港鐵屯馬綫將加強服務　離場安排「空載列車」候命
-
-![屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797805_1_20250328094806.jpg&q=80)
-  
-
-港鐵表示，為配合一連3日在啟德體育園舉行的香港國際七人欖球賽活動，屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm)
-
----
-
-# 女子歐聯8強次回合巴塞6:1挫禾夫斯堡　車路士3:0曼城
-
-![巴塞女足兩回合10:2血洗禾夫斯堡。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797781_1_20250328070857.jpg&q=80)
-  
-
-巴塞女足也傳來好消息，她們在女子歐聯8強次回合，6:1血洗德國的禾夫斯堡女足，兩回合計大勝10:2殺入4強。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797781-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797781-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797781-20250328.htm)
-
----
-
-# 西甲巴塞羅那3球輕取奧沙辛拿
-
-![巴塞繼續排榜首，領先皇家馬德里3分。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797780_1_20250328070811.jpg&q=85)
-  
-
-西甲巴塞羅那3球輕取奧沙辛拿。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797780-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797780-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797780-20250328.htm)
-
----
-
-# 邁阿密網球賽「一姐」莎芭蓮卡殺入女單決賽
-
-![邁阿密網球賽「一姐」莎芭蓮卡殺入女單決賽。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797779_1_20250328070326.jpg&q=90)
-  
-
-邁阿密網球賽女單4強，世界排名第一的莎芭蓮卡，面對6號種子意大利的柏奧莉妮，只用了71分鐘，就以直落兩盤6:2輕取對手，殺入決賽。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797779-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797779-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797779-20250328.htm)
 
 ---

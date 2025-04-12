@@ -1,3 +1,363 @@
+# South Carolina executes second convict by firing squad
+
+![Mikal Mahdi (pictured) was executed for the 2004 murder of 56-year-old James Myers. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800044_1_20250412094035.jpg&q=85)
+  
+
+A man facing the death penalty for committing two murders was executed by firing squad on Friday, the second such execution in the US state of South Carolina this year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800044-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800044-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800044-20250412.htm)
+
+---
+
+# Head of Greenland base fired after Vance visit
+
+![Colonel Susannah Meyers was removed after reports she distanced herself from comments made by US Vice President JD Vance. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800020_1_20250412045204.jpg&q=80)
+  
+
+The head of the US military base in Greenland, a Danish territory coveted by US President Donald Trump, has been fired for criticising Washington's agenda for the Arctic island.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800020-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800020-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800020-20250412.htm)
+
+---
+
+# Trump takes annual physical exam, says it went well
+
+![Speaking to reporters on Air Force One, US President Donald Trump said he thought the test went well. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800043_1_20250412093003.jpg&q=90)
+  
+
+President Donald Trump, who in January became the oldest person to assume the US presidency, underwent his first physical exam of his second term on Friday and said it went well, with results set to be released Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800043-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800043-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800043-20250412.htm)
+
+---
+
+# Women, children killed in Israeli strikes: UN
+
+![Israel resumed its Gaza strikes on March 18, ending a two-month ceasefire with Hamas. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800005_1_20250411221346.jpg&q=75)
+  
+
+Dozens of Israeli air strikes on Gaza have killed "only women and children" after a ceasefire collapsed, the UN said, as an Israeli attack in the territory's south on Friday left a family of 10 dead.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800005-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800005-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1800005-20250411.htm)
+
+---
+
+# Two feared trapped in S Korea subway tunnel collapse
+
+![A bird's eye view of the site of the tunnel collapse in Gwangmyeong. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799974_1_20250411182841.jpg&q=35)
+  
+
+A subway tunnel under construction near Seoul collapsed on Friday, likely leaving two workers trapped at the site, officials said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799974-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799974-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799974-20250411.htm)
+
+---
+
+# EU set to mark 50 years of ties with China in July
+
+![French leader Emmanuel Macron and European Commission chief Ursula von der Leyen meet President Xi Jinping at the Elysee Palace in Paris in May 2024. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799970_1_20250411181740.jpg&q=90)
+  
+
+Top EU officials and Chinese leaders are due to hold their next summit marking 50 years of ties in China in July, a spokesperson for the European Council said on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799970-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799970-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799970-20250411.htm)
+
+---
+
+# Yoon in emotional exit from official residence
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799965_1_20250411175109.jpg&q=70)
+  
+
+Former South Korean president Yoon Suk-yeol returned to his private home on Friday from the official residence after his removal from office, with crowds of supporters turning out to greet his motorcade.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799965-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799965-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799965-20250411.htm)
+
+---
+
+# Xi urges EU to join in opposing 'unilateral bullying'
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799942_1_20250411155117.jpg&q=90)
+  
+
+President Xi Jinping urged the European Union on Friday to join hands with China in resisting "unilateral bullying", in reference to tariffs imposed by US President Donald Trump.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799942-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799942-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799942-20250411.htm)
+
+---
+
+# China raises tariffs on US goods to 125pc
+
+![US exporters to China of goods such as soybeans now face 125 percent tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799950_1_20250411162842.jpg&q=80)
+  
+
+China blasted US President Donald Trump's tariffs on Friday as a "numbers game" that "will become a joke", as Beijing raised levies on US imports to 125 percent and said it would go no further.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799950-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799950-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799950-20250411.htm)
+
+---
+
+# Trump levy looms larger for senders of small parcels
+
+![People sending small parcels to the US will have to pay US$100 per item from May 2 and US$200 from June 1. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799912_1_20250411115603.jpg&q=70)
+  
+
+Hong Kong is continuing to see fallout from the trade war started by US President Donald Trump who raised the duty on small goods parcels from the SAR to 120 percent from the 90 percent that he had set just a day before that, and the 30 percent in his opening salvo on April 2.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799912-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799912-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799912-20250411.htm)
+
+---
+
+# Xi to visit Vietnam, Malaysia and Cambodia next week
+
+![President Xi Jinping with late Vietnam Communist Party general secretary Nguyen Phu Trong at the presidential palace in Hanoi in December 2023. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799903_1_20250411103929.jpg&q=55)
+  
+
+President Xi Jinping will visit Vietnam, Malaysia and Cambodia next week, the Foreign Ministry said on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799903-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799903-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799903-20250411.htm)
+
+---
+
+# More than 200 dead as rescue efforts end at nightclub
+
+![Authorities have called off the search for bodies as the death toll stands at 221. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799885_1_20250411091644.jpg&q=20)
+  
+
+Recovery efforts wrapped up in the capital of the Dominican Republic after a roof collapse at a nightclub during a concert killed at least 221 people, authorities said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799885-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799885-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799885-20250411.htm)
+
+---
+
+# Ukraine coalition presses ahead with force planning
+
+![Britain's Defence Secretary John Healey and France's Defence Minister Sebastien Lecornu attend a meeting of the Coalition of the Willing, hosted by the United Kingdom and France at Nato headquarters in Brussels. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799871_1_20250411080308.jpg&q=90)
+  
+
+Britain's defence minister on Thursday urged his counterparts from around 30 countries to press ahead with plans to deploy troops to Ukraine to police any future peace agreement with Russia, as questions remained over whether the United States would provide backup.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799871-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799871-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799871-20250411.htm)
+
+---
+
+# Tourists, pilot killed in NY helicopter crash
+
+![The chopper's landing skids were seen protruding from the river beside a tunnel vent. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799865_1_20250411073022.jpg&q=80)
+  
+
+Six people, including three children, were killed after a sightseeing helicopter crashed into the Hudson River in New York on Thursday, sparking a major water rescue operation, authorities said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799865-20250411.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799865-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799865-20250411.htm)
+
+---
+
+# Democrats want insider probe over Trump's flip-flop
+
+![Donald Trump is said to have posted a few minutes after Wall Street opened that 'IT'S TIME TO BUY', hours before he announced a 90-day suspension of additional tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799813_1_20250410183656.jpg&q=75)
+  
+
+Several American senators have called for an investigation into whether US President Donald Trump engaged in insider trading or market manipulation by encouraging people to buy stocks just before his dramatic reversal on global tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799813-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799813-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799813-20250410.htm)
+
+---
+
 # Trump wants to 'make showers great again'
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799755_1_20250410134902.jpg&q=85)
@@ -1075,365 +1435,5 @@ France's Marine Le Pen on Sunday invoked Martin Luther King's struggle for civil
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm)
-
----
-
-# Recovering Pope makes surprise appearance in Vatican
-
-![Pope Francis gestures as he appears for the first time since his return to the Vatican, in Saint Peter Square, at the Vatican. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799132_1_20250406183756.jpg&q=90)
-  
-
-Pope Francis, who is recovering after a serious case of pneumonia, made a surprise public appearance on Sunday as he mingled with crowds at the Vatican just two weeks after leaving hospital.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799132-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799132-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799132-20250406.htm)
-
----
-
-# UK says Israel's detention of their MPs 'unacceptable'
-
-![Demonstrators are seen while thousands of pro-Palestine protestors gather in front of the U.S. Capitol in Washington DC, on April 5, 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799127_1_20250406174947.jpg&q=90)
-  
-
-Britain's Foreign Secretary David Lammy said it was "unacceptable" and deeply concerning that Israel had detained two UK lawmakers and denied them entry.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799127-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799127-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799127-20250406.htm)
-
----
-
-# Rain complicates recovery in quake-hit Myanmar
-
-![Rescue workers stand on the street next to a collapsed building in Mandalay. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799123_1_20250406170802.jpg&q=75)
-  
-
-Rain was compounding misery and presenting new hurdles for relief efforts on Sunday in Myanmar, where state media reported the death toll from a devastating earthquake had risen to nearly 3,500 people.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799123-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799123-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799123-20250406.htm)
-
----
-
-# Trump tells Americans to 'hang tough'
-
-![Alarm about the fallout from US President Donald Trump's April 2 tariff announcement has gripped financial markets. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799086_1_20250406094021.jpg&q=80)
-  
-
-Donald Trump told Americans on Saturday to “hang tough” in the face of economic turmoil caused by sweeping tariffs introduced on April 2.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799086-20250406.htm)
-
----
-
-# Elon Musk calls for a US-Europe free trade zone
-
-![The billionaire also said he favoured more freedom for people to move between Europe and North America for work. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799077_1_20250406044926.jpg&q=90)
-  
-
-Billionaire US presidential adviser Elon Musk said on Saturday he hoped Europe and the United States would agree to join in a free-trade zone after US leader Donald Trump unleashed heavy global trade tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799077-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799077-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799077-20250406.htm)
-
----
-
-# India's Modi signs defence, energy deals in Sri Lanka
-
-![Indian Prime Minister Narendra Modi received the Mithra Vibhushana medal from Sri Lankan President Anura Kumara Dissanayake as a sign of their friendship. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799057_1_20250405194538.jpg&q=80)
-  
-
-India secured defence and energy deals with neighbouring Sri Lanka on Saturday during Prime Minister Narendra Modi's visit.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799057-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799057-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799057-20250405.htm)
-
----
-
-# Myanmar quake death toll passes 3,300
-
-![Many people have to sleep outdoors because their homes were destroyed. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799034_1_20250405153937.jpg&q=65)
-  
-
-The death toll from a major earthquake in Myanmar has risen above 3,300, state media said on Saturday, as the United Nations aid chief made a renewed call for the world to help the disaster-struck nation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799034-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799034-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799034-20250405.htm)
-
----
-
-# Tariffs to raise inflation, cool growth: Fed Chair
-
-![Jerome Powell said on Friday that he expected the current uncertainty to decline in the coming months. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798991_1_20250405044209.jpg&q=80)
-  
-
-US President Donald Trump's tariffs risk higher unemployment and will likely cause inflation to rise and growth to slow, Federal Reserve Chair Jerome Powell said on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm)
-
----
-
-# Trump extends TikTok deadline to find buyer
-
-![The new 75-day delay pushes the deadline to June 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798987_1_20250405031437.jpg&q=90)
-  
-
-US President Donald Trump on Friday extended the deadline for TikTok to find a non-Chinese buyer or face a ban in the United States, allowing 75 more days to find a solution.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm)
-
----
-
-# Trump wants 'direct talks' with Iran on nukes deal
-
-![President Trump says that last month he wrote to Iran's supreme leader, Ayatollah Ali Khamenei, to call for nuclear negotiations. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798967_1_20250404204544.jpg&q=85)
-  
-
-US President Donald Trump said on Thursday he wanted "direct talks" with Tehran on a nuclear deal, after he threatened to bomb Iran if it develops nuclear weapons.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798967-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798967-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798967-20250404.htm)
-
----
-
-# China to impose tariffs of 34pc on all US goods
-
-![The authorities in Beijing say the countermeasure will be effective from April 10. Photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798960_1_20250404190851.jpg&q=75)
-  
-
-China on Friday announced the imposition of tariffs of 34 percent on all goods from the United States, as a countermeasure to the sweeping tariffs imposed by the Trump administration.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm)
-
----
-
-# Trump unveils first US$5 million 'gold card' visa
-
-![Donald Trump claims that sales of the new visa will bring in job creators and could be used to reduce the US national deficit. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798945_1_20250404165741.jpg&q=85)
-  
-
-US President Donald Trump unveiled the first "gold card," a residency permit to be sold for US$5 million each, aboard Air Force One on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm)
-
----
-
-# Israel kills Hamas 'commander' in Lebanon strike
-
-![The strike in a residential area of Sidon killed the official and his adult son and daughter. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798944_1_20250404164812.jpg&q=75)
-  
-
-Israel said it killed a commander of the Palestinian militant group Hamas on Friday in a strike in the Lebanese port city of Sidon that also killed his adult son and daughter.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm)
-
----
-
-# S Korea seizes two tons of cocaine in record bust
-
-![The drugs were packed in 56 sacks and hidden in a secret compartment behind the engine room. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798939_1_20250404153820.jpg&q=80)
-  
-
-South Korea discovered and seized two tons of cocaine hidden aboard a Norwegian-flagged vessel, authorities said on Friday, marking the country's largest drug bust to date.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm)
-
----
-
-# South Korea court upholds President Yoon's impeachment
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798910_1_20250404103033.jpg&q=90)
-  
-
-South Korea's Constitutional Court on Friday decided to oust President Yoon Suk Yeol, upholding parliament's impeachment motion over his short-lived imposition of martial law last year that sparked the country's worst political crisis in decades.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798910-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798910-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798910-20250404.htm)
 
 ---
