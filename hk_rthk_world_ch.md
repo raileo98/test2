@@ -1,3 +1,27 @@
+# 石破茂稱世界飽受分裂困擾　強調團結重要性
+
+![石破茂出席大阪世博會開幕儀式，強調團結重要性。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800077_1_20250412171559.jpg&q=90)
+  
+
+日本首相石破茂在大阪世博會開幕儀式上提到，在一個飽受分裂困擾的世界，團結的重要性。他說，世界克服新冠疫情，但現在面臨多方面危機，世博會將為全世界的人提供對話交流的舞台，並向世界展現日本的新面貌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800077-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800077-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800077-20250412.htm)
+
+---
+
 # 中國駐緬甸大使館：大地震導致8名中國公民死亡
 
 ![中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800089_1_20250412184342.jpg&q=50)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799840-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799840-20250411.htm)
-
----
-
-# 美俄在土耳其會談　美方關注俄方禁止僱用當地僱員政策
-
-![美國與俄羅斯的代表團在土耳其伊斯坦布爾，就雙方大使館恢復正常運作舉行第二輪閉門會談。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799841_1_20250411001159.jpg&q=80)
-  
-
-美國與俄羅斯的代表團在土耳其伊斯坦布爾，就雙方大使館恢復正常運作舉行第二輪閉門會談，歷時約5個半小時。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799841-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799841-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799841-20250411.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 石破茂稱世界飽受分裂困擾　強調團結重要性
+
+![石破茂出席大阪世博會開幕儀式，強調團結重要性。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800077_1_20250412171559.jpg&q=90)
+  
+
+日本首相石破茂在大阪世博會開幕儀式上提到，在一個飽受分裂困擾的世界，團結的重要性。他說，世界克服新冠疫情，但現在面臨多方面危機，世博會將為全世界的人提供對話交流的舞台，並向世界展現日本的新面貌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800077-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800077-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800077-20250412.htm)
+
+---
+
 # 中國駐緬甸大使館：大地震導致8名中國公民死亡
 
 ![中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800089_1_20250412184342.jpg&q=50)
@@ -72,6 +96,7 @@
 
 # 天文台稱冷鋒橫過廣東沿岸　受驟雨及狂風雷暴影響本港風力增強
 
+![天文台科學主任謝鈞澍表示，一道冷鋒正橫過廣東沿岸，與其相關的大驟雨及狂風雷暴正影響該區。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800085_1_20250412184814.jpg&q=80)
   
 
 強烈季候風信號現正生效，預料本港吹偏北強風，平均風速每小時超過40公里。

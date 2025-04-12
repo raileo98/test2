@@ -24,6 +24,7 @@
 
 # 天文台稱冷鋒橫過廣東沿岸　受驟雨及狂風雷暴影響本港風力增強
 
+![天文台科學主任謝鈞澍表示，一道冷鋒正橫過廣東沿岸，與其相關的大驟雨及狂風雷暴正影響該區。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800085_1_20250412184814.jpg&q=80)
   
 
 強烈季候風信號現正生效，預料本港吹偏北強風，平均風速每小時超過40公里。
