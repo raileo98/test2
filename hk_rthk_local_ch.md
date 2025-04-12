@@ -1,3 +1,27 @@
+# 珠江客運中港城往廣州南沙及中山港航班上午8時停航　受天氣影響
+
+![珠江客運中港城往廣州南沙及中山港航班上午8時停航　受天氣影響](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800120_1_20250413071211.jpg&q=90)
+  
+
+根據珠江客運網頁，受強對流天氣影響，今日在市區航線方面，香港中港城碼頭往廣州南沙港，以及香港中港城碼頭往中山港的航班，上午8時停航。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800120-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800120-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800120-20250413.htm)
+
+---
+
 # 警方昨於機場拘捕兩漢涉毒　檢總市值約320萬元懷疑海洛英
 
 ![警方扣留調查涉案人士。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800107_1_20250412235102.jpg&q=35)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799945-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799945-20250411.htm)
-
----
-
-# 藝發局委員任期年底屆滿　正進行首階段選民登記及更新資料
-
-![有意參與推選活動的個人藝術工作者，須於下月9日下午5時正或之前申請登記成為新選民。（藝發局網站截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799943_1_20250411165157.jpg&q=90)
-  
-
-本屆藝術發展局委員任期今年底屆滿，合資格個人藝術工作者可參與選民登記，為所屬的藝術範疇提名及投票選出代表，再交由行政長官考慮委任為新一屆委員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799943-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799943-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799943-20250411.htm)
 
 ---

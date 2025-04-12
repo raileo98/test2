@@ -1,3 +1,50 @@
+# 以色列指以軍攻勢很快擴至加沙大部分地區　形容結束戰爭最後時刻
+
+  
+
+以色列國防部長卡茨發表聲明說，以軍攻勢將很快擴展到加沙地帶大部分地區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800121-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800121-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800121-20250413.htm)
+
+---
+
+# 珠江客運中港城往廣州南沙及中山港航班上午8時停航　受天氣影響
+
+![珠江客運中港城往廣州南沙及中山港航班上午8時停航　受天氣影響](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800120_1_20250413071211.jpg&q=90)
+  
+
+根據珠江客運網頁，受強對流天氣影響，今日在市區航線方面，香港中港城碼頭往廣州南沙港，以及香港中港城碼頭往中山港的航班，上午8時停航。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800120-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800120-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800120-20250413.htm)
+
+---
+
 # 中方助建公路舉行通車啟用儀式　柬埔寨首相稱促進交通及貨物運輸
 
 ![這條公路全長114.9公里是柬埔寨中東部公路網的重要組成部分。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800117_1_20250413052947.jpg&q=45)
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800048-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800048-20250412.htm)
-
----
-
-# 周一鳴稱須居安思危提升市民國安意識　社會存暗湧以另類手法煽動
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800046_1_20250412095452.jpg&q=85)
-  
-
-警務處處長周一鳴表示，國安法實施5年，整體社會平穩、安居樂業，但不代表完全沒有暗湧，不用理會國家安全，認為必須要居安思危，同時希望提升市民對國家安全的意識。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800046-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800046-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800046-20250412.htm)
-
----
-
-# 發展商多關注片區基建設施時間表　甯漢豪有信心試點能成功招標
-
-![甯漢豪表示，正就收回的片區開發意向書進行詳細分析。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800045_1_20250412095333.jpg&q=80)
-  
-
-發展局就位於洪水橋/厦村新發展區、粉嶺北新發展區及新田科技城的三個「片區開發」試點，邀請市場提交意向書，早前共收到22份。發展局局長甯漢豪表示，正就意向書進行詳細分析，初步看有不少意向書提出，希望政府可盡快公布日後在片區內外進行基建設施的時間表。另外亦有發展商關注，若日後片區內的設施無法如期「交貨」，政府會否訂立巨額罰則等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800045-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800045-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800045-20250412.htm)
 
 ---

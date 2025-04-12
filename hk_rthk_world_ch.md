@@ -1,3 +1,26 @@
+# 以色列指以軍攻勢很快擴至加沙大部分地區　形容結束戰爭最後時刻
+
+  
+
+以色列國防部長卡茨發表聲明說，以軍攻勢將很快擴展到加沙地帶大部分地區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800121-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800121-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800121-20250413.htm)
+
+---
+
 # 中方助建公路舉行通車啟用儀式　柬埔寨首相稱促進交通及貨物運輸
 
 ![這條公路全長114.9公里是柬埔寨中東部公路網的重要組成部分。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800117_1_20250413052947.jpg&q=45)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799875-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799875-20250411.htm)
-
----
-
-# 紐約有直升機墜落哈德遜河　機上6人全部遇難
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799862_1_20250411063241.jpg&q=75)
-  
-
-美國紐約有直升機墜落哈德遜河，機上6人全部遇難。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799862-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799862-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799862-20250411.htm)
 
 ---
