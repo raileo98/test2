@@ -72,7 +72,7 @@ The US dollar tumbled along with most stocks while gold hit a fresh record high 
 
 # HK to firmly safeguard nation's financial security: FS
 
-![Paul Chan says the SAR government has formulated various response plans to help fend off financial risks. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799904_1_20250411111509.jpg&q=1)
+![Paul Chan says the SAR government has formulated various response plans to help fend off financial risks. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799904_1_20250411111509.jpg&q=85)
   
 
 Financial Secretary Paul Chan on Friday said Hong Kong is building a comprehensive financial protection network with systematic response plans and monitoring mechanisms to safeguard what he called the "southern gate" of the nation.
@@ -648,7 +648,7 @@ Any American attempt to pull off a 1985 Plaza Accord-type coordinated depreciati
 
 # Hong Kong stocks bounce back at opening
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799371_1_20250408103918.jpg&q=1)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799371_1_20250408103918.jpg&q=55)
   
 
 The Hang Seng Index gained 329.22 points, or 1.66 percent, to open at 20,157.52 points on Tuesday.
@@ -1297,7 +1297,7 @@ Canadian Prime Minister Mark Carney on Wednesday vowed to "fight" against US Pre
 
 # US trade tariff 'not act of a friend': Albanese
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798732_1_20250403082709.jpg&q=1)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798732_1_20250403082709.jpg&q=90)
   
 
 Donald Trump's trade tariffs on close ally Australia are "not the act of a friend" and will hurt the two nations' relationship, Prime Minister Anthony Albanese said on Thursday.

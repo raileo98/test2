@@ -1,3 +1,26 @@
+# 九龍城潑水活動暫停小童於球場外射水嬉戲　攤檔稱氣氛與人流不錯
+
+  
+
+一年一度的九龍城潑水節活動在賈炳達道公園舉行，下午開始落雨，「電音X潑水」體驗活動因雷暴警告而要暫停，劃定為潑水區的籃球場關閉，正參與潑水活動的市民要離開潑水區，待雷暴警告取消後才可繼續。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm)
+
+---
+
 # 九龍城「電音X潑水」體驗活動因雷暴警告宣布暫停
 
 ![原定在九龍城賈炳達道公園籃球場舉行的「電音X潑水」體驗活動，宣布暫停，直至另行通知。（九龍城民政事務處網頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800069_1_20250412151308.jpg&q=90)
@@ -312,7 +335,7 @@
 
 # 發展商多關注片區基建設施時間表　甯漢豪有信心試點能成功招標
 
-![甯漢豪表示，正就收回的片區開發意向書進行詳細分析。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800045_1_20250412095333.jpg&q=1)
+![甯漢豪表示，正就收回的片區開發意向書進行詳細分析。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800045_1_20250412095333.jpg&q=80)
   
 
 發展局就位於洪水橋/厦村新發展區、粉嶺北新發展區及新田科技城的三個「片區開發」試點，邀請市場提交意向書，早前共收到22份。發展局局長甯漢豪表示，正就意向書進行詳細分析，初步看有不少意向書提出，希望政府可盡快公布日後在片區內外進行基建設施的時間表。另外亦有發展商關注，若日後片區內的設施無法如期「交貨」，政府會否訂立巨額罰則等。
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799913-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799913-20250411.htm)
-
----
-
-# 飛行服務隊稱直昇機滅火水桶保護山林　生態安全亦是國家安全基礎
-
-![政府飛行服務隊表示，直昇機滅火水桶是保護生態系統及山林資源的重要工具。（保安局片段截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799906_1_20250411124733.jpg&q=90)
-  
-
-本月15日是全民國家安全教育日，保安局在社交平台繼續「解鎖」部門重要國安物品，今日由政府飛行服務隊代表介紹的物品是直昇機滅火水桶，強調是保護生態系統及山林資源的重要工具。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799906-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799906-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799906-20250411.htm)
 
 ---

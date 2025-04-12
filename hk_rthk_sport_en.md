@@ -792,7 +792,7 @@ North Korea said on Sunday that foreign elite runners arrived to take part in th
 
 # Red Bull's Verstappen wins Japanese GP from Norris
 
-![Max Verstappen celebrates the win on the podium at Suzuka, Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799114_1_20250406151250.jpg&q=1)
+![Max Verstappen celebrates the win on the podium at Suzuka, Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799114_1_20250406151250.jpg&q=85)
   
 
 Four-time world champion Max Verstappen led from pole to chequered flag to win the Japanese Grand Prix on Sunday, his first victory of the 2025 season, with McLaren's Lando Norris second.
@@ -1251,7 +1251,7 @@ Stephen Curry scored 52 points and Draymond Green added a triple-double as the G
 
 # Bielefeld shock holders Leverkusen in German Cup
 
-![Bielefeld players celebrate winning their German Cup semi-final match against Bayern Leverkusen. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798544_1_20250402073801.jpg&q=1)
+![Bielefeld players celebrate winning their German Cup semi-final match against Bayern Leverkusen. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798544_1_20250402073801.jpg&q=80)
   
 
 German Cup holders Bayer Leverkusen suffered a shock 2-1 elimination at Arminia Bielefeld in the semi-finals of the competition.

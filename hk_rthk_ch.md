@@ -1,3 +1,26 @@
+# 九龍城潑水活動暫停小童於球場外射水嬉戲　攤檔稱氣氛與人流不錯
+
+  
+
+一年一度的九龍城潑水節活動在賈炳達道公園舉行，下午開始落雨，「電音X潑水」體驗活動因雷暴警告而要暫停，劃定為潑水區的籃球場關閉，正參與潑水活動的市民要離開潑水區，待雷暴警告取消後才可繼續。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm)
+
+---
+
 # 北京有市民形容風力大　一度被強風吹得站不穩
 
   
@@ -549,7 +572,7 @@
 
 # 發展商多關注片區基建設施時間表　甯漢豪有信心試點能成功招標
 
-![甯漢豪表示，正就收回的片區開發意向書進行詳細分析。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800045_1_20250412095333.jpg&q=1)
+![甯漢豪表示，正就收回的片區開發意向書進行詳細分析。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800045_1_20250412095333.jpg&q=80)
   
 
 發展局就位於洪水橋/厦村新發展區、粉嶺北新發展區及新田科技城的三個「片區開發」試點，邀請市場提交意向書，早前共收到22份。發展局局長甯漢豪表示，正就意向書進行詳細分析，初步看有不少意向書提出，希望政府可盡快公布日後在片區內外進行基建設施的時間表。另外亦有發展商關注，若日後片區內的設施無法如期「交貨」，政府會否訂立巨額罰則等。
@@ -669,7 +692,7 @@
 
 # 聯儲局：市場運作良好　絕對準備好必要時穩定市場
 
-![柯林斯表示現時市場繼續良好運作，若出現問題，聯儲局有工具應對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800037_1_20250412080000.jpg&q=1)
+![柯林斯表示現時市場繼續良好運作，若出現問題，聯儲局有工具應對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800037_1_20250412080000.jpg&q=60)
   
 
 波士頓聯儲銀行總裁柯林斯表示，聯儲局絕對準備好在必要時應對金融市場運作問題，穩定市場。
@@ -741,7 +764,7 @@
 
 # 美國10年期國債息率一度逼近4.6厘
 
-![分析擔心，特朗普的政策，將削弱美元作為儲備貨幣、美債避險作用。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800034_1_20250412072454.jpg&q=1)
+![分析擔心，特朗普的政策，將削弱美元作為儲備貨幣、美債避險作用。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800034_1_20250412072454.jpg&q=85)
   
 
 美國國債息率上升，10年期國債收益率及30年期國債收益率，分別創2001年及1987年以來最大單星期升幅。
@@ -1221,7 +1244,7 @@
 
 # 烏克蘭盟友承諾新一輪軍援　澤連斯基冀提供10套愛國者系統
 
-![英國、德國和烏克蘭防長出席記者會。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800012_1_20250412005240.jpg&q=1)
+![英國、德國和烏克蘭防長出席記者會。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800012_1_20250412005240.jpg&q=85)
   
 
 烏克蘭防務問題國際聯絡小組會議在比利時布魯塞爾舉行，美國、英國、德國等大約50個國家的代表出席，承諾向基輔提供210億歐元的新一輪軍事援助。
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm)
-
----
-
-# 運輸署籲啟德演唱會觀眾今晚離場時盡量乘搭港鐵
-
-![英國樂隊Coldplay今晚在啟德體育園主場館舉行第三場演唱會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800003_1_20250411221818.jpg&q=70)
-  
-
-英國樂隊Coldplay今晚在啟德體育園主場館舉行第三場演唱會，運輸署預計今晚稍後結束時，同一時間離場觀眾較多，呼籲盡量乘搭港鐵。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800003-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800003-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800003-20250411.htm)
 
 ---

@@ -360,7 +360,7 @@
 
 # 香港馬王浪漫勇士遠征中東三賽共奪一冠兩亞
 
-![練馬師沈集成（右）率領「浪漫勇士」及其團隊，完成為期四個月的中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799133_1_20250406185624.jpg&q=1)
+![練馬師沈集成（右）率領「浪漫勇士」及其團隊，完成為期四個月的中東遠征之旅。（香港賽馬會提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799133_1_20250406185624.jpg&q=90)
   
 
 香港馬王「浪漫勇士」於阿聯酋出戰迪拜草地大賽，衝線時以馬鼻之差，不敵日本賽駒「神志勇進」得第二。
@@ -458,7 +458,7 @@
 
 # 英超阿仙奴被愛華頓逼和1:1
 
-![兵工廠和波失分，被愛華頓逼和1:1。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799067_1_20250406002505.jpg&q=1)
+![兵工廠和波失分，被愛華頓逼和1:1。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799067_1_20250406002505.jpg&q=75)
   
 
 英格蘭超級足球聯賽，阿仙奴爭標再受挫折，作客被愛華頓逼和1:1。
@@ -821,7 +821,7 @@
 
 # 意甲拉素與拖連奴賽和1:1　維羅納0:0帕爾馬
 
-![拉素（白衫）與拖連奴賽和1:1。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798363_1_20250401073812.jpg&q=1)
+![拉素（白衫）與拖連奴賽和1:1。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798363_1_20250401073812.jpg&q=90)
   
 
 意大利甲組足球聯賽，拉素與拖連奴賽和1:1。
@@ -964,7 +964,7 @@
 
 # 西甲巴塞4:1勝基羅納　意甲國米2:1擊敗烏甸尼斯
 
-![利雲度夫斯基為巴塞羅那攻入兩球。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798176_1_20250331073441.jpg&q=1)
+![利雲度夫斯基為巴塞羅那攻入兩球。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798176_1_20250331073441.jpg&q=70)
   
 
 巴塞羅那在西甲主場以4:1擊敗基羅納。

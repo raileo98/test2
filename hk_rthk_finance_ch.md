@@ -1,6 +1,6 @@
 # 聯儲局：市場運作良好　絕對準備好必要時穩定市場
 
-![柯林斯表示現時市場繼續良好運作，若出現問題，聯儲局有工具應對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800037_1_20250412080000.jpg&q=1)
+![柯林斯表示現時市場繼續良好運作，若出現問題，聯儲局有工具應對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800037_1_20250412080000.jpg&q=60)
   
 
 波士頓聯儲銀行總裁柯林斯表示，聯儲局絕對準備好在必要時應對金融市場運作問題，穩定市場。
@@ -72,7 +72,7 @@
 
 # 美國10年期國債息率一度逼近4.6厘
 
-![分析擔心，特朗普的政策，將削弱美元作為儲備貨幣、美債避險作用。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800034_1_20250412072454.jpg&q=1)
+![分析擔心，特朗普的政策，將削弱美元作為儲備貨幣、美債避險作用。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800034_1_20250412072454.jpg&q=85)
   
 
 美國國債息率上升，10年期國債收益率及30年期國債收益率，分別創2001年及1987年以來最大單星期升幅。

@@ -96,7 +96,7 @@ China blasted US President Donald Trump's tariffs on Friday as a "numbers game" 
 
 # HK to firmly safeguard nation's financial security: FS
 
-![Paul Chan says the SAR government has formulated various response plans to help fend off financial risks. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799904_1_20250411111509.jpg&q=1)
+![Paul Chan says the SAR government has formulated various response plans to help fend off financial risks. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799904_1_20250411111509.jpg&q=85)
   
 
 Financial Secretary Paul Chan on Friday said Hong Kong is building a comprehensive financial protection network with systematic response plans and monitoring mechanisms to safeguard what he called the "southern gate" of the nation.
@@ -888,7 +888,7 @@ The Hong Kong and Macau Affairs Office (HKMAO) on Wednesday reposted an article 
 
 # Mainland, SAR rescuers find quake survivor in Mandalay
 
-![A 52-year-old man has been rescued from the rubble of a hotel in Mandalay. Photo: Chris Tang's Facebook page](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798679_1_20250402204310.jpg&q=1)
+![A 52-year-old man has been rescued from the rubble of a hotel in Mandalay. Photo: Chris Tang's Facebook page](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798679_1_20250402204310.jpg&q=60)
   
 
 Rescue teams from the SAR and the mainland have joined hands in finding a survivor in the quake-rattled Myanmar city of Mandalay.

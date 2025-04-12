@@ -1128,7 +1128,7 @@ US President Donald Trump said the United States was starting direct, high-level
 
 # Supreme Court backs Trump over Alien Enemies Act
 
-![US President Donald Trump has used the law to deport alleged Venezuelan gang members. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799334_1_20250408075344.jpg&q=1)
+![US President Donald Trump has used the law to deport alleged Venezuelan gang members. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799334_1_20250408075344.jpg&q=65)
   
 
 The US Supreme Court handed Donald Trump a victory on Monday by letting him use a 1798 law that historically has been employed only in wartime to swiftly deport alleged Venezuelan gang members as part of the Republican president's hardline approach to immigration.
