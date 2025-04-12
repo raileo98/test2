@@ -292,8 +292,8 @@ async def process_article(fg, category, article):
         images = article_soup.select('.items_content .imgPhotoAfterLoad')
         for image in images:
             raw_img_url = 'https://i3.wp.com/' + image['src'].replace('http://', '').replace('https://', '')
-            raw_img_url = 'https://external-content.duckduckgo.com/iu/?u=' + urllib.parse.quote( raw_img_url )
-            raw_img_url = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote( raw_img_url )
+            raw_img_url = 'https://external-content.duckduckgo.com/iu/?u=' + urllib.parse.quote( raw_img_url, safe='' )
+            raw_img_url = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote( raw_img_url, safe='' )
             imgUrl = modify_image_url(raw_img_url, 99).replace('_S_', '_L_').replace('_M_', '_L_').replace('_L_', '_')
             imgList.add(imgUrl)
             latest_imgUrl = await optimize_image_quality(imgUrl)
@@ -309,8 +309,8 @@ async def process_article(fg, category, article):
                     if match:
                         video_thumbnail = match.group(1)
                         raw_img_url = 'https://i3.wp.com/' + video_thumbnail.replace('http://', '').replace('https://', '')
-                        raw_img_url = 'https://external-content.duckduckgo.com/iu/?u=' + urllib.parse.quote( raw_img_url )
-                        raw_img_url = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote( raw_img_url )
+                        raw_img_url = 'https://external-content.duckduckgo.com/iu/?u=' + urllib.parse.quote( raw_img_url, safe='' )
+                        raw_img_url = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote( raw_img_url, safe='' )
                         imgUrl = modify_image_url(raw_img_url, 99).replace('_S_', '_L_').replace('_M_', '_L_').replace('_L_', '_')
                         imgList.add(imgUrl)
                         latest_imgUrl = await optimize_image_quality(imgUrl)
@@ -430,8 +430,8 @@ async def process_category(category, url):
     # feedImg = 'https://wsrv.nl/?n=-1&url=https://i3.wp.com/news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png'
     feedImg = 'https://news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png'
     feedImg = 'https://i3.wp.com/' + feedImg.replace('http://', '').replace('https://', '')
-    feedImg = 'https://external-content.duckduckgo.com/iu/?u=' + urllib.parse.quote( feedImg )
-    feedImg = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote( feedImg )
+    feedImg = 'https://external-content.duckduckgo.com/iu/?u=' + urllib.parse.quote( feedImg, safe='' )
+    feedImg = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote( feedImg, safe='' )
     fg.logo(feedImg)
     fg.copyright('© 香港電台 RTHK')
     fg.webMaster('webmaster@rthk.hk')
