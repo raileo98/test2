@@ -1,3 +1,26 @@
+# 戴工作人員手環觀看Coldplay演出　3男子涉串謀詐騙被捕
+
+  
+
+英國著名樂隊Coldplay在啟德體育園啟德主場館舉行最後一晚演唱會。在昨晚的演出，有三名男子戴上工作人員手環觀看演唱會，被警方以涉嫌「串謀詐騙」拘捕，三人獲准保釋，下月12日向牛頭角警署報到。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800100-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800100-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800100-20250412.htm)
+
+---
+
 # 女子遭輕鐵撞傷送院　港鐵指女事主突然衝出　車長響號並急剎車
 
 ![港鐵表示，輕鐵上的行車紀錄儀器拍攝到事發情況，會配合警方調查。（網上圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800097_1_20250412211647.jpg&q=40)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799924-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799924-20250411.htm)
-
----
-
-# 孫東稱利用本港科技優勢講究策略與方法　擴大人文交往及科技交流
-
-![孫東強調本港要發揮獨特作用，保持自由、開放及國際化，同時要加強出海平台的建設。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799922_1_20250411143014.jpg&q=85)
-  
-
-中美貿易戰升溫，創新科技及工業局局長孫東在立法會財委會特別會議表示，就本港科技發展，本港要緊密對接國家發展大局，過程中亦要利用本港優勢，並講究策略和方法，按現有步驟繼續穩步向前，擴大人文交往及科技交流，會按創科藍圖指定方向，以及按過去3年的施政報告和財政預算案，提出措施向前推進。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799922-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799922-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799922-20250411.htm)
 
 ---

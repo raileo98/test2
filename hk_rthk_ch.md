@@ -1,3 +1,26 @@
+# 戴工作人員手環觀看Coldplay演出　3男子涉串謀詐騙被捕
+
+  
+
+英國著名樂隊Coldplay在啟德體育園啟德主場館舉行最後一晚演唱會。在昨晚的演出，有三名男子戴上工作人員手環觀看演唱會，被警方以涉嫌「串謀詐騙」拘捕，三人獲准保釋，下月12日向牛頭角警署報到。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800100-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800100-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800100-20250412.htm)
+
+---
+
 # 特朗普豁免向智能電話、電腦等產品徵收對等關稅
 
 ![特朗普豁免向智能電話、電腦等產品徵收對等關稅](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800098_1_20250412214344.jpg&q=90)
