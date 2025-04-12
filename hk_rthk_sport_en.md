@@ -1,3 +1,27 @@
+# McIlroy puts in blistering third round to lead Masters
+
+![Rory McIlroy reacts after holing his putt on the 18th green. Photo Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800122_1_20250413072334.jpg&q=85)
+  
+
+Rory McIlroy raced out to the best start the Masters has seen in its 91-year history, with six straight 3s on his scorecard that shot him into the lead on Saturday and left him 18 holes away from that coveted green jacket and the career Grand Slam.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800122-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800122-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800122-20250413.htm)
+
+---
+
 # Piastri takes pole for Bahrain Grand Prix
 
 ![Australia's Oscar Piastri of the McLaren F1 Team during qualifying. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800118_1_20250413060821.jpg&q=90)
@@ -1416,29 +1440,5 @@ Veteran Al Horford turned back the clock to help the NBA champion Boston Celtics
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798427-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798427-20250401.htm)
-
----
-
-# HK snooker star Ng defends British Open crown
-
-![The victory solidified Ng's hold on second position in the world rankings. Photo courtesy of World Snooker Tour](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798376_1_20250401085554.jpg&q=80)
-  
-
-Hong Kong, China snooker player Ng On-yee on Monday defeated World No. 1 Mink Nutcharut of Thailand to defend her title at the British Open in Walsall, England.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm)
 
 ---
