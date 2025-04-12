@@ -1,3 +1,27 @@
+# 運輸署籲往返啟德主場館觀眾留意天氣及交通　及早規劃行程
+
+![運輸署提醒觀眾應乘搭港鐵及散場時段提供的特別巴士服務。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800083_1_20250412175131.jpg&q=90)
+  
+
+運輸署表示，由於天氣不穩定，呼籲往返啟德體育園啟德主場館演唱會的觀眾，應乘搭港鐵及散場時段提供的特別巴士服務，在戶外時應提高警惕，注意安全。由於入場和散場時間可能因實際情況而有變，觀眾特別是過境旅客應預早計劃行程，有需要應及早購票，觀眾應留意場地廣播和「離場易」平台提供的實時資訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm)
+
+---
+
 # 荃灣三男子涉駕電動單車被捕　警方另發出一千多張定額罰款通知書
 
 ![荃灣警區一連兩日區內採取執法行動。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800076_1_20250412171248.jpg&q=40)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799915-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799915-20250411.htm)
-
----
-
-# 港股臨近中午收市轉升　恒指半日升116點
-
-![恒指半日收報20798點，升116點，升幅0.56%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799914_1_20250411121246.jpg&q=70)
-  
-
-港股先跌後回升，恒指最多跌近240點，臨近中午收市轉升，並以近半日高位收市，報20798點，升116點，升幅0.56%，主板成交額縮至約1279億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799914-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799914-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799914-20250411.htm)
 
 ---

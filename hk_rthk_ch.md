@@ -1,3 +1,27 @@
+# 運輸署籲往返啟德主場館觀眾留意天氣及交通　及早規劃行程
+
+![運輸署提醒觀眾應乘搭港鐵及散場時段提供的特別巴士服務。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800083_1_20250412175131.jpg&q=90)
+  
+
+運輸署表示，由於天氣不穩定，呼籲往返啟德體育園啟德主場館演唱會的觀眾，應乘搭港鐵及散場時段提供的特別巴士服務，在戶外時應提高警惕，注意安全。由於入場和散場時間可能因實際情況而有變，觀眾特別是過境旅客應預早計劃行程，有需要應及早購票，觀眾應留意場地廣播和「離場易」平台提供的實時資訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm)
+
+---
+
 # 荃灣三男子涉駕電動單車被捕　警方另發出一千多張定額罰款通知書
 
 ![荃灣警區一連兩日區內採取執法行動。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800076_1_20250412171248.jpg&q=40)
@@ -1407,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800008-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800008-20250411.htm)
-
----
-
-# 美國密歇根大學4月消費者信心指數初值跌至50.8遜預期
-
-![美國密歇根大學消費者調查顯示，美國4月消費者信心指數初值跌至50.8，低過預期的54.5。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800006_1_20250411221641.jpg&q=50)
-  
-
-美國密歇根大學消費者調查顯示，美國4月消費者信心指數初值跌至50.8，低過預期的54.5。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800006-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800006-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800006-20250411.htm)
 
 ---
