@@ -1,3 +1,27 @@
+# 中國駐緬甸大使館：大地震導致8名中國公民死亡
+
+![中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800089_1_20250412184342.jpg&q=50)
+  
+
+新華社報道，中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm)
+
+---
+
 # 王毅：美國不能任意妄為　歷史車輪不能倒退
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800080_1_20250412181256.jpg&q=75)
@@ -1411,30 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799841-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799841-20250411.htm)
-
----
-
-# 俄羅斯與美國在阿聯酋斡旋下交換被關押人員
-
-![俄羅斯公民彼得羅夫在阿布扎比機場被送還俄方。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799838_1_20250410225235.jpg&q=90)
-![擁有俄美雙重國籍的卡列林娜去年在俄羅斯一個法院被判叛國罪成。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799838_2_20250410225235.jpg&q=90)
-  
-
-俄羅斯與美國在阿聯酋交換被關押人員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799838-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799838-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799838-20250410.htm)
 
 ---

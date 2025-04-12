@@ -1,3 +1,51 @@
+# 中國駐緬甸大使館：大地震導致8名中國公民死亡
+
+![中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800089_1_20250412184342.jpg&q=50)
+  
+
+新華社報道，中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm)
+
+---
+
+# 重慶300多人因雷暴誘發急性呼吸道疾病
+
+![雷暴哮喘患者在重慶醫科大學附屬第一醫院排隊求醫。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800087_1_20250412182528.jpg&q=80)
+  
+
+新華社報道，重慶300多人因雷暴誘發呼吸道疾病急性發作，要到醫院求醫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm)
+
+---
+
 # 屯門輕鐵車廠站附近有人遭輕鐵撞倒　一度被困車底及後救出
 
 ![屯門輕鐵車廠站附近有人遭輕鐵撞倒　一度被困車底及後救出](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800088_1_20250412183950.jpg&q=90)
@@ -239,7 +287,8 @@
 
 # 九龍城潑水活動暫停有小童續射水嬉戲　檔主稱氣氛與人流不錯
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800075_1_20250412183147.jpg&q=85)
+![有攤檔負責人表示，下雨有少少影響，但氣氛與人流都不錯。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800075_2_20250412184629.jpg&q=50)
+![麥美娟說，特區政府會努力深化與泰國的合作交流。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800075_3_20250412184629.jpg&q=55)
   
 
 一年一度的九龍城潑水節活動在賈炳達道公園舉行，下午開始落雨，「電音X潑水」體驗活動因雷暴警告而要暫停，劃定為潑水區的籃球場關閉，正參與潑水活動的市民要離開潑水區，待雷暴警告取消後才可繼續。

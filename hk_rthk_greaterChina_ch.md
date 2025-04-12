@@ -1,3 +1,51 @@
+# 中國駐緬甸大使館：大地震導致8名中國公民死亡
+
+![中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800089_1_20250412184342.jpg&q=50)
+  
+
+新華社報道，中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm)
+
+---
+
+# 重慶300多人因雷暴誘發急性呼吸道疾病
+
+![雷暴哮喘患者在重慶醫科大學附屬第一醫院排隊求醫。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800087_1_20250412182528.jpg&q=80)
+  
+
+新華社報道，重慶300多人因雷暴誘發呼吸道疾病急性發作，要到醫院求醫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm)
+
+---
+
 # 內地多處出現極端大風　北京近700航班取消
 
 ![北京市面大風，有單車等車輛被強風吹倒。(盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800084_1_20250412184125.jpg&q=65)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799769-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799769-20250410.htm)
-
----
-
-# 外交部駐港公署指美方揮舞關稅大棒迫就範　勿指望等到中國電話
-
-![公署指，美方舉動不會讓美國再次偉大，只會讓美國變成21世紀的野蠻人。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799766_1_20250410155459.jpg&q=90)
-  
-
-外交部駐港公署就美國對華加徵嚴重不合理關稅，致信《南華早報》表示，美方不顧國際社會普遍反對，以荒唐借口對所有交易夥伴徵收所謂「對等關稅」，是典型的單邊主義、保護主義、經濟霸淩，嚴重侵犯各國正當權益，嚴重損害以規則為基礎的多邊貿易體制，嚴重衝擊全球經濟秩序。公署表示，美方此舉不會讓美國再次偉大，只會讓美國變成21世紀的野蠻人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799766-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799766-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799766-20250410.htm)
-
----
-
-# 有北京民眾不打算讓留學子女提早回國　有民眾稱或選美國以外院校
-
-![有北京民眾不打算讓留學子女提早回國　有民眾稱或選美國以外院校](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799764_1_20250410163934.jpg&q=90)
-  
-
-國家教育部近日發布赴美留學預警，提醒廣大留學人員增強防範意識。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799764-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799764-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799764-20250410.htm)
 
 ---
