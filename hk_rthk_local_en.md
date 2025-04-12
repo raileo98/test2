@@ -24,7 +24,7 @@ Pan Yundong, deputy commissioner of the Office of the Commissioner of the Minist
 
 # Police ramp up cross-border cooperation to fight scams
 
-![Police Commissioner Joe Chow said police were often using Interpol channels. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800054_1_20250412112128.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800054_1_20250412112128.jpg&q=80)
   
 
 Newly appointed police commissioner Joe Chow on Saturday said officers will work more closely with police in other jurisdictions to combat cross-border scams.
@@ -51,7 +51,7 @@ Newly appointed police commissioner Joe Chow on Saturday said officers will work
 ![Secretary for Development Bernadette Linn said a two-envelope approach may be used for the tenders. Photo courtesy of the Commercial Radio](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800052_1_20250412110442.jpg&q=85)
   
 
-Development minister Bernadette Linn says one or two sizeable Northern Metropolis land parcels should to be put up for tender this year, while one in the San Tin Technopole will be tendered next year.
+Development minister Bernadette Linn says one or two sizeable Northern Metropolis land parcels should to be put up for tender this year, while one in the San Tin Technopole will be tendered in 2026.
 
   
 

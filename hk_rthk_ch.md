@@ -1,3 +1,26 @@
+# 林定國稱若做好愛國主義教育　相信國家安全教育定能事半功倍
+
+  
+
+律政司司長林定國表示，十分認同將國家安全教育與愛國主義教育掛勾，形容兩者是形影不離的「孖生兄弟」。他說國家安全教育不單是傳授有關維護國家安全，包括國家安全法律的相關知識，更重要是培養對維護國家安全，以及遵守國家安全法律的自覺性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800062-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800062-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800062-20250412.htm)
+
+---
+
 # 甯漢豪冀放寬商場公共空間使用限制可搞活經濟
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm)
-
----
-
-# 李強批美國關稅措施損國際經貿秩序　為全球經濟帶來巨大負面影響
-
-![李強表示，美國加徵所謂「對等關稅」，嚴重損害國際經貿秩序，為全球經濟帶來巨大負面影響。（新華社圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799991_1_20250411201807.jpg&q=50)
-  
-
-國務院總理李強與訪華的西班牙首相桑切斯會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799991-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799991-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799991-20250411.htm)
 
 ---

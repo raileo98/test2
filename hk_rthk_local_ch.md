@@ -1,3 +1,26 @@
+# 林定國稱若做好愛國主義教育　相信國家安全教育定能事半功倍
+
+  
+
+律政司司長林定國表示，十分認同將國家安全教育與愛國主義教育掛勾，形容兩者是形影不離的「孖生兄弟」。他說國家安全教育不單是傳授有關維護國家安全，包括國家安全法律的相關知識，更重要是培養對維護國家安全，以及遵守國家安全法律的自覺性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800062-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800062-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800062-20250412.htm)
+
+---
+
 # 甯漢豪冀放寬商場公共空間使用限制可搞活經濟
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799896-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799896-20250411.htm)
-
----
-
-# 陳美寶稱五大策略應對關稅戰致物流及航運不穩定不明朗情況
-
-![陳美寶強調香港不能漠視今次這一浪有多大、有多高，當前急務是如何應對全球貨量交易減少。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799894_1_20250411110231.jpg&q=90)
-  
-
-運輸及物流局長陳美寶接受《明報》訪問，表示關稅戰對本港物流、航運及航空界帶來持續的不穩定不明朗因素，當局將有五大策略應對，包括修例便利轉口、加強與大灣區港口協作「拉貨」、將探討藉減省報關手續提升轉口效率吸引轉口貨、深化與國際港口及船舶之間交流合作，擴大航運網絡、以及維持樞紐地位需升級轉型，提供多元化服務，令本港的能力和服務均能配合市場轉型。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm)
 
 ---
