@@ -1,3 +1,27 @@
+# Travel disruption as gales sweep northern China
+
+![Scooters and bicycles were knocked over by the wind in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800091_1_20250412192121.jpg&q=60)
+  
+
+A sweeping cold front has brought fierce winds across northern China, prompting widespread weather warnings, transport suspensions and emergency response measures.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800091-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800091-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800091-20250412.htm)
+
+---
+
 # China commits to safeguarding multilateral trade
 
 ![Wang Wentao said the fabrication of 'reciprocal tariffs' out of thin air by the United States is a typical practice of unilateral bullying. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800090_1_20250412190951.jpg&q=35)
@@ -1411,29 +1435,5 @@ Financial Secretary Paul Chan said on Thursday the integration of artificial int
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799750-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799750-20250410.htm)
-
----
-
-# 'AI surge creates new energy security challenges'
-
-![Data centres' global electricity consumption has increased by 12 percent annually over the past five years. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799751_1_20250410130449.jpg&q=80)
-  
-
-Electricity consumption by data centres will more than double by 2030, driven by artificial intelligence applications that will create new challenges for energy security and CO2 emission goals, the International Energy Agency (IEA) said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799751-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799751-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799751-20250410.htm)
 
 ---

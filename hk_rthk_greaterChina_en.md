@@ -1,3 +1,27 @@
+# Travel disruption as gales sweep northern China
+
+![Scooters and bicycles were knocked over by the wind in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800091_1_20250412192121.jpg&q=60)
+  
+
+A sweeping cold front has brought fierce winds across northern China, prompting widespread weather warnings, transport suspensions and emergency response measures.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800091-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800091-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800091-20250412.htm)
+
+---
+
 # China commits to safeguarding multilateral trade
 
 ![Wang Wentao said the fabrication of 'reciprocal tariffs' out of thin air by the United States is a typical practice of unilateral bullying. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800090_1_20250412190951.jpg&q=35)
@@ -1412,30 +1436,5 @@ A major hospital in the Myanmar capital Naypyidaw is a "mass casualty area" afte
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm)
-
----
-
-# Thai PM declares state of emergency in Bangkok
-
-![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797877_1_20250328163912.jpg&q=25)
-![Siam BTS metro station in Bangkok is shuttered in wake of the earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797877_2_20250328163912.jpg&q=30)
-  
-
-Thai authorities have declared a state of emergency in Bangkok, Prime Minister Paetongtarn Shinawatra said on Friday after the city was hit by a major earthquake centred in Myanmar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm)
 
 ---
