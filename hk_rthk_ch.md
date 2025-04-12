@@ -1,3 +1,26 @@
+# 白宮稱美伊溝通朝著實現互利結果邁出一步　雙方同意再會面
+
+  
+
+美國白宮表示，美國中東問題特使威特科夫在星期六與伊朗的溝通是朝著實現互利結果邁出的一步，雙方同意於本月19日再次會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800116-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800116-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800116-20250413.htm)
+
+---
+
 # 美上訴法院裁定政府可裁減消費者金融保護局員工但不能解散該機構
 
 ![特朗普政府推動解散美國消費者金融保護局，引發不滿。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800114_1_20250413021951.jpg&q=75)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800042-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800042-20250412.htm)
-
----
-
-# 甯漢豪冀放寬精簡申請　助商場用好室內及戶外空間帶旺經濟
-
-![甯漢豪希望透過為申請程序拆牆鬆綁，助商場用好公共空間帶旺經濟。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800041_1_20250412095145.jpg&q=65)
-  
-
-發展局推出試行計劃，放寛商場或其他商業項目的室內和戶外公共空間在地契下限制，精簡相關審批程序，為期兩年。發展局局長甯漢豪表示，今次拆牆鬆綁是希望可以用好商場的公共空間，在不阻街的情況下，帶旺經濟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800041-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800041-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800041-20250412.htm)
 
 ---

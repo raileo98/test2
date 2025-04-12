@@ -1,3 +1,26 @@
+# 白宮稱美伊溝通朝著實現互利結果邁出一步　雙方同意再會面
+
+  
+
+美國白宮表示，美國中東問題特使威特科夫在星期六與伊朗的溝通是朝著實現互利結果邁出的一步，雙方同意於本月19日再次會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800116-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800116-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800116-20250413.htm)
+
+---
+
 # 美上訴法院裁定政府可裁減消費者金融保護局員工但不能解散該機構
 
 ![特朗普政府推動解散美國消費者金融保護局，引發不滿。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800114_1_20250413021951.jpg&q=75)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799856-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799856-20250411.htm)
-
----
-
-# 多米尼加首都夜總會屋頂倒塌增至221死
-
-![搜救工作結束，死亡人數增至221人。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799853_1_20250411052107.jpg&q=20)
-  
-
-多米尼加首都聖多明各夜總會屋頂倒塌事故的搜救工作結束，死亡人數增至221人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799853-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799853-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799853-20250411.htm)
 
 ---
