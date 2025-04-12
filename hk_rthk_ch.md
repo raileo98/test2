@@ -1,3 +1,27 @@
+# 警方昨於機場拘捕兩漢涉毒　檢總市值約320萬元懷疑海洛英
+
+![警方扣留調查涉案人士。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800107_1_20250412235102.jpg&q=35)
+  
+
+警方昨日下午聯同相關部門人員，在香港國際機場進行打擊毒品行動，在入境大堂截查2名男子，並在其中一名內地男子的行李箱內，檢獲約4.5公斤懷疑海洛英，總市值約320萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm)
+
+---
+
 # Coldplay完成4場演出約20萬人入場　體育園稱運作暢順
 
 ![啟德體育園稱Coldplay演唱會首次在啟德體育園成功完滿舉行。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_1_20250412233056.jpg&q=90)

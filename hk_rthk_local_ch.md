@@ -1,3 +1,27 @@
+# 警方昨於機場拘捕兩漢涉毒　檢總市值約320萬元懷疑海洛英
+
+![警方扣留調查涉案人士。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800107_1_20250412235102.jpg&q=35)
+  
+
+警方昨日下午聯同相關部門人員，在香港國際機場進行打擊毒品行動，在入境大堂截查2名男子，並在其中一名內地男子的行李箱內，檢獲約4.5公斤懷疑海洛英，總市值約320萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm)
+
+---
+
 # Coldplay完成4場演出約20萬人入場　體育園稱運作暢順
 
 ![啟德體育園稱Coldplay演唱會首次在啟德體育園成功完滿舉行。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_1_20250412233056.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799943-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799943-20250411.htm)
-
----
-
-# 《頭條新聞》案法庭裁定通訊局須付港台工會及記協七成半訟費
-
-![上訴庭頒布判詞裁定通訊局須付港台工會及記者協會75%訟費。(港台圖片)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799931_1_20250411142833.jpg&q=75)
-  
-
-港台節目《頭條新聞》其中一集被通訊局裁定辱警的司法覆核案，香港電台製作人員工會連同記協，以及通訊局分別提出上訴。上訴庭去年9月駁回通訊局的上訴，港台工會及記協則部分上訴得直，法庭下令通訊局要撤回有關警告。上訴庭今日頒布判詞，裁定通訊局須付港台工會及記者協會75%訟費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799931-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799931-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799931-20250411.htm)
 
 ---
