@@ -1,9 +1,34 @@
-# Coldplay尾場演出場外傘架爆滿　有長傘暫置草叢或石壆
+# 女子遭輕鐵撞傷送院　港鐵指女事主突然衝出　車長響號並急剎車
 
-![啟德下午一度下大雨，晚上入場時已經停雨，不少觀攜帶了不能帶進場的長雨傘，場外的雨傘架放滿長雨傘。（孔令輝攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800096_1_20250412205459.jpg&q=75)
+![港鐵表示，輕鐵上的行車紀錄儀器拍攝到事發情況，會配合警方調查。（網上圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800097_1_20250412211647.jpg&q=40)
   
 
-英國著名樂隊Coldplay在香港啟德體育園主場館舉行的四場演唱會，今晚上演最後一場。啟德下午一度下大雨，晚上入場時已經停雨，不少觀攜帶了不能帶進場的長雨傘，場外的雨傘架放滿長雨傘。
+屯門輕鐵車廠站附近，傍晚有途人被輕鐵撞倒，輕鐵三條綫服務受阻十數分鐘，之後陸續回復正常，警方表示，女事主擦傷面部及手腳，送院時清醒。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800097-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800097-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800097-20250412.htm)
+
+---
+
+# Coldplay尾場演出場外傘架爆滿　有長傘暫置草叢或石壆
+
+![啟德下午一度下大雨，晚上入場時已經停雨，不少觀眾攜帶了不能帶進場的長雨傘，場外的雨傘架放滿長雨傘。（孔令輝攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800096_1_20250412205459.jpg&q=75)
+![有長傘被擺放於草叢及石壆位置。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800096_2_20250412211906.jpg&q=45)
+  
+
+英國著名樂隊Coldplay在香港啟德體育園主場館舉行的四場演唱會，今晚上演最後一場。啟德下午一度下大雨，晚上入場時已經停雨，不少觀眾攜帶了不能帶進場的長雨傘，場外的雨傘架放滿長雨傘。
 
   
 
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799922-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799922-20250411.htm)
-
----
-
-# 139人涉電騙及網騙案被捕　涉案事主總損失逾1.3億元
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799920_1_20250411130134.jpg&q=80)
-  
-
-警方過去兩星期拘捕139人，他們涉嫌觸犯欺騙手段取得財產及洗黑錢等罪，當中涉及不同類型的騙案涉款超過1.3億元，其中單一最大損失金額達3300萬元，遇騙的女事主分開約40次轉款至傀儡戶口。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799920-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799920-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799920-20250411.htm)
 
 ---
