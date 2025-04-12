@@ -1,5 +1,30 @@
+# 天文台：下午稍後至黃昏前後部分地區雨勢較大　或有猛烈陣風
+
+![天文台表示，今日下午稍後至黃昏前後部分地區雨勢較大，亦可能有猛烈陣風。（天文台網頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800059_1_20250412121639.jpg&q=80)
+  
+
+天文台表示，今日下午稍後至黃昏前後部分地區雨勢較大，亦可能有猛烈陣風。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800059-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800059-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800059-20250412.htm)
+
+---
+
 # 搶包山選拔賽明午長洲舉行　成績最佳12選手晉身下月5日決賽
 
+![搶包山選拔賽明日下午在長洲北帝廟遊樂場足球場舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800058_1_20250412121822.jpg&q=90)
   
 
 搶包山選拔賽明日下午在長洲北帝廟遊樂場足球場舉行。
@@ -23,6 +48,7 @@
 
 # 郭俊峯指國安風險一直存在　入境處會守好國家南大門
 
+![郭俊峯強調，國家安全風險一直存在，入境處會繼續守好國家南大門，全方位阻截危害國家安全的人士進入香港。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800055_1_20250412121551.jpg&q=90)
   
 
 入境處處長郭俊峯強調，國家安全風險一直存在，入境處不會掉以輕心，並會積極配合落實維護國安條例的工作，入境處會繼續守好國家南大門，全方位阻截危害國家安全的人士進入香港。
@@ -1409,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm)
-
----
-
-# 特區政府對范禮全請辭表示遺憾　稱不會削弱本港司法制度基礎
-
-![特區政府對范禮全請辭表示遺憾，並感謝范禮全過去多年的貢獻。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799986_1_20250411191605.jpg&q=75)
-  
-
-終審法院非常任法官范禮全請辭。特區政府表示遺憾，並感謝范禮全過去多年的貢獻，又指個別法官的去留不會削弱香港司法制度的基礎，亦無損特區政府堅持維護法治的決心。特區政府會全力支持司法機構日後繼續致力委任和保留外籍非常任法官的工作，並竭盡所能善用普通法制度，堅定維護香港法治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799986-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799986-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799986-20250411.htm)
 
 ---

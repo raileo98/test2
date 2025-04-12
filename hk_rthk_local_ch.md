@@ -1,5 +1,30 @@
+# 天文台：下午稍後至黃昏前後部分地區雨勢較大　或有猛烈陣風
+
+![天文台表示，今日下午稍後至黃昏前後部分地區雨勢較大，亦可能有猛烈陣風。（天文台網頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800059_1_20250412121639.jpg&q=80)
+  
+
+天文台表示，今日下午稍後至黃昏前後部分地區雨勢較大，亦可能有猛烈陣風。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800059-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800059-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800059-20250412.htm)
+
+---
+
 # 搶包山選拔賽明午長洲舉行　成績最佳12選手晉身下月5日決賽
 
+![搶包山選拔賽明日下午在長洲北帝廟遊樂場足球場舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800058_1_20250412121822.jpg&q=90)
   
 
 搶包山選拔賽明日下午在長洲北帝廟遊樂場足球場舉行。
@@ -23,6 +48,7 @@
 
 # 郭俊峯指國安風險一直存在　入境處會守好國家南大門
 
+![郭俊峯強調，國家安全風險一直存在，入境處會繼續守好國家南大門，全方位阻截危害國家安全的人士進入香港。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800055_1_20250412121551.jpg&q=90)
   
 
 入境處處長郭俊峯強調，國家安全風險一直存在，入境處不會掉以輕心，並會積極配合落實維護國安條例的工作，入境處會繼續守好國家南大門，全方位阻截危害國家安全的人士進入香港。
@@ -1410,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799891-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799891-20250411.htm)
-
----
-
-# 丘應樺稱透過多元化措施鞏固香港國際貿易中心地位
-
-![丘應樺說，香港在複雜多變的全球貿易格局下，力求化危為機，以推動香港作為國際貿易中心的持續發展。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799890_1_20250411095950.jpg&q=85)
-  
-
-商務及經濟發展局局長丘應樺在立法會財委會特別會議上表示，儘管海外市場經濟放緩、地緣政治帶來衝擊、美國對香港產品不合理地實施關稅等帶來不少挑戰和不明朗因素，特區政府正積極透過多元化措施，鞏固香港作為國際貿易中心的地位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799890-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799890-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799890-20250411.htm)
 
 ---
