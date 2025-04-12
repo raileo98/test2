@@ -1,9 +1,32 @@
+# Coldplay尾場演出場外傘架爆滿　有長傘暫置草叢或石壆
+
+  
+
+英國著名樂隊Coldplay在香港啟德體育園主場館舉行的四場演唱會，今晚上演最後一場。啟德下午一度下大雨，晚上入場時已經停雨，不少觀攜帶了不能帶進場的長雨傘，場外的雨傘架放滿長雨傘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800096-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800096-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800096-20250412.htm)
+
+---
+
 # 屯門輕鐵車廠站附近有人遭輕鐵撞倒　一度被困車底及後救出
 
 ![屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻。（網上圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800088_2_20250412192251.jpg&q=35)
   
 
-屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻。
+屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻，之後陸續恢復。
 
   
 
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799920-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799920-20250411.htm)
-
----
-
-# 申訴專員主動調查路政署維修及保養公共道路工作
-
-![申訴專員將詳細審研路政署維修及保養公共道路的工作，特別是如何防止嚴重路陷事故。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799919_1_20250411124640.jpg&q=40)
-  
-
-申訴專員公署展開主動調查行動，詳細審研路政署維修及保養公共道路的工作，包括道路破損的投訴的跟進、對承建商的道路維修保養工作的監管、大規模路面修復工程與相關部門的協調安排，以及路政署如何應對與極端天氣相關的道路事故等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799919-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799919-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799919-20250411.htm)
 
 ---

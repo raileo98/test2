@@ -1,3 +1,27 @@
+# At least 69 killed in thunderstorms in India, Nepal
+
+![Dark clouds gather in the sky before a thunderstorm in Nagaon District, Assam, India. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800092_1_20250412200340.jpg&q=90)
+  
+
+At least 69 people were killed this week in unusually intense thunderstorms across eastern India's Bihar state and in neighbouring Nepal, officials said on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800092-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800092-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800092-20250412.htm)
+
+---
+
 # Travel disruption as gales sweep northern China
 
 ![Scooters and bicycles were knocked over by the wind in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800091_1_20250412192121.jpg&q=60)
@@ -1411,29 +1435,5 @@ Authorities on Thursday said they are stepping up efforts to tackle scam syndica
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799754-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799754-20250410.htm)
-
----
-
-# AI to turbocharge fintech growth in Asia: Paul Chan
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799750_1_20250410130359.jpg&q=90)
-  
-
-Financial Secretary Paul Chan said on Thursday the integration of artificial intelligence technology into the fintech industry could help turbocharge financial development across Asia.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799750-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799750-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799750-20250410.htm)
 
 ---

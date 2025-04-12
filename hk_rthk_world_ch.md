@@ -1,3 +1,27 @@
+# 美伊正式就核問題展開間接談判
+
+![伊朗外長阿拉格齊（左）向阿曼外交大臣巴德爾（右）闡述伊朗的核心立場。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800095_1_20250412203739.jpg&q=85)
+  
+
+伊朗與美國在阿曼首都馬斯喀特正式就核問題展開間接談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm)
+
+---
+
 # 石破茂稱世界飽受分裂困擾　強調團結重要性
 
 ![石破茂出席大阪世博會開幕儀式，強調團結重要性。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800077_1_20250412171559.jpg&q=90)
@@ -622,9 +646,9 @@
 
 ---
 
-# 中方指美方對華關稅稅率異常高淪數字游戲　如再加將不予理會
+# 中方指美方對華關稅稅率異常高淪數字遊戲　如再加將不予理會
 
-![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字游戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799980_1_20250411195622.jpg&q=25)
+![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字遊戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799980_1_20250411195622.jpg&q=25)
   
 
 中國再度反制美國，向原產於美國的進口商品，加徵關稅稅率上調至125%。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799842-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799842-20250411.htm)
-
----
-
-# 歐盟暫緩實施反制美國關稅的措施90日
-
-![馮德萊恩警告，若果談判結果不令人滿意，將再啟動反制措施。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799840_1_20250410233651.jpg&q=90)
-  
-
-歐盟宣布，暫緩實施反制美國關稅的措施90日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799840-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799840-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799840-20250411.htm)
 
 ---

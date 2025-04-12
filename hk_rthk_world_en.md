@@ -1,3 +1,27 @@
+# At least 69 killed in thunderstorms in India, Nepal
+
+![Dark clouds gather in the sky before a thunderstorm in Nagaon District, Assam, India. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800092_1_20250412200340.jpg&q=90)
+  
+
+At least 69 people were killed this week in unusually intense thunderstorms across eastern India's Bihar state and in neighbouring Nepal, officials said on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800092-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800092-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800092-20250412.htm)
+
+---
+
 # South Carolina executes second convict by firing squad
 
 ![Mikal Mahdi (pictured) was executed for the 2004 murder of 56-year-old James Myers. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800044_1_20250412094035.jpg&q=85)
@@ -1411,29 +1435,5 @@ A Palestinian official told AFP that Israeli forces shot dead a teenager holding
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm)
-
----
-
-# Le Pen invokes MLK ahead of far-right Paris rally
-
-![Protesters gathered during a rally in Paris in support of President of Rassemblement National parliamentary group Marine Le Pen, after she was convicted. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799140_1_20250406211858.jpg&q=80)
-  
-
-France's Marine Le Pen on Sunday invoked Martin Luther King's struggle for civil rights as her far-right party planned to rally its supporters after she was convicted of embezzlement and banned from public office.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799140-20250406.htm)
 
 ---

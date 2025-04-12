@@ -1,3 +1,27 @@
+# 北京遭大風天氣影響部分交通停運　市內兩大機場共取消逾7百航班
+
+![北京市有樹木被強風吹倒。(路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800094_1_20250412204344.jpg&q=40)
+  
+
+一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。今日截至傍晚6時，北京首都機場和大興機場共取消超過700個航班。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800094-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800094-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800094-20250412.htm)
+
+---
+
 # 中國駐緬甸大使館：大地震導致8名中國公民死亡
 
 ![中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800089_1_20250412184342.jpg&q=50)
@@ -574,9 +598,9 @@
 
 ---
 
-# 中方指美方對華關稅稅率異常高淪數字游戲　如再加將不予理會
+# 中方指美方對華關稅稅率異常高淪數字遊戲　如再加將不予理會
 
-![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字游戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799980_1_20250411195622.jpg&q=25)
+![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字遊戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799980_1_20250411195622.jpg&q=25)
   
 
 中國再度反制美國，向原產於美國的進口商品，加徵關稅稅率上調至125%。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm)
-
----
-
-# 商務部：面對美國霸凌關稅　中方將堅定不移推進高水平對外開放
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799769_1_20250410151926.jpg&q=90)
-  
-
-在北京，商務部再次強烈譴責和堅決反對美國以各種藉口濫施關稅，強調作為全球第二大經濟體和第二大商品消費市場，面對美國霸凌關稅，中方將堅定不移推進高水平對外開放，堅定不移走好自己的路，以自身的穩定發展為全球經濟注入更多確定性。中國外貿有信心、有底氣應對各種風險挑戰。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799769-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799769-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799769-20250410.htm)
 
 ---

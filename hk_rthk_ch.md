@@ -1,3 +1,74 @@
+# Coldplay尾場演出場外傘架爆滿　有長傘暫置草叢或石壆
+
+  
+
+英國著名樂隊Coldplay在香港啟德體育園主場館舉行的四場演唱會，今晚上演最後一場。啟德下午一度下大雨，晚上入場時已經停雨，不少觀攜帶了不能帶進場的長雨傘，場外的雨傘架放滿長雨傘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800096-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800096-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800096-20250412.htm)
+
+---
+
+# 美伊正式就核問題展開間接談判
+
+![伊朗外長阿拉格齊（左）向阿曼外交大臣巴德爾（右）闡述伊朗的核心立場。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800095_1_20250412203739.jpg&q=85)
+  
+
+伊朗與美國在阿曼首都馬斯喀特正式就核問題展開間接談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm)
+
+---
+
+# 北京遭大風天氣影響部分交通停運　市內兩大機場共取消逾7百航班
+
+![北京市有樹木被強風吹倒。(路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800094_1_20250412204344.jpg&q=40)
+  
+
+一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。今日截至傍晚6時，北京首都機場和大興機場共取消超過700個航班。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800094-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800094-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800094-20250412.htm)
+
+---
+
 # 石破茂稱世界飽受分裂困擾　強調團結重要性
 
 ![石破茂出席大阪世博會開幕儀式，強調團結重要性。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800077_1_20250412171559.jpg&q=90)
@@ -75,7 +146,7 @@
 ![屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻。（網上圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800088_2_20250412192251.jpg&q=35)
   
 
-屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻。
+屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻，之後陸續恢復。
 
   
 
