@@ -1,3 +1,27 @@
+# 金磚成員呼籲共同反對單邊主義和貿易保護主義
+
+![中方在會議上指出，美方的對等關稅政策，對世界經濟造成持續衝擊。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800063_1_20250412130953.jpg&q=75)
+  
+
+2025年金磚國家經貿聯絡組第二次會議周四至周五以視像形式舉行，金磚成員就美國對等關稅政策深入交換意見，對相關措施引發的貿易緊張局勢表示嚴正關切，並呼籲共同反對單邊主義和貿易保護主義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800063-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800063-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800063-20250412.htm)
+
+---
+
 # 民安隊辦徵文比賽推廣國家安全　培養學生國民身份認同
 
 ![民安隊在短片中介紹徵文比賽，認為有助培養學生的國民身份認同。（保安局社交網頁)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800057_1_20250412124848.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799990-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799990-20250411.htm)
-
----
-
-# 摩根大通上季盈利按年升逾9%
-
-![摩根大通今年首季盈利146.4億美元，按年增長逾9%，按季升近5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799993_1_20250411203319.jpg&q=85)
-  
-
-摩根大通公布，今年首季盈利146.4億美元，按年增長逾9%，按季升近5%。每股經調整盈利5.07美元，按年升14%，按季升逾5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm)
 
 ---

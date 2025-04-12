@@ -1,3 +1,27 @@
+# 金磚成員呼籲共同反對單邊主義和貿易保護主義
+
+![中方在會議上指出，美方的對等關稅政策，對世界經濟造成持續衝擊。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800063_1_20250412130953.jpg&q=75)
+  
+
+2025年金磚國家經貿聯絡組第二次會議周四至周五以視像形式舉行，金磚成員就美國對等關稅政策深入交換意見，對相關措施引發的貿易緊張局勢表示嚴正關切，並呼籲共同反對單邊主義和貿易保護主義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800063-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800063-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800063-20250412.htm)
+
+---
+
 # 完成再入主白宮後首次體檢　特朗普稱自己狀態非常好
 
 ![特朗普在專機上表示，已完成體檢，自己的狀態非常好。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800050_1_20250412102349.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799829-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799829-20250410.htm)
-
----
-
-# 王毅：要敢於善於鬥爭　堅決維護國家主權、安全和發展利益
-
-![王毅說，要敢於善於鬥爭，堅決維護國家主權、安全和發展利益。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799825_1_20250410203611.jpg&q=90)
-  
-
-中共中央政治局委員、外交部長王毅在北京出席外交部駐外使節工作會議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799825-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799825-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799825-20250410.htm)
 
 ---
