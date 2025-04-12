@@ -1,3 +1,26 @@
+# 搶包山選拔賽明午長洲舉行　成績最佳12選手晉身下月5日決賽
+
+  
+
+搶包山選拔賽明日下午在長洲北帝廟遊樂場足球場舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800058-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800058-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800058-20250412.htm)
+
+---
+
 # 郭俊峯指國安風險一直存在　入境處會守好國家南大門
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799986-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799986-20250411.htm)
-
----
-
-# 鄧炳強稱本港面對四大國安風險　將致力提升市民慎思明辨能力
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799985_1_20250411190632.jpg&q=85)
-  
-
-保安局局長鄧炳強表示，政府會繼續加強國家安全及反恐情報收集及分析，以及與其他政策局及部門合作，更好地履行維護國家安全的責任。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799985-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799985-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799985-20250411.htm)
 
 ---

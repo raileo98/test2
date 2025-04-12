@@ -1,3 +1,27 @@
+# HK told to leverage advantages in telling good stories
+
+![Pan Yundong says Beijing is committed to becoming a source of stability amid global changes. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800056_1_20250412120255.jpg&q=85)
+  
+
+Pan Yundong, deputy commissioner of the Office of the Commissioner of the Ministry of Foreign Affairs in Hong Kong, has called for all sectors to leverage the SAR's advantages in telling good stories about Hong Kong and the nation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800056-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800056-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800056-20250412.htm)
+
+---
+
 # EU set to mark 50 years of ties with China in July
 
 ![French leader Emmanuel Macron and European Commission chief Ursula von der Leyen meet President Xi Jinping at the Elysee Palace in Paris in May 2024. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799970_1_20250411181740.jpg&q=90)
@@ -1413,29 +1437,5 @@ A strong 7.7 magnitude earthquake hit central Myanmar on Friday, the United Stat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm)
-
----
-
-# Xi meets heads of international business community
-
-![Xi Jinping had also met with foreign business leaders after the China Development Forum last year. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797830_1_20250328121558.jpg&q=90)
-  
-
-President Xi Jinping met with representatives of the international business community in Beijing following last weekend's China Development Forum (CDF), Xinhua News Agency reported on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797830-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797830-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797830-20250328.htm)
 
 ---

@@ -1,3 +1,27 @@
+# HK told to leverage advantages in telling good stories
+
+![Pan Yundong says Beijing is committed to becoming a source of stability amid global changes. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800056_1_20250412120255.jpg&q=85)
+  
+
+Pan Yundong, deputy commissioner of the Office of the Commissioner of the Ministry of Foreign Affairs in Hong Kong, has called for all sectors to leverage the SAR's advantages in telling good stories about Hong Kong and the nation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800056-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800056-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800056-20250412.htm)
+
+---
+
 # Police ramp up cross-border cooperation to fight scams
 
 ![Police Commissioner Joe Chow said police were often using Interpol channels. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800054_1_20250412112128.jpg&q=80)
@@ -1411,29 +1435,5 @@ Dominican Republic rescue workers ended the search for survivors of a nightclub 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799736-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799736-20250410.htm)
-
----
-
-# Alejandro Tabilo stuns Djokovic in Monte Carlo
-
-![Novak Djokovic crashes out of Monte-Carlo Masters, losing to Chilean Alejandro Tabilo in the second round. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799731_1_20250410114405.jpg&q=85)
-  
-
-Novak Djokovic rued a "horrible" performance as he crashed out of the Monte-Carlo Masters in his opening match.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799731-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799731-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799731-20250410.htm)
 
 ---

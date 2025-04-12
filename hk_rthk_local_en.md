@@ -1,3 +1,27 @@
+# HK told to leverage advantages in telling good stories
+
+![Pan Yundong says Beijing is committed to becoming a source of stability amid global changes. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800056_1_20250412120255.jpg&q=85)
+  
+
+Pan Yundong, deputy commissioner of the Office of the Commissioner of the Ministry of Foreign Affairs in Hong Kong, has called for all sectors to leverage the SAR's advantages in telling good stories about Hong Kong and the nation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800056-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800056-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800056-20250412.htm)
+
+---
+
 # Police ramp up cross-border cooperation to fight scams
 
 ![Police Commissioner Joe Chow said police were often using Interpol channels. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800054_1_20250412112128.jpg&q=80)
@@ -1411,29 +1435,5 @@ A tech expert says people still prefer authentic animation over AI-generated art
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799213-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799213-20250407.htm)
-
----
-
-# HK triathletes clinch bronze on home soil
-
-![The SAR team won third in the mixed relay on home soil. Screencap courtesy of Triathlon Association of Hong Kong China](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799202_1_20250407110223.jpg&q=90)
-  
-
-Hong Kong, China secured a bronze medal in the mixed relay at the Asia Triathlon Sprint Championships.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799202-20250407.htm)
 
 ---
