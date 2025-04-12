@@ -71,6 +71,7 @@
 
 # 北京有市民形容風力大　一度被強風吹得站不穩
 
+![天壇公園暫停開放，有遊客在公園外「摸門釘」。(盧紫菁攝)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800074_1_20250412183253.jpg&q=70)
   
 
 北京市發布近十年首個大風橙色預警，當局預計今早10時至晚上10時是風力最強時段，局部地區陣風可達14級，市區氣溫大幅下降。
