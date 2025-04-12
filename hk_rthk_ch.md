@@ -1,5 +1,6 @@
 # Coldplay尾場演出場外傘架爆滿　有長傘暫置草叢或石壆
 
+![啟德下午一度下大雨，晚上入場時已經停雨，不少觀攜帶了不能帶進場的長雨傘，場外的雨傘架放滿長雨傘。（孔令輝攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800096_1_20250412205459.jpg&q=75)
   
 
 英國著名樂隊Coldplay在香港啟德體育園主場館舉行的四場演唱會，今晚上演最後一場。啟德下午一度下大雨，晚上入場時已經停雨，不少觀攜帶了不能帶進場的長雨傘，場外的雨傘架放滿長雨傘。
