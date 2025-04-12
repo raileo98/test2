@@ -1,3 +1,26 @@
+# 王文濤：美對等關稅為發展中國家特別是最不發達國家帶來巨大傷害
+
+  
+
+商務部部長王文濤昨天與世貿組織總幹事伊維拉視像通話，王文濤表示，美國不斷出台關稅措施，為全球帶來巨大的不確定性和不穩定性，引發國際社會和美國國內的混亂局面。美方憑空炮製對等關稅，是典型的單邊霸凌做法。美國的對等關稅為發展中國家特別是最不發達國家帶來巨大傷害，甚至引發人道主義危機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm)
+
+---
+
 # 中國駐美使館：中國永不會向美國極限施壓屈服
 
 ![中方強調，如果美方繼續關稅數字遊戲，中方將不予理會。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800064_1_20250412132433.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799994-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799994-20250411.htm)
-
----
-
-# 美國撤格陵蘭基地指揮官職務　據報因她與萬斯劃清界線
-
-![美國駐格陵蘭軍事基地指揮官邁耶斯（圖左），曾與副總統萬斯交談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799995_1_20250411204858.jpg&q=75)
-  
-
-美國駐格陵蘭軍事基地指揮官邁耶斯被撤職，據報因她曾發電郵就副總統萬斯批評丹麥的言論劃清界線。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm)
 
 ---

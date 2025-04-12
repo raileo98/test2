@@ -1,3 +1,26 @@
+# 王文濤：美對等關稅為發展中國家特別是最不發達國家帶來巨大傷害
+
+  
+
+商務部部長王文濤昨天與世貿組織總幹事伊維拉視像通話，王文濤表示，美國不斷出台關稅措施，為全球帶來巨大的不確定性和不穩定性，引發國際社會和美國國內的混亂局面。美方憑空炮製對等關稅，是典型的單邊霸凌做法。美國的對等關稅為發展中國家特別是最不發達國家帶來巨大傷害，甚至引發人道主義危機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm)
+
+---
+
 # 中國駐美使館：中國永不會向美國極限施壓屈服
 
 ![中方強調，如果美方繼續關稅數字遊戲，中方將不予理會。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800064_1_20250412132433.jpg&q=85)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm)
-
----
-
-# 中方從中午起對美加徵84%關稅　文化和旅遊部對赴美遊客發提示
-
-![商務部表示，中方在世貿組織爭端解決機制下，起訴美方最新加徵關稅措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799673_1_20250410012424.jpg&q=25)
-  
-
-中方進一步反制美國向中國產品徵收104%的關稅措施，今日中午起對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵84％關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm)
 
 ---

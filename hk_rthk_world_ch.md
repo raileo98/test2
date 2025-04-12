@@ -1,3 +1,26 @@
+# 王文濤：美對等關稅為發展中國家特別是最不發達國家帶來巨大傷害
+
+  
+
+商務部部長王文濤昨天與世貿組織總幹事伊維拉視像通話，王文濤表示，美國不斷出台關稅措施，為全球帶來巨大的不確定性和不穩定性，引發國際社會和美國國內的混亂局面。美方憑空炮製對等關稅，是典型的單邊霸凌做法。美國的對等關稅為發展中國家特別是最不發達國家帶來巨大傷害，甚至引發人道主義危機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm)
+
+---
+
 # 金磚成員呼籲共同反對單邊主義和貿易保護主義
 
 ![中方在會議上指出，美方的對等關稅政策，對世界經濟造成持續衝擊。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800063_1_20250412130953.jpg&q=75)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799830-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799830-20250410.htm)
-
----
-
-# 尹錫悅明午搬離韓總統官邸　近日接連晤黨內潛在大選候選人惹關注
-
-![尹錫悅將於明日下午離開首爾龍山區的總統官邸。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799829_1_20250410211142.jpg&q=90)
-  
-
-南韓前總統尹錫悅將於明日下午5時離開首爾龍山區的總統官邸，搬回他在首爾市瑞草區的私人住宅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799829-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799829-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799829-20250410.htm)
 
 ---
