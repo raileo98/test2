@@ -1,3 +1,26 @@
+# 配合潑水節活動　運輸署明日下午於九龍城一帶實施特別交通安排
+
+  
+
+九龍城區昨日起至明天一連3日舉辦潑水節相關活動，運輸署發出公告，為配合公眾巡遊活動，該區在星期日下午3時至下午5時30分，將會實施特別交通安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800053-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800053-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800053-20250412.htm)
+
+---
+
 # 周一鳴：積極推動「智慧警政」　在市區或郊區試行無人機高空巡邏
 
 ![警察無人機隊員接受實務測試。（警務處網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800051_1_20250412110124.jpg&q=30)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm)
-
----
-
-# 王毅指美國不能任意妄為　歷史車輪不能倒退
-
-![王毅與格羅西會晤。（外交部圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799983_1_20250411184900.jpg&q=80)
-  
-
-中共中央政治局委員、外交部長王毅在北京，與國際原子能機構總幹事格羅西會面時批評美國推出的關稅措施，凌駕各國利益，美國不能任意妄為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm)
 
 ---
