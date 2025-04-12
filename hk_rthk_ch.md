@@ -1,3 +1,26 @@
+# 甯漢豪冀放寬商場公共空間使用限制可搞活經濟
+
+  
+
+發展局推出試行計劃，放寛商場或其他商業項目使用室內和戶外公共空間的限制，精簡審批程序，發展局局長甯漢豪形容「拆牆鬆綁」是希望「搞活」經濟，用好商場的公共空間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800061-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800061-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800061-20250412.htm)
+
+---
+
 # 周一鳴：公眾活動被騎劫風險不容忽視
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799991-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799991-20250411.htm)
-
----
-
-# 元朗5人涉策劃傷人案　遇查反抗遭警員擎槍制服
-
-![行動中2名警員受傷，警方一度擎槍制服疑犯。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799989_1_20250411213724.jpg&q=90)
-  
-
-警方採取情報主導行動，拘捕5名非華裔男子，年齡介乎20至25歲，涉嫌串謀意圖傷人、意圖傷人及行使虛假文書。行動中2名警員受傷，警方一度擎槍制服疑犯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799989-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799989-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799989-20250411.htm)
 
 ---

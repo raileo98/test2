@@ -1,3 +1,26 @@
+# 甯漢豪冀放寬商場公共空間使用限制可搞活經濟
+
+  
+
+發展局推出試行計劃，放寛商場或其他商業項目使用室內和戶外公共空間的限制，精簡審批程序，發展局局長甯漢豪形容「拆牆鬆綁」是希望「搞活」經濟，用好商場的公共空間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800061-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800061-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800061-20250412.htm)
+
+---
+
 # 周一鳴：公眾活動被騎劫風險不容忽視
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm)
-
----
-
-# 姚柏良稱適度放寬限制漁業界可向遊客提供沉浸式體驗
-
-![姚柏良說，香港有很多優美的海岸線和小島，發展相關旅遊，需要有其他配套。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799893_1_20250411110210.jpg&q=80)
-  
-
-文化體育及旅遊局局長羅淑佩日前接受報章訪問時表示，當局會拆牆鬆綁，以便海島旅遊增加一些垂釣等活動，例如提供「即撈即捕即食」的體驗。旅遊界立法會議員姚柏良指出，現時漁船的牌照不容許捕魚後立即在船上煮食，認為如果能夠適度放寬相關限制，業界可以向遊客提供沉浸式體驗，預料會受旅客歡迎。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799893-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799893-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799893-20250411.htm)
 
 ---
