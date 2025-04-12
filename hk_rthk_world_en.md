@@ -1,3 +1,27 @@
+# US and Iran to meet again after rare talks
+
+![Iranian Foreign Minister Abbas Araghchi briefly spoke face-to-face with US special envoy Steve Witkoff (pictured). File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800119_1_20250413063740.jpg&q=80)
+  
+
+The United States wants a nuclear agreement "as soon as possible", Iran said after rare talks on Saturday, as US President Donald Trump threatens military action if they fail to reach a deal.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800119-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800119-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800119-20250413.htm)
+
+---
+
 # First US-Iran nuclear talks in years start in Oman
 
 ![Iranians walk by anti-US murals on the walls of the former US embassy in Tehran, Iran. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800093_1_20250412200659.jpg&q=60)
@@ -1411,29 +1435,5 @@ A measles outbreak has killed a second child in the southwestern United States, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799174-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799174-20250407.htm)
-
----
-
-# World scrambles to temper Trump tariffs
-
-![US President Donald Trump delivers remarks on tariffs in the Rose Garden at the White House, April 2, 2025. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799149_1_20250407011036.jpg&q=80)
-  
-
-More than 50 countries have sought talks with President Donald Trump in a scramble to ease punishing tariffs on exports to the United States, the White House said on Sunday, as trade partners braced for fallout.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm)
 
 ---

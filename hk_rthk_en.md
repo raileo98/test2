@@ -1,3 +1,27 @@
+# US and Iran to meet again after rare talks
+
+![Iranian Foreign Minister Abbas Araghchi briefly spoke face-to-face with US special envoy Steve Witkoff (pictured). File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800119_1_20250413063740.jpg&q=80)
+  
+
+The United States wants a nuclear agreement "as soon as possible", Iran said after rare talks on Saturday, as US President Donald Trump threatens military action if they fail to reach a deal.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800119-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800119-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800119-20250413.htm)
+
+---
+
 # Piastri takes pole for Bahrain Grand Prix
 
 ![Australia's Oscar Piastri of the McLaren F1 Team during qualifying. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800118_1_20250413060821.jpg&q=90)
@@ -1411,29 +1435,5 @@ Postal Savings Bank of China has announced a commitment to provide no less than 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799782-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799782-20250410.htm)
-
----
-
-# China to follow through to the end: Commerce Ministry
-
-![The Commerce Ministry says the nation will hedge against uncertainty coming from the external environment. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799775_1_20250410155326.jpg&q=80)
-  
-
-The Commerce Ministry on Thursday said China will continue taking countermeasures to safeguard the country's sovereignty, security and development interests, emphasising that protectionism is a one-way road.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799775-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799775-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799775-20250410.htm)
 
 ---
