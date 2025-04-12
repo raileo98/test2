@@ -1,3 +1,27 @@
+# 屯門輕鐵車廠站附近有人遭輕鐵撞倒　一度被困車底及後救出
+
+![屯門輕鐵車廠站附近有人遭輕鐵撞倒　一度被困車底及後救出](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800088_1_20250412183950.jpg&q=90)
+  
+
+屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm)
+
+---
+
 # 天文台稱冷鋒橫過廣東沿岸　受驟雨及狂風雷暴影響本港風力增強
 
   
@@ -23,6 +47,7 @@
 
 # 內地多處出現極端大風　北京近700航班取消
 
+![北京市面大風，有單車等車輛被強風吹倒。(盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800084_1_20250412184125.jpg&q=65)
   
 
 一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。今日截至下午2時，北京兩大機場共取消近700個航班。
