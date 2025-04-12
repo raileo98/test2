@@ -1,3 +1,27 @@
+# Trump grants tariff exclusions to smartphones and tech
+
+![Twenty product categories are listed including the broad 8471 code for all computers, laptops, disc drives and automatic data processing. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800115_1_20250413041711.jpg&q=90)
+  
+
+US President Donald Trump's administration has granted exclusions from steep reciprocal tariffs to smartphones, computers and some other electronics imported largely from China, providing a big break to tech companies like Apple that rely on imported products.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800115-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800115-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800115-20250413.htm)
+
+---
+
 # De Bruyne inspires Man City revival to crush Palace
 
 ![Manchester City midfielder Kevin De Bruyne reacts as he is substituted during the match against Crystal Palace. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800099_1_20250412214141.jpg&q=90)
@@ -1411,29 +1435,5 @@ The Chinese Manufacturers' Association on Thursday urged the SAR administration 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm)
-
----
-
-# US tariffs fundamentally wrong, finance chief says
-
-![Financial Secretary Paul Chan says that the US reciprocal tariffs are both politically and historically wrong. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799756_1_20250410134156.jpg&q=80)
-  
-
-Financial Secretary Paul Chan on Thursday slammed the latest US "reciprocal tariffs", which had earlier been imposed before being paused, as "fundamentally wrong" politically, economically and historically.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799756-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799756-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799756-20250410.htm)
 
 ---

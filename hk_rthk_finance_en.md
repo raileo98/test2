@@ -1,3 +1,27 @@
+# Trump grants tariff exclusions to smartphones and tech
+
+![Twenty product categories are listed including the broad 8471 code for all computers, laptops, disc drives and automatic data processing. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800115_1_20250413041711.jpg&q=90)
+  
+
+US President Donald Trump's administration has granted exclusions from steep reciprocal tariffs to smartphones, computers and some other electronics imported largely from China, providing a big break to tech companies like Apple that rely on imported products.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800115-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800115-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800115-20250413.htm)
+
+---
+
 # Argentina ends foreign exchange restrictions
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800047_1_20250412095454.jpg&q=90)
@@ -1412,29 +1436,5 @@ US stocks finished mixed on Tuesday on a quiet trading day as investors braced f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798541-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798541-20250402.htm)
-
----
-
-# HK stocks close higher
-
-![The Hang Seng Index finished up 0.4 percent at 23,206. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798476_1_20250401171429.jpg&q=90)
-  
-
-Hong Kong stocks ended higher on Tuesday, with the benchmark Hang Seng Index up 0.4 percent at 23,206.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm)
 
 ---
