@@ -1,3 +1,27 @@
+# 美上訴法院裁定政府可裁減消費者金融保護局員工但不能解散該機構
+
+![特朗普政府推動解散美國消費者金融保護局，引發不滿。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800114_1_20250413021951.jpg&q=75)
+  
+
+美國上訴法院裁定，總統特朗普政府可以裁減美國消費者金融保護局的員工，但不能解散該機構。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800114-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800114-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800114-20250413.htm)
+
+---
+
 # 世糧署警告美國新一輪削援或惡化阿富汗饑餓狀況　籲捐助方增支持
 
 ![圖為阿富汗民眾去年排隊，等候世界糧食計劃署派發口糧的情況。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800113_1_20250413015048.jpg&q=65)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800041-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800041-20250412.htm)
-
----
-
-# 周一鳴：騙案已形成產業鏈　要靠國際間合作破案
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800040_1_20250412090440.jpg&q=90)
-  
-
-警務處處長周一鳴表示，騙案已形成產業鏈，破案的難處在於騙徒及詐騙集團未必在香港，難以容易即時破案，需要靠國際間的合作，例如與國際刑警協調。他又表示，很多發生在本港的騙案，均涉及傀儡戶口，所以將會重點打擊售賣戶口的人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800040-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800040-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800040-20250412.htm)
 
 ---

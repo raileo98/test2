@@ -1,3 +1,27 @@
+# 美上訴法院裁定政府可裁減消費者金融保護局員工但不能解散該機構
+
+![特朗普政府推動解散美國消費者金融保護局，引發不滿。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800114_1_20250413021951.jpg&q=75)
+  
+
+美國上訴法院裁定，總統特朗普政府可以裁減美國消費者金融保護局的員工，但不能解散該機構。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800114-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800114-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800114-20250413.htm)
+
+---
+
 # 世糧署警告美國新一輪削援或惡化阿富汗饑餓狀況　籲捐助方增支持
 
 ![圖為阿富汗民眾去年排隊，等候世界糧食計劃署派發口糧的情況。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800113_1_20250413015048.jpg&q=65)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799853-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799853-20250411.htm)
-
----
-
-# 紐約有直升機墜落哈德遜河　美媒稱至少一死
-
-![紐約有直升機墜落哈德遜河，救援人員到場搜救。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799852_1_20250411043624.jpg&q=90)
-  
-
-美國紐約有直升機墜落哈德遜河，哥倫比亞廣播公司報道，至少一人死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799852-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799852-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799852-20250411.htm)
 
 ---
