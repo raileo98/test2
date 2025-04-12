@@ -1,3 +1,27 @@
+# Piastri takes pole for Bahrain Grand Prix
+
+![Australia's Oscar Piastri of the McLaren F1 Team during qualifying. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800118_1_20250413060821.jpg&q=90)
+  
+
+McLaren's Oscar Piastri celebrated pole position for the Bahrain Grand Prix, his 50th Formula One race, while dejected championship-leading teammate Lando Norris qualified sixth and said he had been "clueless on track".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800118-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800118-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800118-20250413.htm)
+
+---
+
 # De Bruyne inspires Man City revival to crush Palace
 
 ![Manchester City midfielder Kevin De Bruyne reacts as he is substituted during the match against Crystal Palace. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800099_1_20250412214141.jpg&q=90)
@@ -1416,29 +1440,5 @@ Hong Kong, China snooker player Ng On-yee on Monday defeated World No. 1 Mink Nu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm)
-
----
-
-# Braves' Profar suspended 80 games for doping violation
-
-![Profar agreed to a three-year deal with the Atlanta Braves in January. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798372_1_20250401083652.jpg&q=80)
-  
-
-Major League Baseball has suspended Atlanta Braves slugger Jurickson Profar for 80 games after he tested positive for the performance-enhancing chorionic gonadotropin (hCG), MLB announced.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm)
 
 ---

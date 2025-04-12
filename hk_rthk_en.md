@@ -1,3 +1,27 @@
+# Piastri takes pole for Bahrain Grand Prix
+
+![Australia's Oscar Piastri of the McLaren F1 Team during qualifying. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800118_1_20250413060821.jpg&q=90)
+  
+
+McLaren's Oscar Piastri celebrated pole position for the Bahrain Grand Prix, his 50th Formula One race, while dejected championship-leading teammate Lando Norris qualified sixth and said he had been "clueless on track".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800118-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800118-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800118-20250413.htm)
+
+---
+
 # Trump grants tariff exclusions to smartphones and tech
 
 ![Twenty product categories are listed including the broad 8471 code for all computers, laptops, disc drives and automatic data processing. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800115_1_20250413041711.jpg&q=90)
@@ -1411,29 +1435,5 @@ The Commerce Ministry on Thursday said China will continue taking countermeasure
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799775-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799775-20250410.htm)
-
----
-
-# Manufacturers call for support measures amid trade war
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799768_1_20250410151436.jpg&q=80)
-  
-
-The Chinese Manufacturers' Association on Thursday urged the SAR administration to roll out support measures to help enterprises with stabilising their working capital amid the global trade war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm)
 
 ---
