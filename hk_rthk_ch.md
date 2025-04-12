@@ -1,3 +1,26 @@
+# 厄瓜多爾七省兩市及所有監獄實施為期60日緊急狀態
+
+  
+
+厄瓜多爾總統諾沃亞發布政令，宣布因嚴重內部動蕩，瓜亞斯省、洛斯里奧斯省等七個省，以及首都基多與另一城市，進入60日緊急狀態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800112-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800112-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800112-20250413.htm)
+
+---
+
 # 英國會通過緊急法案維持英國鋼鐵運作　分析指收歸國有或不可避免
 
 ![英國首相施紀賢會見當地鋼鐵工人。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800111_1_20250413011641.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800038-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800038-20250412.htm)
-
----
-
-# 聯儲局：市場運作良好　絕對準備好必要時穩定市場
-
-![柯林斯表示現時市場繼續良好運作，若出現問題，聯儲局有工具應對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800037_1_20250412080000.jpg&q=60)
-  
-
-波士頓聯儲銀行總裁柯林斯表示，聯儲局絕對準備好在必要時應對金融市場運作問題，穩定市場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800037-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800037-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800037-20250412.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 厄瓜多爾七省兩市及所有監獄實施為期60日緊急狀態
+
+  
+
+厄瓜多爾總統諾沃亞發布政令，宣布因嚴重內部動蕩，瓜亞斯省、洛斯里奧斯省等七個省，以及首都基多與另一城市，進入60日緊急狀態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800112-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800112-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800112-20250413.htm)
+
+---
+
 # 英國會通過緊急法案維持英國鋼鐵運作　分析指收歸國有或不可避免
 
 ![英國首相施紀賢會見當地鋼鐵工人。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800111_1_20250413011641.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799851-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799851-20250411.htm)
-
----
-
-# 兩架客機在華盛頓列根國家機場跑道碰撞無人傷
-
-![兩架美國航空客機在華盛頓列根國家機場跑道碰撞，無人員傷亡報告。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799849_1_20250411031712.jpg&q=85)
-  
-
-兩架美國航空客機在華盛頓列根國家機場跑道碰撞，機翼受損，無人員傷亡報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799849-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799849-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799849-20250411.htm)
 
 ---
