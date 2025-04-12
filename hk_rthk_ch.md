@@ -1,5 +1,6 @@
 # 戴工作人員手環觀看Coldplay演出　3男子涉串謀詐騙被捕
 
+![警方指，涉案人士當時在觀看演唱會而不是清潔中，於是將他們拘捕。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800100_1_20250412224233.jpg&q=25)
   
 
 英國著名樂隊Coldplay在啟德體育園啟德主場館舉行最後一晚演唱會。在昨晚的演出，有三名男子戴上工作人員手環觀看演唱會，被警方以涉嫌「串謀詐騙」拘捕，三人獲准保釋，下月12日向牛頭角警署報到。
