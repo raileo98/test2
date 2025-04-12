@@ -1,3 +1,26 @@
+# 新華社：美關稅訛詐不得人心　中方堅定捍衛自身權益
+
+  
+
+新華社以「美關稅訛詐不得人心　中方堅定捍衛自身權益」為題發表文章，強調中方反制有理、有利、有節，充分體現了維護國家安全和利益的堅定決心，以及維護以規則為基礎的多邊貿易體制的大國擔當和責任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800102-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800102-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800102-20250412.htm)
+
+---
+
 # 啟德體育園演唱會散場人流高峰　運輸署籲觀眾乘搭港鐵
 
 ![運輸署提醒觀眾留意場地廣播及「離場易」平台實時資訊。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800101_1_20250412224814.jpg&q=90)

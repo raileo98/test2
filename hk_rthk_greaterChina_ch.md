@@ -1,3 +1,26 @@
+# 新華社：美關稅訛詐不得人心　中方堅定捍衛自身權益
+
+  
+
+新華社以「美關稅訛詐不得人心　中方堅定捍衛自身權益」為題發表文章，強調中方反制有理、有利、有節，充分體現了維護國家安全和利益的堅定決心，以及維護以規則為基礎的多邊貿易體制的大國擔當和責任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800102-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800102-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800102-20250412.htm)
+
+---
+
 # 北京遭大風天氣影響部分交通停運　市內兩大機場共取消逾7百航班
 
 ![北京市有樹木被強風吹倒。(路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800094_1_20250412204344.jpg&q=40)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799773-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799773-20250410.htm)
-
----
-
-# 商務部：對話必須在相互尊重基礎上以平等方式進行
-
-![何咏前重申，中方的立場明確和一貫，談判大門敞開，但對話必須在相互尊重的基礎上以平等方式進行。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799772_1_20250410154014.jpg&q=90)
-  
-
-在北京，商務部發言人何咏前表示，中方不惹事也不怕事，中國人民和世界人民的正當發展權利不容剝奪，中國和世界各國主權安全發展利益不容侵犯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799772-20250410.htm)
 
 ---
