@@ -1,5 +1,29 @@
+# 郭俊峯料年中屬高才通續簽高峰期　將靈活調配人手核實申請人學歷
+
+  
+
+入境處處長郭俊峯預計，高才通續簽的高峰期會在年中，入境處將會靈活調配人手處理並核實申請人學歷，如果之前未經核實，續簽時會進行核實程序。他提醒申請人不要誤信黑中介的服務，提交假學歷，一旦被發現使用偽造文件，最高可被判入獄14年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm)
+
+---
+
 # 王文濤：美對等關稅為發展中國家特別是最不發達國家帶來巨大傷害
 
+![王文濤強調，中方採取果斷措施予以反制，既是維護自身合法權益，更是維護國際社會的公平正義。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800065_1_20250412141154.jpg&q=25)
   
 
 商務部部長王文濤昨天與世貿組織總幹事伊維拉視像通話，王文濤表示，美國不斷出台關稅措施，為全球帶來巨大的不確定性和不穩定性，引發國際社會和美國國內的混亂局面。美方憑空炮製對等關稅，是典型的單邊霸凌做法。美國的對等關稅為發展中國家特別是最不發達國家帶來巨大傷害，甚至引發人道主義危機。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm)
-
----
-
-# 美國3月最終需求PPI及核心指數按年升幅都低過預期
-
-![美國3月最終需求生產物價指數(PPI)按年上升2.7%，低過預期的3.3%；按月則意外下跌0.4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799994_1_20250411204408.jpg&q=35)
-  
-
-美國3月反映上游成本的最終需求生產物價指數(PPI)按年上升2.7%，低過預期的3.3%；按月則意外下跌0.4%，市場原先預期會升0.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799994-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799994-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799994-20250411.htm)
 
 ---

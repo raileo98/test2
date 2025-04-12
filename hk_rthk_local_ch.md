@@ -1,3 +1,26 @@
+# 郭俊峯料年中屬高才通續簽高峰期　將靈活調配人手核實申請人學歷
+
+  
+
+入境處處長郭俊峯預計，高才通續簽的高峰期會在年中，入境處將會靈活調配人手處理並核實申請人學歷，如果之前未經核實，續簽時會進行核實程序。他提醒申請人不要誤信黑中介的服務，提交假學歷，一旦被發現使用偽造文件，最高可被判入獄14年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm)
+
+---
+
 # 民安隊辦徵文比賽推廣國家安全　培養學生國民身份認同
 
 ![民安隊在短片中介紹徵文比賽，認為有助培養學生的國民身份認同。（保安局社交網頁)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800057_1_20250412124848.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm)
-
----
-
-# 陳茂波稱針對不同情境制定預案　確保金融安全風險處置及時有效
-
-![陳茂波鼓勵機構邀請國家安全領域專家深入企業，針對高層管理人員與中層員工進行分層培訓。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799899_1_20250411112826.jpg&q=80)
-  
-
-財政司司長陳茂波接受報章訪問時表示，特區政府會從監察風險、化解風險、做大做強自身實力三方面構建金融防護網，令香港在全力拚經濟、謀發展的同時，做好金融安全工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799899-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799899-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799899-20250411.htm)
 
 ---
