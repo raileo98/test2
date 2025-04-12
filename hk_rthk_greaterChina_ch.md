@@ -1,3 +1,27 @@
+# 強風將影響全國半數以上省份　北京逾280棵樹倒塌
+
+![一場範圍廣、強度高的大風天氣正影響全國多地。（央視新聞截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800067_1_20250412143401.jpg&q=90)
+  
+
+一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份，部分地區風力達致災性和極端性強。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800067-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800067-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800067-20250412.htm)
+
+---
+
 # 王文濤：美對等關稅為發展中國家特別是最不發達國家帶來巨大傷害
 
 ![王文濤強調，中方採取果斷措施予以反制，既是維護自身合法權益，更是維護國際社會的公平正義。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800065_1_20250412141154.jpg&q=25)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm)
-
----
-
-# 商務部：李強剛與馮德萊恩通電話　中方願與歐方深化合作
-
-![雙方同意盡快啟動磋商，深入討論市場准入相關問題。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799697_1_20250410083532.jpg&q=25)
-  
-
-商務部部長王文濤表示，國務院總理李強剛剛與歐盟委員會主席馮德萊恩通電話，向外界傳遞積極資訊。表示中方願與歐方相向而行，共同落實好中歐領導人達成的重要共識，加強溝通交流，深化中歐貿易、投資和產業合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799697-20250410.htm)
 
 ---

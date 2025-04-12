@@ -1,3 +1,27 @@
+# 強風將影響全國半數以上省份　北京逾280棵樹倒塌
+
+![一場範圍廣、強度高的大風天氣正影響全國多地。（央視新聞截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800067_1_20250412143401.jpg&q=90)
+  
+
+一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份，部分地區風力達致災性和極端性強。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800067-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800067-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800067-20250412.htm)
+
+---
+
 # 郭俊峯料年中屬高才通續簽高峰期　將靈活調配人手核實申請人學歷
 
 ![郭俊峯提醒申請人不要誤信黑中介的服務，提交假學歷，一旦被發現使用偽造文件，最高可被判入獄14年。（鍾家銘攝)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800066_1_20250412142901.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm)
-
----
-
-# 紫金礦業上季盈利按年升逾62%
-
-![紫金礦業今年首季盈利101.7億元人民幣，按年升逾62%，按季升32%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799996_1_20250411205208.jpg&q=85)
-  
-
-紫金礦業公布，今年首季盈利101.7億元人民幣，按年升逾62%，按季升32%。扣除非經常性損益，盈利98.8億元，按年升近59%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm)
 
 ---
