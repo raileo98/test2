@@ -1,3 +1,27 @@
+# 中方助建公路舉行通車啟用儀式　柬埔寨首相稱促進交通及貨物運輸
+
+![這條公路全長114.9公里是柬埔寨中東部公路網的重要組成部分。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800117_1_20250413052947.jpg&q=45)
+  
+
+由上海建工集團股份有限公司承建的柬埔寨71C號國家公路，昨日在柬埔寨特本克蒙舉行通車啟用儀式，柬埔寨首相洪瑪奈、公共工程與運輸部大臣賓波尼及中國駐柬埔寨大使汪文斌等出席儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800117-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800117-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800117-20250413.htm)
+
+---
+
 # 大阪世博會今日正式開園　石破茂稱匯聚日本國內外智慧平台
 
 ![本屆世博會以「構想煥發生機的未來社會」為主題，共有158個國家和地區、7個國際組織參展。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800109_1_20250413002757.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799780-20250410.htm)
-
----
-
-# 商務部：將幫助出口遇阻外貿企業開拓國内市場
-
-![何咏前說，中國超大規模市場潛力不斷釋放，穩經濟、穩外貿政策接續發力，中國外貿有信心、有底氣應對各種風險挑戰。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799776_1_20250410155921.jpg&q=90)
-  
-
-在北京，商務部新聞發言人何咏前表示，美方對中國濫施關稅，抑制雙邊貿易，對中國的外貿企業造成負面影響，中方將堅定不移辦好自己的事，以中國的確定性，對沖外部環境的不確定性，商務部將會幫助出口遇阻的外貿企業開拓國内市場，用好消費品以舊換新政策，深入開展内外貿一體化工作等等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799776-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799776-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799776-20250410.htm)
 
 ---

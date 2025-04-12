@@ -1,3 +1,27 @@
+# 中方助建公路舉行通車啟用儀式　柬埔寨首相稱促進交通及貨物運輸
+
+![這條公路全長114.9公里是柬埔寨中東部公路網的重要組成部分。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800117_1_20250413052947.jpg&q=45)
+  
+
+由上海建工集團股份有限公司承建的柬埔寨71C號國家公路，昨日在柬埔寨特本克蒙舉行通車啟用儀式，柬埔寨首相洪瑪奈、公共工程與運輸部大臣賓波尼及中國駐柬埔寨大使汪文斌等出席儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800117-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800117-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800117-20250413.htm)
+
+---
+
 # 白宮稱美伊溝通朝著實現互利結果邁出一步　雙方同意再會面
 
 ![阿拉格齊與阿曼外交大臣巴德爾會面。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800116_1_20250413044217.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799862-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799862-20250411.htm)
-
----
-
-# 民主黨促查特朗普及核心是否從股市波動非法獲利　白宮為總統辯護
-
-![特朗普公布的對等關稅政策，導致美股連日受挫。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799856_1_20250411055108.jpg&q=90)
-  
-
-美國有民主黨國會議員，要求調查總統特朗普或其核心圈子，是否透過內幕交易和操控市場從股市波動中非法獲利。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799856-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799856-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799856-20250411.htm)
 
 ---
