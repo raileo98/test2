@@ -1,3 +1,27 @@
+# First US-Iran nuclear talks in years start in Oman
+
+![Iranians walk by anti-US murals on the walls of the former US embassy in Tehran, Iran. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800093_1_20250412200659.jpg&q=60)
+  
+
+The United States and Iran opened high-stakes talks on Tehran's nuclear programme on Saturday, with President Donald Trump threatening military action if they fail to produce a deal.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800093-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800093-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800093-20250412.htm)
+
+---
+
 # At least 69 killed in thunderstorms in India, Nepal
 
 ![Dark clouds gather in the sky before a thunderstorm in Nagaon District, Assam, India. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800092_1_20250412200340.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump has signed an executive order lifting water-pressure r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799755-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799755-20250410.htm)
-
----
-
-# Authorities doing more to tackle scams, mule accounts
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799754_1_20250410132043.jpg&q=90)
-  
-
-Authorities on Thursday said they are stepping up efforts to tackle scam syndicates and their use of mule accounts to launder funds.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799754-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799754-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799754-20250410.htm)
 
 ---

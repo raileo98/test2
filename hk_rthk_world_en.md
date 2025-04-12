@@ -1,3 +1,27 @@
+# First US-Iran nuclear talks in years start in Oman
+
+![Iranians walk by anti-US murals on the walls of the former US embassy in Tehran, Iran. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800093_1_20250412200659.jpg&q=60)
+  
+
+The United States and Iran opened high-stakes talks on Tehran's nuclear programme on Saturday, with President Donald Trump threatening military action if they fail to produce a deal.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800093-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800093-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800093-20250412.htm)
+
+---
+
 # At least 69 killed in thunderstorms in India, Nepal
 
 ![Dark clouds gather in the sky before a thunderstorm in Nagaon District, Assam, India. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800092_1_20250412200340.jpg&q=90)
@@ -1411,29 +1435,5 @@ More than 50 countries have sought talks with President Donald Trump in a scramb
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799149-20250407.htm)
-
----
-
-# Israeli forces kill US-Palestinian teen, says mayor
-
-![The boy was shot dead in the West Bank town of Turmus Ayya. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799159_1_20250407060637.jpg&q=50)
-  
-
-A Palestinian official told AFP that Israeli forces shot dead a teenager holding US citizenship in the occupied West Bank Sunday, while the Israeli military said it had killed a "terrorist" who threw rocks at cars.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799159-20250407.htm)
 
 ---
