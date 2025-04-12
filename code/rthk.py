@@ -445,8 +445,8 @@ async def process_category(category, url):
         feedImg = feedImg.rstrip('?')
         feedImg = 'https://i3.wp.com/' + feedImg.replace('http://', '').replace('https://', '')
             
-    feedImg = 'https://external-content.duckduckgo.com/iu/?u=' + urllib.parse.quote( raw_img_url, safe='' )
-    feedImg = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote( raw_img_url, safe='' )
+    feedImg = 'https://external-content.duckduckgo.com/iu/?u=' + urllib.parse.quote( feedImg, safe='' )
+    feedImg = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote( feedImg, safe='' )
     fg.logo(feedImg)
     fg.copyright('© 香港電台 RTHK')
     fg.webMaster('webmaster@rthk.hk')
