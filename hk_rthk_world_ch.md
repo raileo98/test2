@@ -528,7 +528,7 @@
 
 # 中方指美方對華關稅稅率異常高淪數字游戲　如再加將不予理會
 
-![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字游戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799980_1_20250411195622.jpg&q=1)
+![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字游戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799980_1_20250411195622.jpg&q=25)
   
 
 中國再度反制美國，向原產於美國的進口商品，加徵關稅稅率上調至125%。
@@ -624,7 +624,7 @@
 
 # 尹錫悅搬離龍山總統官邸　稱重新以國民身份為國為民尋求新道路
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799957_1_20250411165432.jpg&q=1)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799957_1_20250411165432.jpg&q=70)
   
 
 南韓前總統尹錫悅下午從首爾龍山區總統官邸搬走，返回位於瑞草區的私人住宅。
@@ -672,7 +672,7 @@
 
 # 中國於世貿組織爭端解決機制追加起訴美國進一步提高對華關稅
 
-![中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799949_1_20250411162733.jpg&q=1)
+![中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799949_1_20250411162733.jpg&q=80)
   
 
 中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。
@@ -1248,7 +1248,7 @@
 
 # 敘利亞與南韓建立外交關係　韓方支持敘利亞重建進程
 
-![敘利亞與南韓建立外交關係　韓方支持敘利亞重建進程](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799845_1_20250411015648.jpg&q=1)
+![敘利亞與南韓建立外交關係　韓方支持敘利亞重建進程](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799845_1_20250411015648.jpg&q=90)
   
 
 敘利亞宣布與南韓建立外交關係。

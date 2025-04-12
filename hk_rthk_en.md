@@ -1,3 +1,27 @@
+# HK to boost scrutiny of talent pass applications
+
+![Director of Immigration Benson Kwok says officers will examine applications carefully. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800073_1_20250412160554.jpg&q=90)
+  
+
+Director of Immigration Benson Kwok says more officers will be deployed to verify documents submitted as part of Top Talent Pass Scheme applications, following reports of false information being provided on occasions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800073-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800073-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800073-20250412.htm)
+
+---
+
 # Rain fears force suspension of water splashing event
 
 ![A thunderstorm warning prompted organisers to put the event on hold.](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800071_1_20250412155136.jpg&q=90)
@@ -1392,7 +1416,7 @@ Electricity consumption by data centres will more than double by 2030, driven by
 
 # S Korean opposition leader opens presidential bid
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799740_1_20250410123632.jpg&q=1)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799740_1_20250410123632.jpg&q=85)
   
 
 South Korean opposition leader Lee Jae-myung, widely seen as the frontrunner in a presidential by-election triggered by the removal of President Yoon Suk Yeol last week, officially announced a presidential bid on Thursday, vowing to heal a starkly divided nation through economic growth.
@@ -1411,29 +1435,5 @@ South Korean opposition leader Lee Jae-myung, widely seen as the frontrunner in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799740-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799740-20250410.htm)
-
----
-
-# 'Hefty US tariffs on China are very irrational'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799733_1_20250410114748.jpg&q=15)
-  
-
-An industry veteran on Thursday described US President Donald Trump's decision to further raise the levy on Chinese goods to 125 percent as “very irrational”, with experts saying Hong Kong firms should rely less on the US market.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799733-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799733-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799733-20250410.htm)
 
 ---

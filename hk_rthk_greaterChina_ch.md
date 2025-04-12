@@ -430,7 +430,7 @@
 
 # 中方指美方對華關稅稅率異常高淪數字游戲　如再加將不予理會
 
-![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字游戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799980_1_20250411195622.jpg&q=1)
+![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字游戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799980_1_20250411195622.jpg&q=25)
   
 
 中國再度反制美國，向原產於美國的進口商品，加徵關稅稅率上調至125%。
@@ -574,7 +574,7 @@
 
 # 中國於世貿組織爭端解決機制追加起訴美國進一步提高對華關稅
 
-![中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799949_1_20250411162733.jpg&q=1)
+![中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799949_1_20250411162733.jpg&q=80)
   
 
 中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。
@@ -982,7 +982,7 @@
 
 # 全國出口管制工作會議召開　要求進一步完善出口管制體系
 
-![全國出口管制工作會議召開　要求進一步完善出口管制體系](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799818_1_20250410192335.jpg&q=1)
+![全國出口管制工作會議召開　要求進一步完善出口管制體系](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799818_1_20250410192335.jpg&q=90)
   
 
 全國出口管制工作會議昨天起一連兩天在北京召開，總結2024年以來出口管制工作情況，研究部署2025年重點工作。
@@ -1030,7 +1030,7 @@
 
 # 對美關稅反制措施實施　中方稱談判大門敞開　須以平等方式進行
 
-![商務部發言人何咏前重申，談判大門敞開，但對話必須在相互尊重的基礎上以平等方式進行。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799809_2_20250410182959.jpg&q=1)
+![商務部發言人何咏前重申，談判大門敞開，但對話必須在相互尊重的基礎上以平等方式進行。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799809_2_20250410182959.jpg&q=90)
   
 
 中國對美國關稅的反制措施已經開始執行，中午起上調對原產於美國進口商品加徵的關稅至84%。
@@ -1366,7 +1366,7 @@
 
 # 習近平：中國與拉美關係進入新階段　樹立南南合作典範
 
-![習近平指出，中拉關係歷經國際風雲變幻考驗，已經進入平等、互利、創新、開放、惠民的新階段。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799758_1_20250410135938.jpg&q=1)
+![習近平指出，中拉關係歷經國際風雲變幻考驗，已經進入平等、互利、創新、開放、惠民的新階段。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799758_1_20250410135938.jpg&q=80)
   
 
 拉美和加勒比國家共同體第九屆峰會在輪值主席國洪都拉斯舉行，國家主席習近平向峰會致賀信。
@@ -1414,7 +1414,7 @@
 
 # 恒生銀行：內地今年物價仍保持平穩
 
-![薛俊昇分析內地消費物價壓力較低，為推刺激內需措施提供空間。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799739_1_20250410123223.jpg&q=1)
+![薛俊昇分析內地消費物價壓力較低，為推刺激內需措施提供空間。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799739_1_20250410123223.jpg&q=20)
   
 
 內地連續兩個月通縮，3月居民消費價格指數（CPI）按年跌0.1%，跌幅顯著收窄。工業生產者出廠價格指數（PPI）按年跌幅擴大至2.5%。

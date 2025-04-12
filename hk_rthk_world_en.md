@@ -408,7 +408,7 @@ Electricity consumption by data centres will more than double by 2030, driven by
 
 # S Korean opposition leader opens presidential bid
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799740_1_20250410123632.jpg&q=1)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799740_1_20250410123632.jpg&q=85)
   
 
 South Korean opposition leader Lee Jae-myung, widely seen as the frontrunner in a presidential by-election triggered by the removal of President Yoon Suk Yeol last week, officially announced a presidential bid on Thursday, vowing to heal a starkly divided nation through economic growth.
@@ -744,7 +744,7 @@ China-US economic and trade relations are mutually beneficial and win-win in nat
 
 # Universal to build first Europe theme park in UK: PM
 
-![Britain's Prime Minister Keir Starmer (right) welcomes President of the Comcast Corporation Mike Cavanagh to Downing Street, London. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799527_1_20250409081130.jpg&q=1)
+![Britain's Prime Minister Keir Starmer (right) welcomes President of the Comcast Corporation Mike Cavanagh to Downing Street, London. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799527_1_20250409081130.jpg&q=85)
   
 
 US media giant Comcast Corp will build its first Universal theme park and resort in Europe in Bedford, north of London, opening in 2031, the British government said on Wednesday.

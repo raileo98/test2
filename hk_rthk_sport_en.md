@@ -840,7 +840,7 @@ Hong Kong racing royalty Romantic Warrior came up just short at the Dubai Turf, 
 
 # Nick Rockett, at 33-1, wins the Grand National
 
-![Jockey Patrick Mullins reacts as he passes the finish line. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799082_1_20250406074831.jpg&q=1)
+![Jockey Patrick Mullins reacts as he passes the finish line. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799082_1_20250406074831.jpg&q=80)
   
 
 Nick Rockett, a 33-1 shot ridden by Patrick Mullins, won the Grand National steeplechase at Aintree on Saturday (April 5) in a top three sweep for horses trained by the Irish amateur jockey's father Willie.
@@ -912,7 +912,7 @@ Thomas Müller will leave Bayern Munich this summer after a 25-year career at th
 
 # Verstappen snatches 'insane' pole for Japan GP
 
-![Red Bull's Max Verstappen celebrates smashing the track record at Suzuka. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799043_1_20250405162226.jpg&q=1)
+![Red Bull's Max Verstappen celebrates smashing the track record at Suzuka. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799043_1_20250405162226.jpg&q=75)
   
 
 Four-time world champion Max Verstappen smashed the track record to snatch pole position for Sunday's Japanese Grand Prix ahead of McLaren's Lando Norris, as Yuki Tsunoda qualified a lowly 15th on his Red Bull debut.

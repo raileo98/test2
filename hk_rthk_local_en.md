@@ -1,3 +1,27 @@
+# HK to boost scrutiny of talent pass applications
+
+![Director of Immigration Benson Kwok says officers will examine applications carefully. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800073_1_20250412160554.jpg&q=90)
+  
+
+Director of Immigration Benson Kwok says more officers will be deployed to verify documents submitted as part of Top Talent Pass Scheme applications, following reports of false information being provided on occasions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800073-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800073-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800073-20250412.htm)
+
+---
+
 # Rain fears force suspension of water splashing event
 
 ![A thunderstorm warning prompted organisers to put the event on hold.](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800071_1_20250412155136.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong's justice chief has stressed that educating the public on national sec
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm)
-
----
-
-# SAR 'committed to promoting Web3 development'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799210_1_20250407112528.jpg&q=75)
-  
-
-The financial secretary said on Monday Hong Kong is committed to creating a promising and successful future for Web3, or third generation Internet, development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799210-20250407.htm)
 
 ---

@@ -456,7 +456,7 @@
 
 # 運輸署籲啟德演唱會觀眾今晚離場時盡量乘搭港鐵
 
-![英國樂隊Coldplay今晚在啟德體育園主場館舉行第三場演唱會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800003_1_20250411221818.jpg&q=1)
+![英國樂隊Coldplay今晚在啟德體育園主場館舉行第三場演唱會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800003_1_20250411221818.jpg&q=70)
   
 
 英國樂隊Coldplay今晚在啟德體育園主場館舉行第三場演唱會，運輸署預計今晚稍後結束時，同一時間離場觀眾較多，呼籲盡量乘搭港鐵。
@@ -1104,7 +1104,7 @@
 
 # 涉非註冊牙醫執業33歲本地女子被捕
 
-![警方在行動中檢獲一批牙科醫療用具。（陳裕行攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799929_3_20250411162200.jpg&q=1)
+![警方在行動中檢獲一批牙科醫療用具。（陳裕行攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%2F%2Fi3.wp.com%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799929_3_20250411162200.jpg&q=85)
   
 
 警方及衞生署採取針對無牌牙醫的行動，在尖沙咀一座商業大廈的單位，搗破非註冊牙醫執業的牙齒矯正中心，拘捕一名33歲本地女子，涉嫌「未經註冊而以牙醫身份執業」，並檢獲一批牙科醫療用具。
