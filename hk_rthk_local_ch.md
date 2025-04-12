@@ -1,3 +1,26 @@
+# 搶包山選拔賽明午長洲舉行　成績最佳12選手晉身下月5日決賽
+
+  
+
+搶包山選拔賽明日下午在長洲北帝廟遊樂場足球場舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800058-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800058-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800058-20250412.htm)
+
+---
+
 # 郭俊峯指國安風險一直存在　入境處會守好國家南大門
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799890-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799890-20250411.htm)
-
----
-
-# 數字辦稱本港研發的大語言模型　料下半年供全港使用
-
-![黃志光希望「生成式人工智能文書輔助應用程式」長遠可提升工作效率。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799880_3_20250411095913.jpg&q=85)
-  
-
-InnoHK香港生成式人工智能研發中心正為本港研究大語言模型，研發中心去年已開發生成式人工智能文書輔助應用程式，去年中起，讓政府部門試用及訓練。數字政策專員黃志光接受本台訪問表示，該程式可以做到檔案精讀、簡化及資料搜集等功能，目前內部體驗不錯，希望長遠可提升工作效率，甚至取代傳統需要大量人力的工種，並逐步成為每名公務員的人工智能助手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799880-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799880-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799880-20250411.htm)
 
 ---

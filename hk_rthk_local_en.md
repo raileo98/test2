@@ -27,7 +27,7 @@ Newly appointed police commissioner Joe Chow on Saturday said officers will work
 ![Secretary for Development Bernadette Linn said a two-envelope approach may be used for the tenders. Photo courtesy of the Commercial Radio](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800052_1_20250412110442.jpg&q=85)
   
 
-Secretary for Development Bernadette Linn on Saturday said one or two sizeable land parcels from the Northern Metropolis are expected to be put up for tender in the second half of this year.
+Development minister Bernadette Linn says one or two sizeable Northern Metropolis land parcels should to be put up for tender this year, while one in the San Tin Technopole will be tendered next year.
 
   
 
