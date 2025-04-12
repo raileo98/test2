@@ -1,3 +1,27 @@
+# 天津陣風達14級　破1951年以來歷史同期極值
+
+![天津陣風達14級　破1951年以來歷史同期極值](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800068_1_20250412145059.jpg&q=90)
+  
+
+一場範圍廣、強度高的大風天氣正影響全國多地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800068-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800068-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800068-20250412.htm)
+
+---
+
 # 強風將影響全國半數以上省份　北京逾280棵樹倒塌
 
 ![一場範圍廣、強度高的大風天氣正影響全國多地。（央視新聞截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800067_1_20250412143401.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799715-20250410.htm)
-
----
-
-# 《環看天下》：應對美國關稅威脅　分析：或促使中歐經貿回暖
-
-![今年前兩個月中歐班列累計到發176列，同比增長22.9%。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799707_1_20250410092107.jpg&q=55)
-  
-
-今年是中歐建交50周年，國務院總理李強日前同歐盟委員會主席馮德萊恩通電話。李強表示，中歐關係呈現穩中向好勢頭，中方願同歐方攜手努力，增進政治互信，拓展務實合作，並分享發展機遇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799707-20250410.htm)
 
 ---

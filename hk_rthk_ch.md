@@ -1,3 +1,27 @@
+# 天津陣風達14級　破1951年以來歷史同期極值
+
+![天津陣風達14級　破1951年以來歷史同期極值](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800068_1_20250412145059.jpg&q=90)
+  
+
+一場範圍廣、強度高的大風天氣正影響全國多地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800068-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800068-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800068-20250412.htm)
+
+---
+
 # 強風將影響全國半數以上省份　北京逾280棵樹倒塌
 
 ![一場範圍廣、強度高的大風天氣正影響全國多地。（央視新聞截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800067_1_20250412143401.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm)
-
----
-
-# 美股初段向下
-
-![道瓊斯指數較早時報39280點，跌312點，跌幅0.79%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799997_1_20250411213735.jpg&q=70)
-  
-
-美股初段向下。投資者正在消化中國對原產於美國進口商品關稅稅率提高至125%的影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm)
 
 ---
