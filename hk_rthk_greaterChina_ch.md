@@ -1,3 +1,27 @@
+# 中國駐美使館：中國永不會向美國極限施壓屈服
+
+![中方強調，如果美方繼續關稅數字遊戲，中方將不予理會。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800064_1_20250412132433.jpg&q=85)
+  
+
+中國今日起向原產於美國的進口商品，加徵關稅稅率上調至125%。中方指出，在目前關稅水平，美國輸華商品無市場接受可能性，如果美方繼續關稅數字遊戲，中方將不予理會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800064-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800064-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800064-20250412.htm)
+
+---
+
 # 金磚成員呼籲共同反對單邊主義和貿易保護主義
 
 ![中方在會議上指出，美方的對等關稅政策，對世界經濟造成持續衝擊。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1800063_1_20250412130953.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799673-20250410.htm)
-
----
-
-# 中方稱美國對等關稅開錯方、吃錯藥　無助解決貿易不平衡問題
-
-![世界貿易組織召開貨物貿易理事會年度首次會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799672_1_20250410004211.jpg&q=85)
-  
-
-世界貿易組織召開貨物貿易理事會年度首次會議，中方嚴重關切美國對等關稅措施及其惡劣影響，要求美方切實遵守世貿規則，避免對全球經濟和多邊貿易體制造成負面衝擊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799672-20250410.htm)
 
 ---
