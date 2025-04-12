@@ -1,3 +1,51 @@
+# 70歲男子胡開成離開梨木道院舍後失蹤　警方呼籲提供消息
+
+![失蹤男子身高約1.65米，體重約72公斤，中等身材。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800105_1_20250412230948.jpg&q=80)
+  
+
+70歲男子胡開成早上離開位於葵涌梨木道的院舍後失蹤，院舍職員報案，警方呼籲市民提供消息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm)
+
+---
+
+# 27歲外籍女子港鐵旺角東站失蹤　警方呼籲提供消息
+
+![失蹤的27歲外籍女子。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800104_1_20250412230322.jpg&q=90)
+  
+
+一名27歲外籍女子Moran Dante Elaine Cipolla 昨日下午離開港鐵旺角東站後失蹤，院舍職員報案，警方呼籲市民提供消息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800104-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800104-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800104-20250412.htm)
+
+---
+
 # 啟德體育園演唱會散場人流高峰　運輸署籲觀眾乘搭港鐵
 
 ![運輸署提醒觀眾留意場地廣播及「離場易」平台實時資訊。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800101_1_20250412224814.jpg&q=90)
@@ -1388,54 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799929-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799929-20250411.htm)
-
----
-
-# 曼聯下月與港隊對陣　開售不足一小時部分門票售罄
-
-![公開發售門票價錢介乎390至2990元，根據網站顯示，開售不足一小時，390元門票已經售罄。（網頁截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799928_1_20250411142939.jpg&q=75)
-![690元門票及後亦告售罄，至於990元、1190及1390元門票則剩餘少量。（網頁截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799928_2_20250411142939.jpg&q=90)
-  
-
-英超球隊曼聯下月30日在香港大球場對陣港隊，門票今日中午12時起在購票通網站發售。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799928-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799928-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799928-20250411.htm)
-
----
-
-# 恒指一度重上21000點　升逾300點
-
-![恒指較早時報20993點，升311點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799926_1_20250411133422.jpg&q=55)
-  
-
-港股升幅擴大，恒指一度重上21000點以上，升逾330點，較早時報20993點，升311點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799926-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799926-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799926-20250411.htm)
 
 ---

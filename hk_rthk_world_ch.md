@@ -1,3 +1,27 @@
+# 美伊首輪核問題間接談判結束　兩國代表團曾短暫交談
+
+![阿拉格齊（圖左）表示，美伊首輪核問題間接談判正面和有建設性。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800103_1_20250412225723.jpg&q=90)
+  
+
+伊朗外長阿拉格齊表示，伊朗和美國在阿曼首都馬斯喀特舉行的首輪核問題間接談判結束，會談正面、具建設性，下星期會再與美國間接談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm)
+
+---
+
 # 特朗普豁免向智能電話、電腦、晶片等產品徵收對等關稅
 
 ![特朗普豁免向智能電話、電腦、晶片等產品徵收對等關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800098_1_20250412214344.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799845-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799845-20250411.htm)
-
----
-
-# 白宮澄清對華加徵關稅總額為145％　特朗普承認過渡期或遇困難
-
-![特朗普在白宮主持內閣會議。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799844_1_20250411013158.jpg&q=90)
-  
-
-美國總統特朗普星期三暫緩向多個貿易夥伴徵收較高稅率的對等關稅90日，但進一步上調對中國的關稅至125%。白宮官員星期四澄清，特朗普所指的125%是對等關稅，連同之前因芬太尼問題加徵的兩成關稅，對中國加徵的總關稅是145%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799844-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799844-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799844-20250411.htm)
 
 ---

@@ -1,3 +1,75 @@
+# 70歲男子胡開成離開梨木道院舍後失蹤　警方呼籲提供消息
+
+![失蹤男子身高約1.65米，體重約72公斤，中等身材。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800105_1_20250412230948.jpg&q=80)
+  
+
+70歲男子胡開成早上離開位於葵涌梨木道的院舍後失蹤，院舍職員報案，警方呼籲市民提供消息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm)
+
+---
+
+# 美伊首輪核問題間接談判結束　兩國代表團曾短暫交談
+
+![阿拉格齊（圖左）表示，美伊首輪核問題間接談判正面和有建設性。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800103_1_20250412225723.jpg&q=90)
+  
+
+伊朗外長阿拉格齊表示，伊朗和美國在阿曼首都馬斯喀特舉行的首輪核問題間接談判結束，會談正面、具建設性，下星期會再與美國間接談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm)
+
+---
+
+# 27歲外籍女子港鐵旺角東站失蹤　警方呼籲提供消息
+
+![失蹤的27歲外籍女子。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800104_1_20250412230322.jpg&q=90)
+  
+
+一名27歲外籍女子Moran Dante Elaine Cipolla 昨日下午離開港鐵旺角東站後失蹤，院舍職員報案，警方呼籲市民提供消息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800104-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800104-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800104-20250412.htm)
+
+---
+
 # 新華社：美關稅訛詐不得人心　中方堅定捍衛自身權益
 
   
