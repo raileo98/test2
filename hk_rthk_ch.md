@@ -1,3 +1,75 @@
+# 王毅：美國不能任意妄為　歷史車輪不能倒退
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800080_1_20250412181256.jpg&q=75)
+  
+
+中共中央政治局委員、外長王毅周五在北京，會見國際原子能機構總幹事格羅西時指，當前國際局勢動蕩不安，亂象頻出，一個重要原因就是個別大國迷信實力至上、本國優先，大搞單邊霸凌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm)
+
+---
+
+# 林定國：國安教育與愛國主義教育好比「孖生兄弟」
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800078_1_20250412181224.jpg&q=90)
+  
+
+下周二是「全民國家安全教育日」，保安局轄下8支紀律部隊和輔助部隊由今天起，陸續在不同的周末及假日舉行開放日，讓公眾了解各部隊防範和抵禦國家安全風險所做的工作，提高國家安全意識。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm)
+
+---
+
+# 周一鳴指詐騙案成「產業鏈」　重點打擊出售傀儡戶口
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800079_1_20250412181156.jpg&q=85)
+  
+
+本港去年全年有逾4.4萬宗詐騙案，佔整體罪案約47%。警務處處長周一鳴形容，詐騙案已成為「產業鏈」，破案需要國際間合作，警方亦會重點打擊售賣涉及騙案傀儡戶口的人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm)
+
+---
+
 # 特朗普：將與中方在貿易問題上取得正面成果
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800081_1_20250412175911.jpg&q=75)
@@ -1383,53 +1455,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800010-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800010-20250412.htm)
-
----
-
-# 強對流天氣影響　珠江客運明後日多個航班停航
-
-![珠江客運表示，受強對流天氣影響， 明天和後天多個航班將會停航。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800009_1_20250411230109.jpg&q=75)
-  
-
-珠江客運表示，受強對流天氣影響， 明天和後天多個航班將會停航。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800009-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800009-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800009-20250411.htm)
-
----
-
-# 寧德時代：聯交所上市委員會已審閱公司的H股上市申請
-
-![寧德時代：聯交所上市委員會已審閱公司的上市申請，但信函不構成正式的上市批准。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800007_1_20250411225447.jpg&q=90)
-  
-
-寧德時代表示，正在申請發行H股，並進行在香港主板掛牌上市的相關工作，聯交所上市委員會已於昨日舉行上市聆訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800007-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800007-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800007-20250411.htm)
 
 ---

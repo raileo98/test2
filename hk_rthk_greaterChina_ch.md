@@ -1,3 +1,51 @@
+# 內地多地極端天氣　中央氣象台發布大風、強對流、沙塵暴等預警
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800082_1_20250412181355.jpg&q=90)
+  
+
+內地多處出現惡劣天氣，較強冷空氣繼續影響中國中東部地區，中央氣象台繼續發布大風橙色預警、強對流天氣黃色預警、暴雪黃色預警和沙塵暴藍色預警，其中北京已進入風力最強時段，多個景區關閉，陸空交通受阻，全國有至少3200班航班取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800082-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800082-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800082-20250412.htm)
+
+---
+
+# 王毅：美國不能任意妄為　歷史車輪不能倒退
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800080_1_20250412181256.jpg&q=75)
+  
+
+中共中央政治局委員、外長王毅周五在北京，會見國際原子能機構總幹事格羅西時指，當前國際局勢動蕩不安，亂象頻出，一個重要原因就是個別大國迷信實力至上、本國優先，大搞單邊霸凌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm)
+
+---
+
 # 北京有市民形容風力大　一度被強風吹得站不穩
 
   
@@ -1384,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799759-20250410.htm)
-
----
-
-# 習近平：中國與拉美關係進入新階段　樹立南南合作典範
-
-![習近平指出，中拉關係歷經國際風雲變幻考驗，已經進入平等、互利、創新、開放、惠民的新階段。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799758_1_20250410135938.jpg&q=80)
-  
-
-拉美和加勒比國家共同體第九屆峰會在輪值主席國洪都拉斯舉行，國家主席習近平向峰會致賀信。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799758-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799758-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799758-20250410.htm)
-
----
-
-# 花旗：中美緊張局勢蔓延至金融領域風險加大　中國或加碼刺激政策
-
-![花旗預計中國今年中會有1至1.5萬億元人民幣的加碼刺激政策推出。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799746_1_20250410124817.jpg&q=55)
-  
-
-中美關稅戰升級。投行花旗表示，雙邊關稅已經達到禁止性水平，認為反制對經濟的直接衝擊有限，但升級不利談判展開，又指緊張局勢蔓延至金融領域的風險加大，而中國較之前更快推出刺激措施的可能性加大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799746-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799746-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799746-20250410.htm)
 
 ---

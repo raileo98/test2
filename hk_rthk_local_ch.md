@@ -1,3 +1,51 @@
+# 林定國：國安教育與愛國主義教育好比「孖生兄弟」
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800078_1_20250412181224.jpg&q=90)
+  
+
+下周二是「全民國家安全教育日」，保安局轄下8支紀律部隊和輔助部隊由今天起，陸續在不同的周末及假日舉行開放日，讓公眾了解各部隊防範和抵禦國家安全風險所做的工作，提高國家安全意識。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm)
+
+---
+
+# 周一鳴指詐騙案成「產業鏈」　重點打擊出售傀儡戶口
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800079_1_20250412181156.jpg&q=85)
+  
+
+本港去年全年有逾4.4萬宗詐騙案，佔整體罪案約47%。警務處處長周一鳴形容，詐騙案已成為「產業鏈」，破案需要國際間合作，警方亦會重點打擊售賣涉及騙案傀儡戶口的人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm)
+
+---
+
 # 運輸署籲往返啟德主場館觀眾留意天氣及交通　及早規劃行程
 
 ![運輸署提醒觀眾應乘搭港鐵及散場時段提供的特別巴士服務。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800083_1_20250412175131.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799917-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799917-20250411.htm)
-
----
-
-# 陳茂波︰特區政府與中央緊密協作構築抵禦風險屏障
-
-![陳茂波表示政府會令香港在全力拚經濟、謀發展的同時，做好金融安全工作。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799916_1_20250411124143.jpg&q=80)
-  
-
-財政司司長陳茂波表示，特區政府會從監察風險、化解風險、做大做強自身實力三方面構建金融防護網，令香港在全力拚經濟、謀發展的同時，做好金融安全工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799916-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799916-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799916-20250411.htm)
-
----
-
-# 丘應樺︰特首下月訪中東謀發展新市場　陳美寶︰有策略應對關稅戰
-
-![丘應樺表示，行政長官下月將與內地企業一同出訪中東。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799915_1_20250411123930.jpg&q=85)
-  
-
-商務及經濟發展局局長丘應樺表示，行政長官下月將與內地企業一同出訪中東，在地緣發展緊張的情況下，謀求發展中東新市場和東盟市場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799915-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799915-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799915-20250411.htm)
 
 ---

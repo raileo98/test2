@@ -1,3 +1,27 @@
+# 王毅：美國不能任意妄為　歷史車輪不能倒退
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800080_1_20250412181256.jpg&q=75)
+  
+
+中共中央政治局委員、外長王毅周五在北京，會見國際原子能機構總幹事格羅西時指，當前國際局勢動蕩不安，亂象頻出，一個重要原因就是個別大國迷信實力至上、本國優先，大搞單邊霸凌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm)
+
+---
+
 # 特朗普：將與中方在貿易問題上取得正面成果
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800081_1_20250412175911.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799838-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799838-20250410.htm)
-
----
-
-# 李強向列支敦士登新任首相哈斯致賀電
-
-![李強表示，中方願同列方共同努力，推動中列關係不斷取得新進展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799835_1_20250410214525.jpg&q=90)
-  
-
-國務院總理李強致電哈斯，祝賀她就任列支敦士登首相。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799835-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799835-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799835-20250410.htm)
 
 ---
