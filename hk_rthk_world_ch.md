@@ -1,3 +1,26 @@
+# 烏克蘭稱蘇梅遇襲增至34死　澤連斯基責普京無視美促成停火努力
+
+  
+
+烏克蘭表示蘇梅州首府蘇梅市遇襲增至最少34人死亡，超過110人受傷，指責是俄羅斯所為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800201-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800201-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800201-20250414.htm)
+
+---
+
 # 加蓬內政部公布過渡總統恩圭馬於總統選舉中獲勝
 
 ![內政部指恩圭馬（圖）得票率為90.35%，擊敗其他對手。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800200_1_20250414005748.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm)
-
----
-
-# 南韓光明市鐵路工地塌陷有工人失聯　公路及部分商業設施受損
-
-![南國光明市鐵路工地塌陷，地面公路和部分商業設施受損。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799963_2_20250411183858.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
-  
-
-南韓京畿道光明市一個鐵路工地塌陷，1名工人失聯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799963-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799963-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799963-20250411.htm)
 
 ---

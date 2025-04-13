@@ -1,3 +1,26 @@
+# 烏克蘭稱蘇梅遇襲增至34死　澤連斯基責普京無視美促成停火努力
+
+  
+
+烏克蘭表示蘇梅州首府蘇梅市遇襲增至最少34人死亡，超過110人受傷，指責是俄羅斯所為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800201-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800201-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800201-20250414.htm)
+
+---
+
 # 加蓬內政部公布過渡總統恩圭馬於總統選舉中獲勝
 
 ![內政部指恩圭馬（圖）得票率為90.35%，擊敗其他對手。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800200_1_20250414005748.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm)
-
----
-
-# 東盟秘書長高金洪：致力深化對華全面戰略伙伴關係　倡導多邊主義
-
-![高金洪表示，東盟致力於深化對華全面戰略伙伴關係。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800130_2_20250413130957.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-東盟秘書長高金洪表示，東盟致力於深化對華全面戰略伙伴關係，同時倡導多邊主義，以應對共同挑戰。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800130-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800130-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800130-20250413.htm)
 
 ---
