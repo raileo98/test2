@@ -1,3 +1,27 @@
+# Piastri leads all the way to win Bahrain Grand Prix
+
+![The win was a first for champions McLaren in Bahrain, home of the team's majority owners. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800208_1_20250414055242.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+McLaren's Oscar Piastri won the Bahrain Grand Prix from pole position on Sunday to slash the gap to Formula One championship leading teammate Lando Norris to three points after four races.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800208-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800208-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800208-20250414.htm)
+
+---
+
 # Alcaraz sees off Musetti to win Monte Carlo Masters
 
 ![Carlos Alcaraz had to come from behind to beat Lorenzo Musetti. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800189_1_20250413204452.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
@@ -1415,30 +1439,5 @@ Real Madrid edged into the Copa del Rey final with a thrilling 4-4 draw against 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm)
-
----
-
-# Forest beat Man Utd; Saka scores on Arsenal return
-
-![Nottingham Forest's Anthony Elanga scored the only goal of the match against United. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798535_1_20250402054006.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-![Bukayo Saka scored in his first appearance with Arsenal since December. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798535_2_20250402054006.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Nottingham Forest beat Manchester United 1-0 to close in on Champions League football next season as Bukayo Saka scored in Arsenal's 2-1 win over Fulham on his return from injury.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Piastri leads all the way to win Bahrain Grand Prix
+
+![The win was a first for champions McLaren in Bahrain, home of the team's majority owners. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800208_1_20250414055242.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+McLaren's Oscar Piastri won the Bahrain Grand Prix from pole position on Sunday to slash the gap to Formula One championship leading teammate Lando Norris to three points after four races.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800208-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800208-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800208-20250414.htm)
+
+---
+
 # Trump's doctor says US president in 'excellent health'
 
 ![Donald Trump told reporters on Friday he felt "in very good shape." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800196_1_20250413230158.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1412,29 +1436,5 @@ Chinese property developer Country Garden said on Friday it had reached an agree
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799869-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799869-20250411.htm)
-
----
-
-# Trump claims victory over EU in tariff battle
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799867_1_20250411074334.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-US President Donald Trump claimed victory over Europe in the US tariffs war but acknowledged a "cost" to his surging trade offensive against superpower rival China as markets plunged again on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799867-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799867-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799867-20250411.htm)
 
 ---
