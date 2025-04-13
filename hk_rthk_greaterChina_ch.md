@@ -1,3 +1,26 @@
+# 世界互聯網大會亞太峰會明天開幕　李家超：展示創科領域最新發展
+
+  
+
+行政長官李家超表示，世界互聯網大會亞太峰會首次在港舉辦，明日將會開幕，雲集約30個國家和地區約1000名商界領袖、政府部級等人員、學者、協會領袖和其他知名人士，共同探討人工智能和數碼科技的發展。他今晚出席歡迎晚宴，歡迎他們蒞臨香港參與峰會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm)
+
+---
+
 # 美方豁免部分商品對等關稅　商務部：修正錯誤做法一小步
 
 ![商務部敦促美方在糾錯方面邁出一大步，徹底取消對等關稅的錯誤做法。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800184_1_20250413192442.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799900-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799900-20250411.htm)
-
----
-
-# 首辦世界互聯網大會亞太峰會　黃志光稱香港能展示創科實力
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799879_2_20250411090859.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-世界互聯網大會亞太峰會下周一起，一連兩日在香港會展舉行，以「數智融合引領未來——攜手構建網絡空間命運共同體」為主題，由香港特區承辦。屆時有主論壇暨數智未來論壇，亦設有以人工智能大模型、數字金融、數字政府與智慧為題的分論壇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm)
 
 ---

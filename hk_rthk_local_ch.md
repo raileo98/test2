@@ -1,3 +1,26 @@
+# 世界互聯網大會亞太峰會明天開幕　李家超：展示創科領域最新發展
+
+  
+
+行政長官李家超表示，世界互聯網大會亞太峰會首次在港舉辦，明日將會開幕，雲集約30個國家和地區約1000名商界領袖、政府部級等人員、學者、協會領袖和其他知名人士，共同探討人工智能和數碼科技的發展。他今晚出席歡迎晚宴，歡迎他們蒞臨香港參與峰會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm)
+
+---
+
 # 海關機場偵破兩宗毒品案件檢獲約1190萬元懷疑毒品
 
 ![海關檢獲共約12公斤懷疑氯胺酮及約7公斤懷疑可卡因。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800185_1_20250413194937.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800059-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800059-20250412.htm)
-
----
-
-# 搶包山選拔賽明午長洲舉行　成績最佳12選手晉身下月5日決賽
-
-![搶包山選拔賽明日下午在長洲北帝廟遊樂場足球場舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800058_1_20250412121822.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-搶包山選拔賽明日下午在長洲北帝廟遊樂場足球場舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800058-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800058-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800058-20250412.htm)
 
 ---
