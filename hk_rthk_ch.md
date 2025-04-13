@@ -1,5 +1,6 @@
 # 英超利物浦主場2:1擊敗韋斯咸　曼聯作客1:4不敵紐卡素
 
+![雲迪克攻入致勝入球。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800212_1_20250414072202.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 英格蘭超級足球聯賽，利物浦主場2:1險勝韋斯咸，接近在聯賽封王。
