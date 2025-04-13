@@ -22,12 +22,12 @@ Carlos Alcaraz won his first Monte Carlo Masters title on Sunday with a 3-6, 6-1
 
 ---
 
-# Russian strike on Ukraine's Sumy kills 31
+# Russian strike on Ukraine's Sumy kills at least 32
 
 ![Sumy has come under increasing attack in recent weeks. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800187_1_20250413195631.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
   
 
-A Russian strike on Ukraine's northeastern city of Sumy killed at least 31 people, including two children, and wounded dozens on Sunday, Kyiv said, in the deadliest attack in months.
+A Russian strike on Ukraine's northeastern city of Sumy killed at least 32 people, including two children, and wounded dozens on Sunday, Kyiv said, in the deadliest attack in months.
 
   
 
