@@ -1,3 +1,49 @@
+# 莫斯科指責烏克蘭兩度襲擊俄方能源設施　違反俄美之間協議
+
+  
+
+俄羅斯國防部在通報中指出，烏軍在過去的星期五及星期六，兩度襲擊別爾哥羅德州的俄方能源設施，違反自3月18日起停止襲擊能源設施30日的俄美之間協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800204-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800204-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800204-20250414.htm)
+
+---
+
+# 西方指責俄羅斯攻擊烏克蘭城市　美國特使形容超越任何道德底線
+
+  
+
+西方社會指責俄羅斯攻擊烏克蘭城市蘇梅。美國政府俄烏問題特使凱洛格在社交平台發文說，以彈道導彈施襲是錯誤，又形容今次襲擊超越任何道德底線，這個正是總統特朗普努力結束這場戰爭的原因。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800203-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800203-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800203-20250414.htm)
+
+---
+
 # 烏克蘭稱蘇梅遇襲增至34死　澤連斯基責普京無視美促成停火努力
 
   
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm)
-
----
-
-# 中國國際消費品博覽會今起舉行　韓正宣布系列活動正式啟動
-
-![韓正出席啟動儀式，並宣布系列活動正式啟動。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800135_1_20250413133510.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-第五屆中國國際消費品博覽會今日起一連6日在海南海口舉行，國家副主席韓正出席啟動儀式，並宣布系列活動正式啟動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800135-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800135-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800135-20250413.htm)
-
----
-
-# 陳茂波：香港在當前環球市場前景不明朗下顯得更穩定和具吸引力
-
-![陳茂波日前會同財經事務及庫務局局長、商務及經濟發展局局長和金融監管機構代表會見傳媒。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800134_1_20250413111019.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-財政司司長陳茂波表示，自美國公布向全球貿易伙伴施加所謂「對等關稅」後，國際金融市場出現大幅波動，美國國庫債券價格急跌、孳息急升；上周開始至今，港匯持續偏強，港元兌美元仍處於強方水平，顯示資金仍留在本港市場，港股經過上周一跌勢後大致穩定，上周五恒生指數收市，仍略高於今年一月初的水平，上周的平均每日成交額增至4276億港元，比前周增加約68%，反映過去一周市場整體繼續暢順有序運作，認為香港在當前環球市場前景不明朗的情況下，顯得更加穩定和具吸引力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm)
 
 ---

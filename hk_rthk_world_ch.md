@@ -1,3 +1,49 @@
+# 莫斯科指責烏克蘭兩度襲擊俄方能源設施　違反俄美之間協議
+
+  
+
+俄羅斯國防部在通報中指出，烏軍在過去的星期五及星期六，兩度襲擊別爾哥羅德州的俄方能源設施，違反自3月18日起停止襲擊能源設施30日的俄美之間協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800204-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800204-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800204-20250414.htm)
+
+---
+
+# 西方指責俄羅斯攻擊烏克蘭城市　美國特使形容超越任何道德底線
+
+  
+
+西方社會指責俄羅斯攻擊烏克蘭城市蘇梅。美國政府俄烏問題特使凱洛格在社交平台發文說，以彈道導彈施襲是錯誤，又形容今次襲擊超越任何道德底線，這個正是總統特朗普努力結束這場戰爭的原因。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800203-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800203-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800203-20250414.htm)
+
+---
+
 # 烏克蘭稱蘇梅遇襲增至34死　澤連斯基責普京無視美促成停火努力
 
   
@@ -1386,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm)
-
----
-
-# 菲律賓鋼鐵大王郭從願遭綁架撕票　中方要求將凶手繩之於法
-
-![菲律賓鋼鐵大王郭從願遭綁架撕票　中方要求將凶手繩之於法](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799940_1_20250411154405.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-有菲律賓「鋼鐵大王」之稱的著名華僑郭從願，在菲律賓遭綁架撕票。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799940-20250411.htm)
-
----
-
-# 王毅指美國不能任意妄為　歷史車輪不能倒退
-
-![王毅與格羅西會晤。（外交部圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799983_1_20250411184900.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-中共中央政治局委員、外交部長王毅在北京，與國際原子能機構總幹事格羅西會面時批評美國推出的關稅措施，凌駕各國利益，美國不能任意妄為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm)
 
 ---
