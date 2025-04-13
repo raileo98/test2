@@ -142,6 +142,7 @@
 
 # 盧寵茂：器官名冊近40萬人登記　冀有更多市民支持
 
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800147_1_20250413145946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 香港醫學會舉辦推廣器官捐贈步行活動。醫務衞生局局長盧寵茂表示，中央器官捐贈登記名冊至今有近40萬人登記，數字值得鼓舞。他說，3年的新冠疫情對器官捐贈造成很大阻力，亦有一段時間出現阻力，試圖干擾登記名冊，他對這些行為予以譴責。
