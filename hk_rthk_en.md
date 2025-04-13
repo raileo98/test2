@@ -1,6 +1,7 @@
 # Jordan Tang, Tse Ying-suet clinch maiden Asian title
 
-![The title in Ningbo is the first for Jordan Tang and Tse Ying-suet since the Super 300 German Open last year. File photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800156_1_20250413160753.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![The title in Ningbo is the first for Jordan Tang and Tse Ying-suet since the Super 300 German Open last year. Photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800156_2_20250413165114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+![Tang and Tse outlasted their Japanese counterparts in the final, winning 21-15, 17-21, 21-13. Photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800156_3_20250413165114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 Hong Kong, China's Jordan Tang and Tse Ying-suet made a triumphant return to international competition, securing their first Badminton Asia Championships mixed doubles title in Ningbo.

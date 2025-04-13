@@ -1,3 +1,26 @@
+# 馬會捐14億元支持5項青年發展計劃　包括改造青年廣場部分地方
+
+  
+
+馬會宣布，透過慈善信託基金審批，撥捐14億元支持5項青年發展計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800164-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800164-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800164-20250413.htm)
+
+---
+
 # 工聯會：將舉辦五一系列活動　包括邀請官員與前線勞工交流
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800003-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800003-20250411.htm)
-
----
-
-# 郭蔭庶：香港可成為國家及全球科技產業協作樞紐
-
-![公務員學院在政府總部舉辦第四場「撮合南北：多極世界中的中國系列」講座。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800001_3_20250411224836.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-公務員學院在政府總部舉辦第四場「撮合南北：多極世界中的中國系列」講座，由上海交通大學溥淵未來技術學院院長倪軍主講，大約190名分別來自44個決策局或部門的首長級和中高級公務員，現場或透過網上參與。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800001-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800001-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800001-20250411.htm)
 
 ---

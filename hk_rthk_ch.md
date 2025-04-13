@@ -1,3 +1,26 @@
+# 馬會捐14億元支持5項青年發展計劃　包括改造青年廣場部分地方
+
+  
+
+馬會宣布，透過慈善信託基金審批，撥捐14億元支持5項青年發展計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800164-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800164-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800164-20250413.htm)
+
+---
+
 # 工聯會：將舉辦五一系列活動　包括邀請官員與前線勞工交流
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm)
-
----
-
-# 北京遭大風天氣影響部分交通停運　市內兩大機場共取消逾7百航班
-
-![北京市有樹木被強風吹倒。(路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800094_1_20250412204344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
-  
-
-一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。今日截至傍晚6時，北京首都機場和大興機場共取消超過700個航班。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800094-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800094-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800094-20250412.htm)
 
 ---
