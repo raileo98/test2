@@ -1,5 +1,6 @@
 # 警隊於日內瓦國際發明展贏得5個國際獎項
 
+![團隊在瑞士舉辦的「第50屆日內瓦國際發明展」中贏得5個國際獎項。（警方社交網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800195_1_20250413224050.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 香港警務處網絡安全及科技罪案調查科及警察機動部隊總部團隊，於本月9日至13日在瑞士舉辦的「第50屆日內瓦國際發明展」中，4項發明項目共贏得5個國際獎項，當中包括「國際傳媒大獎」。
