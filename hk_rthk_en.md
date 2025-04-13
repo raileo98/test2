@@ -1,3 +1,27 @@
+# US says electronics tariff exemptions are temporary
+
+![US Commerce Secretary Howard Lutnick said the US was developing a new tariff approach for the semiconductor industry. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800218_1_20250414075537.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Tariff exemptions announced on Friday on electronics like smartphones and laptops are only a temporary reprieve until the Trump administration develops a new tariff approach specific to the semiconductor industry, US Commerce Secretary Howard Lutnick said Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800218-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800218-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800218-20250414.htm)
+
+---
+
 # McIlroy wins Masters beating Rose in play-off
 
 ![The win gives Northern Ireland's Rory McIlroy a career grand slam of all golf's majors. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800216_1_20250414074654.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1412,29 +1436,5 @@ Continuing jitters about US tariffs hit Asian stocks in early trade on Friday, w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799881-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799881-20250411.htm)
-
----
-
-# Ukraine coalition presses ahead with force planning
-
-![Britain's Defence Secretary John Healey and France's Defence Minister Sebastien Lecornu attend a meeting of the Coalition of the Willing, hosted by the United Kingdom and France at Nato headquarters in Brussels. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799871_1_20250411080308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Britain's defence minister on Thursday urged his counterparts from around 30 countries to press ahead with plans to deploy troops to Ukraine to police any future peace agreement with Russia, as questions remained over whether the United States would provide backup.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799871-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799871-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799871-20250411.htm)
 
 ---
