@@ -1,3 +1,26 @@
+# 本港今早相對濕度降至21% 　1984年以來4月份最低紀錄
+
+  
+
+天文台表示，今早多處地區的相對濕度下降至30%或以下，而截至上午9時40分，天文台的相對濕度曾下降至21%，是天文台總部自1984年設置自動氣象站以來4月份的最低紀錄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm)
+
+---
+
 # 許正宇：本港金融系統久經歷練　有信心香港可立於不敗之地
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799955-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799955-20250411.htm)
-
----
-
-# 林文健稱要守好中國南大門　有必要維持口岸健康篩檢
-
-![林文健表示，要預防傳染病進入香港，在港口或機場做健康篩查是非常重要一環。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799954_1_20250411165805.jpg&q=90)
-  
-
-衞生署提交立法會財委會的資料顯示，去年本港各出入境管制站體溫檢測共發現4200多人發燒，當中6人被強制轉介入院。而上個財政年度有關健康篩檢所涉及的開支超過2億元。選委界議員陳沛良認為全球疫情穩定，加上本港財政緊絀，或可縮減有關篩檢規模。新民黨議員容海恩同樣關注政府能否善用科技，以節省人手資源。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799954-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799954-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799954-20250411.htm)
 
 ---

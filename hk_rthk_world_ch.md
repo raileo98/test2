@@ -1,3 +1,26 @@
+# 美國將對俄羅斯的部份制裁措施延長一年
+
+  
+
+美國將對俄羅斯的部份制裁措施延長一年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800128-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800128-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800128-20250413.htm)
+
+---
+
 # 剛果民主共和國譴責反政府武裝M23運動襲擊平民造成至少52死
 
 ![聲明譴責反政府武裝M23運動，在戈馬市對平民發動襲擊。圖為M23運動成員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800125_1_20250413093346.jpg&q=40)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799891-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799891-20250411.htm)
-
----
-
-# 《環看天下》：法國稱或承認巴勒斯坦國　以領袖訪美或空手而回
-
-![馬克龍日前訪問埃及，重點討論中東局勢，包括了解埃及向加沙提供人道支援的工作。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799889_1_20250411092417.jpg&q=85)
-  
-
-法國總統馬克龍剛結束埃及的訪問，期間重點討論加沙局勢。他在一個訪問中表示，法國可能會在今年6月承認巴勒斯坦國。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799889-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799889-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799889-20250411.htm)
 
 ---
