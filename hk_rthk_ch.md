@@ -1,3 +1,26 @@
+# 韋志成：市建局將為龍崗道兩旁商舖度身訂造具特色店面設計
+
+  
+
+市建局行政總監韋志成表示，未來的一年，市建局推展九龍城區的更新項目之餘，更會投放資源，彰顯「龍城」區的獨特個性，為商戶創造更多機遇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800157-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800157-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800157-20250413.htm)
+
+---
+
 # 羽毛球混雙組合鄧俊文和謝影雪在亞洲錦標賽奪冠
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm)
-
----
-
-# 內地多處出現極端大風　北京近700航班取消
-
-![北京市面大風，有單車等車輛被強風吹倒。(盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800084_1_20250412184125.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。今日截至下午2時，北京兩大機場共取消近700個航班。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800084-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800084-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800084-20250412.htm)
 
 ---
