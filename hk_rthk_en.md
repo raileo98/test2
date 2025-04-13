@@ -1,3 +1,27 @@
+# Alcaraz sees off Musetti to win Monte Carlo Masters
+
+![Carlos Alcaraz had to come from behind to beat Lorenzo Musetti. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800189_1_20250413204452.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
+  
+
+Carlos Alcaraz won his first Monte Carlo Masters title on Sunday with a 3-6, 6-1, 6-0 victory over the Italian Lorenzo Musetti.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800189-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800189-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800189-20250413.htm)
+
+---
+
 # Russian strike on Ukraine's Sumy kills 31
 
 ![Sumy has come under increasing attack in recent weeks. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800187_1_20250413195631.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
@@ -1412,29 +1436,5 @@ Six people, including three children, were killed after a sightseeing helicopter
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799865-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799865-20250411.htm)
-
----
-
-# US stocks dive amid fears over US-China trade war
-
-![Major US indices spent the entire day in the red, disappointing traders who'd been hoping to extend Wednesday's rally following Trump's pivot on tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799860_1_20250411061810.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
-  
-
-Wall Street stocks suffered another battering on Thursday, giving back a sizeable portion of the prior session's gains as investors grappled with lingering uncertainty about US President Donald Trump's trade and economic policies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799860-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799860-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799860-20250411.htm)
 
 ---
