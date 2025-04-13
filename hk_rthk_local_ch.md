@@ -1,3 +1,26 @@
+# 何永賢：公屋管理人員可善用物聯網技術監察公共地方
+
+  
+
+房屋局局長何永賢表示，現時公共屋邨管理人員可以善用物聯網技術，在保安室或透過電腦屏幕，利用儀表板監察屋邨不同公共地方，她早前到屯門欣田邨視察，了解房屋署人員對屋邨物聯網系統應用的意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm)
+
+---
+
 # 盧寵茂：器官名冊近40萬人登記　冀有更多市民支持
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799979-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799979-20250411.htm)
-
----
-
-# 代理：本周末二手屋苑預約睇樓減少　關稅戰令觀望氣氛明顯轉濃
-
-![地產代理預料本周末十大屋苑成交宗數未必能達雙位數。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799978_1_20250411183339.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=55)
-  
-
-中原地產數字顯示，本周末十大屋苑預約睇樓有401組，按周跌約13.6%，創近5星期新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799978-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799978-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799978-20250411.htm)
 
 ---

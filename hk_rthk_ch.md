@@ -1,3 +1,26 @@
+# 何永賢：公屋管理人員可善用物聯網技術監察公共地方
+
+  
+
+房屋局局長何永賢表示，現時公共屋邨管理人員可以善用物聯網技術，在保安室或透過電腦屏幕，利用儀表板監察屋邨不同公共地方，她早前到屯門欣田邨視察，了解房屋署人員對屋邨物聯網系統應用的意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm)
+
+---
+
 # 埃及和印尼國家領導人：巴勒斯坦建國是實現地區持久和平唯一途徑
 
   
@@ -262,6 +285,7 @@
 
 # 中國國際消費品博覽會今起舉行　韓正宣布系列活動正式啟動
 
+![韓正出席啟動儀式，並宣布系列活動正式啟動。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800135_1_20250413133510.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
   
 
 第五屆中國國際消費品博覽會今日起一連6日在海南海口舉行，國家副主席韓正出席啟動儀式，並宣布系列活動正式啟動。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm)
-
----
-
-# 荃灣三男子涉駕電動單車被捕　警方另發出一千多張定額罰款通知書
-
-![荃灣警區一連兩日區內採取執法行動。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800076_1_20250412171248.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=45)
-  
-
-荃灣警區前日及昨日一連兩日於區內採取執法行動，打擊非法使用電動可移動工具及電單車違例停泊的交通罪行，共發出1016張定額罰款通知書、24張法庭傳票及拖移2部造成嚴重阻塞的車輛。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800076-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800076-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800076-20250412.htm)
 
 ---

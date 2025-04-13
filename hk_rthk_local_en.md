@@ -1,3 +1,27 @@
+# 'SAR to work with mainland in future rescue missions'
+
+![Deputy chief fire officer Cheu Yu-kok (second from left) spoke of the challenges the 51-strong SAR rescue team faced during their mission. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800143_1_20250413122803.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=70)
+  
+
+The commander of the SAR's search and rescue team on Sunday said a consensus has been reached with their mainland counterparts to work together in future missions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800143-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800143-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800143-20250413.htm)
+
+---
+
 # Air pollution to reach "serious" level in parts of HK
 
 ![The Air Quality Health Index at Central and Western district reached the "very high" category as of 10am Sunday. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800131_1_20250413104146.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=55)
@@ -1411,29 +1435,5 @@ Under Secretary for Financial Services and the Treasury Joseph Chan said on Mond
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm)
-
----
-
-# Vivian Cheung takes over reins at Airport Authority
-
-![Vivian Cheung has been appointed as the Airport Authority's CEO. Photo courtesy of the Airport Authority.](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799220_1_20250407120401.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
-  
-
-The Airport Authority Hong Kong board has appointed Vivian Cheung as its chief executive.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm)
 
 ---
