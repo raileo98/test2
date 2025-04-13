@@ -1,3 +1,26 @@
+# 習近平稱中越要密切多邊協作促亞洲繁榮　指保護主義無出路
+
+  
+
+中共中央總書記、國家主席習近平今日展開國事訪問越南行程。他在越南人民報表題為《志同道合攜手前行　繼往開來續寫新篇》的署名文章。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800206-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800206-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800206-20250414.htm)
+
+---
+
 # 美當局指日前紐約墜河直升機上設備均無記錄有助於調查信息
 
   
@@ -1407,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm)
-
----
-
-# 美國撤格陵蘭基地指揮官職務　據報因她與萬斯劃清界線
-
-![美國駐格陵蘭軍事基地指揮官邁耶斯（圖左），曾與副總統萬斯交談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799995_1_20250411204858.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-美國駐格陵蘭軍事基地指揮官邁耶斯被撤職，據報因她曾發電郵就副總統萬斯批評丹麥的言論劃清界線。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm)
 
 ---
