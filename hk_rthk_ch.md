@@ -1,3 +1,50 @@
+# 陳國基稱今年將推出不同宣傳推廣　在社會營造廣泛愛國氣氛
+
+  
+
+政務司司長陳國基表示，今屆政府非常重視推展愛國主義教育的工作，致力在社會構建以愛國愛港為核心、與「一國兩制」方針相適應的主流價值觀，又認為要將愛國主義教育做好做強，必須找對方法，以軟性和打動人心的方式作推廣，硬銷較不可行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm)
+
+---
+
+# 毛寧分享列根講話影片　稱發動貿易戰是摧毀就業最快方式
+
+![毛寧在社交平台X分享一段列根1985年的講話影片，引述列根提到，貿易保護只會讓受保護行業變得更弱，愈發喪失與外來商品競爭的能力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800165_1_20250413165700.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+外交部發言人毛寧再在社交平台X分享一段美國前總統列根1985年的講話影片，並引述列根說「發動貿易戰是摧毀就業，讓美國人丟飯碗的最快方式」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800165-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800165-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800165-20250413.htm)
+
+---
+
 # 馬會捐14億元支持5項青年發展計劃　包括改造青年廣場部分地方
 
   
@@ -23,6 +70,7 @@
 
 # 工聯會：將舉辦五一系列活動　包括邀請官員與前線勞工交流
 
+![工聯會表示，今年「五一」勞動節將舉辦一系列活動，並召開倡議記者會，提出五一主題和倡議。（彭冠中攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800163_1_20250413170134.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 工聯會表示，今年「五一」勞動節將舉辦一系列活動，包括「探訪工友大行動」，邀請特區政府官員深入各行各業，與前線勞工交流，實地了解工作環境與需求；亦會舉辦酒會，邀請各界人士參與，加強交流互動。
@@ -70,6 +118,7 @@
 
 # 黃偉綸稱兩地加強合作建設跨境低空飛行路徑　涉及出入境等安排
 
+![黃偉綸表示，地緣政治局勢不斷發生變化，但沒有改變本港對低空經濟的重視。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800161_1_20250413170019.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 財政司副司長黃偉綸表示，地緣政治局勢不斷發生變化，但並無改變本港對低空經濟的重視，他強調本港的願景清晰，是將本港定位為低空經濟的全球領導者。
@@ -1386,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800097-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800097-20250412.htm)
-
----
-
-# Coldplay尾場演出場外傘架爆滿　有長傘暫置草叢或石壆
-
-![有長傘被擺放於草叢及石壆位置。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800096_2_20250412211906.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-英國著名樂隊Coldplay在香港啟德體育園主場館舉行的四場演唱會，今晚上演最後一場。啟德下午一度下大雨，晚上入場時已經停雨，不少觀眾攜帶了不能帶進場的長雨傘，場外的雨傘架放滿長雨傘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800096-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800096-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800096-20250412.htm)
-
----
-
-# 美伊正式就核問題展開間接談判
-
-![伊朗外長阿拉格齊（左）向阿曼外交大臣巴德爾（右）闡述伊朗的核心立場。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800095_1_20250412203739.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-伊朗與美國在阿曼首都馬斯喀特正式就核問題展開間接談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm)
 
 ---

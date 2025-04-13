@@ -1,3 +1,50 @@
+# 陳國基稱今年將推出不同宣傳推廣　在社會營造廣泛愛國氣氛
+
+  
+
+政務司司長陳國基表示，今屆政府非常重視推展愛國主義教育的工作，致力在社會構建以愛國愛港為核心、與「一國兩制」方針相適應的主流價值觀，又認為要將愛國主義教育做好做強，必須找對方法，以軟性和打動人心的方式作推廣，硬銷較不可行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm)
+
+---
+
+# 毛寧分享列根講話影片　稱發動貿易戰是摧毀就業最快方式
+
+![毛寧在社交平台X分享一段列根1985年的講話影片，引述列根提到，貿易保護只會讓受保護行業變得更弱，愈發喪失與外來商品競爭的能力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800165_1_20250413165700.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+外交部發言人毛寧再在社交平台X分享一段美國前總統列根1985年的講話影片，並引述列根說「發動貿易戰是摧毀就業，讓美國人丟飯碗的最快方式」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800165-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800165-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800165-20250413.htm)
+
+---
+
 # 北方沙塵抵粵　廣州深圳等地罕見遭遇沙塵天氣
 
 ![北方沙塵抵粵　廣州深圳等地罕見遭遇沙塵天氣](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800162_1_20250413164454.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -24,6 +71,7 @@
 
 # 黃偉綸稱兩地加強合作建設跨境低空飛行路徑　涉及出入境等安排
 
+![黃偉綸表示，地緣政治局勢不斷發生變化，但沒有改變本港對低空經濟的重視。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800161_1_20250413170019.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 財政司副司長黃偉綸表示，地緣政治局勢不斷發生變化，但並無改變本港對低空經濟的重視，他強調本港的願景清晰，是將本港定位為低空經濟的全球領導者。
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799825-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799825-20250410.htm)
-
----
-
-# 全國出口管制工作會議召開　要求進一步完善出口管制體系
-
-![全國出口管制工作會議召開　要求進一步完善出口管制體系](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799818_1_20250410192335.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-全國出口管制工作會議昨天起一連兩天在北京召開，總結2024年以來出口管制工作情況，研究部署2025年重點工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799818-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799818-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799818-20250410.htm)
-
----
-
-# 國家電影局：適度減少美國影片進口數量
-
-![國家電影局表示，美國政府對中國濫施關稅的錯誤行徑，勢必會讓國內觀眾對美國影片好感度進一步降低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799814_1_20250410190944.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-國家電影局表示，美國政府對中國濫施關稅的錯誤行徑，勢必會讓國內觀眾對美國影片好感度進一步降低，將遵循市場規律，尊重觀眾選擇，適度減少美國影片進口數量。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799814-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799814-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799814-20250410.htm)
 
 ---

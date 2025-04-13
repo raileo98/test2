@@ -1,3 +1,26 @@
+# 陳國基稱今年將推出不同宣傳推廣　在社會營造廣泛愛國氣氛
+
+  
+
+政務司司長陳國基表示，今屆政府非常重視推展愛國主義教育的工作，致力在社會構建以愛國愛港為核心、與「一國兩制」方針相適應的主流價值觀，又認為要將愛國主義教育做好做強，必須找對方法，以軟性和打動人心的方式作推廣，硬銷較不可行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm)
+
+---
+
 # 馬會捐14億元支持5項青年發展計劃　包括改造青年廣場部分地方
 
   
@@ -23,6 +46,7 @@
 
 # 工聯會：將舉辦五一系列活動　包括邀請官員與前線勞工交流
 
+![工聯會表示，今年「五一」勞動節將舉辦一系列活動，並召開倡議記者會，提出五一主題和倡議。（彭冠中攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800163_1_20250413170134.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 工聯會表示，今年「五一」勞動節將舉辦一系列活動，包括「探訪工友大行動」，邀請特區政府官員深入各行各業，與前線勞工交流，實地了解工作環境與需求；亦會舉辦酒會，邀請各界人士參與，加強交流互動。
@@ -46,6 +70,7 @@
 
 # 黃偉綸稱兩地加強合作建設跨境低空飛行路徑　涉及出入境等安排
 
+![黃偉綸表示，地緣政治局勢不斷發生變化，但沒有改變本港對低空經濟的重視。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800161_1_20250413170019.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 財政司副司長黃偉綸表示，地緣政治局勢不斷發生變化，但並無改變本港對低空經濟的重視，他強調本港的願景清晰，是將本港定位為低空經濟的全球領導者。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800009-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800009-20250411.htm)
-
----
-
-# 運輸署籲啟德演唱會觀眾今晚離場時盡量乘搭港鐵
-
-![英國樂隊Coldplay今晚在啟德體育園主場館舉行第三場演唱會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800003_1_20250411221818.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-英國樂隊Coldplay今晚在啟德體育園主場館舉行第三場演唱會，運輸署預計今晚稍後結束時，同一時間離場觀眾較多，呼籲盡量乘搭港鐵。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800003-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800003-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800003-20250411.htm)
 
 ---
