@@ -1,3 +1,26 @@
+# 加蓬內政部公布過渡總統恩圭馬於總統選舉中獲勝
+
+  
+
+根據加蓬內政部公布的初步點票結果，過渡總統恩圭馬在當地過去的周六舉行的總統選舉中獲勝。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800200-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800200-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800200-20250414.htm)
+
+---
+
 # 南韓共同民主黨前議員金慶洙宣布參選總統　提出重組行政區域
 
 ![尹錫悅被彈劾下台，觸發南韓須舉行總統選舉。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800199_1_20250414004630.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799963-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799963-20250411.htm)
-
----
-
-# 中方指美方對華關稅稅率異常高淪數字遊戲　如再加將不予理會
-
-![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字遊戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799980_1_20250411195622.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
-  
-
-中國再度反制美國，向原產於美國的進口商品，加徵關稅稅率上調至125%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm)
 
 ---

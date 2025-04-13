@@ -1,3 +1,26 @@
+# 加蓬內政部公布過渡總統恩圭馬於總統選舉中獲勝
+
+  
+
+根據加蓬內政部公布的初步點票結果，過渡總統恩圭馬在當地過去的周六舉行的總統選舉中獲勝。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800200-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800200-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800200-20250414.htm)
+
+---
+
 # 南韓共同民主黨前議員金慶洙宣布參選總統　提出重組行政區域
 
 ![尹錫悅被彈劾下台，觸發南韓須舉行總統選舉。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800199_1_20250414004630.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800130-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800130-20250413.htm)
-
----
-
-# 尹錫悅首次刑事審判明天舉行　倘領導叛亂罪成可能囚終身或死刑
-
-![尹錫悅被指領導叛亂的首次刑事審判明天舉行。圖為他日前返回私人住宅途中向傳媒揮手。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800133_1_20250413104522.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-南韓前總統尹錫悅被指領導叛亂的首次刑事審判定於明天舉行，他作為被告，必須出席庭審。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800133-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800133-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800133-20250413.htm)
 
 ---
