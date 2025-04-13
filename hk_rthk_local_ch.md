@@ -1,3 +1,73 @@
+# 12人躋身搶包山決賽　下月角逐「包山王」及「包山后」
+
+  
+
+康文署表示，12名健兒成功躋身下月5日晚舉行的「搶包山決賽」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800181-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800181-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800181-20250413.htm)
+
+---
+
+# 今早相對濕度創1984年以來4月最低紀錄　沙塵氣流或持續兩天
+
+  
+
+受一股東北季候風相關的沙塵氣流影響，本港空氣質素欠佳。環保署預測，今次沙塵氣流對香港的影響可能會持續一至兩天。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800179-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800179-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800179-20250413.htm)
+
+---
+
+# 周一鳴稱正就機械人應用於警務工作作初階研究
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800174_1_20250413182456.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+警務處處長周一鳴在本月初上任時表示，推動智慧警政是重點工作方向之一。他接受一個電視節目訪問時說，正就在日後在警務工作中，使用機械人、機械狗作初階研究。另外，警方將在短期內，試行以無人機在市區高空巡邏。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800174-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800174-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800174-20250413.htm)
+
+---
+
 # 陳茂波指示證監會準備　倘海外上市中概股回流香港須成首選上市地
 
   
@@ -1364,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm)
-
----
-
-# 配合潑水節活動　九龍城一帶明日下午將實施特別交通安排
-
-![運輸署提醒，警方將視乎環境、交通及人群情況，實施及調整封路及交通管制。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800053_1_20250412113849.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-九龍城區昨日起至明天一連3日舉辦潑水節相關活動，運輸署發出公告，為配合公眾巡遊活動，該區在星期日下午3時至下午5時30分，將會實施特別交通安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800053-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800053-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800053-20250412.htm)
-
----
-
-# 周一鳴：積極推動「智慧警政」　在市區或郊區試行無人機高空巡邏
-
-![警察無人機隊員接受實務測試。（警務處網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800051_1_20250412110124.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
-  
-
-警務處處長周一鳴表示，將積極推動「智慧警政」，利用科技、簡化流程等，做到事半功倍的效果，指會推動無人機高空巡邏試驗計劃，在市區或郊區試行。他又表示，會利用大數據，找出較多交通、治安等問題的區域，再靈活調配人手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800051-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800051-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800051-20250412.htm)
-
----
-
-# 天文台：驟雨及強烈狂風雷暴下午至黃昏影響珠江口一帶
-
-![天文台：驟雨及強烈狂風雷暴下午至黃昏影響珠江口一帶](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800049_1_20250412100733.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-天文台發出特別天氣提示，位於廣東北部的一道冷鋒正逐漸向南移動，預料與其相關的驟雨及強烈狂風雷暴會在今日下午至黃昏影響珠江口一帶，部分地區雨勢較大，亦有猛烈陣風。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800049-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800049-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800049-20250412.htm)
 
 ---

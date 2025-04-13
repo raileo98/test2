@@ -1,3 +1,50 @@
+# 今早相對濕度創1984年以來4月最低紀錄　沙塵氣流或持續兩天
+
+  
+
+受一股東北季候風相關的沙塵氣流影響，本港空氣質素欠佳。環保署預測，今次沙塵氣流對香港的影響可能會持續一至兩天。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800179-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800179-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800179-20250413.htm)
+
+---
+
+# 周一鳴稱正就機械人應用於警務工作作初階研究
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800174_1_20250413182456.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+警務處處長周一鳴在本月初上任時表示，推動智慧警政是重點工作方向之一。他接受一個電視節目訪問時說，正就在日後在警務工作中，使用機械人、機械狗作初階研究。另外，警方將在短期內，試行以無人機在市區高空巡邏。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800174-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800174-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800174-20250413.htm)
+
+---
+
 # 陳茂波指示證監會準備　倘海外上市中概股回流香港須成首選上市地
 
   
