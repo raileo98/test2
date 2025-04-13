@@ -1,3 +1,27 @@
+# McIlroy wins Masters beating Rose in play-off
+
+![The win gives Northern Ireland's Rory McIlroy a career grand slam of all golf's majors. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800216_1_20250414074654.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Rory McIlroy beat Justin Rose on the first hole of a sudden-death playoff at the Masters on Sunday to become the sixth player, and first European, to complete the career Grand Slam of golf's four majors.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800216-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800216-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800216-20250414.htm)
+
+---
+
 # Piastri leads all the way to win Bahrain Grand Prix
 
 ![The win was a first for champions McLaren in Bahrain, home of the team's majority owners. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800208_1_20250414055242.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1415,29 +1439,5 @@ German Cup holders Bayer Leverkusen suffered a shock 2-1 elimination at Arminia 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm)
-
----
-
-# Real Madrid hold Real Sociedad in eight-goal thriller
-
-![Antonio Rudiger, right, was among the scorers for Real Madrid. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798540_2_20250402062922.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Real Madrid edged into the Copa del Rey final with a thrilling 4-4 draw against Real Sociedad after extra-time, securing a 5-4 aggregate semi-final victory.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm)
 
 ---

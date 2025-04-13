@@ -1,3 +1,27 @@
+# McIlroy wins Masters beating Rose in play-off
+
+![The win gives Northern Ireland's Rory McIlroy a career grand slam of all golf's majors. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800216_1_20250414074654.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Rory McIlroy beat Justin Rose on the first hole of a sudden-death playoff at the Masters on Sunday to become the sixth player, and first European, to complete the career Grand Slam of golf's four majors.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800216-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800216-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800216-20250414.htm)
+
+---
+
 # Piastri leads all the way to win Bahrain Grand Prix
 
 ![The win was a first for champions McLaren in Bahrain, home of the team's majority owners. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800208_1_20250414055242.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1412,29 +1436,5 @@ Britain's defence minister on Thursday urged his counterparts from around 30 cou
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799871-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799871-20250411.htm)
-
----
-
-# Country Garden reaches debt deal with some creditors
-
-![Country Garden said creditors holding 29.9 percent of US$10.3 billion in bonds had agreed to the plan. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799869_1_20250411075059.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Chinese property developer Country Garden said on Friday it had reached an agreement with creditors holding nearly 30 percent of its existing offshore bond debt and was close to finalising terms with another group of bank creditors.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799869-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799869-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799869-20250411.htm)
 
 ---

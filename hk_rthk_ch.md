@@ -1,3 +1,27 @@
+# 港大研究揭部分胃癌患者早期突變　冀助預防及早期檢測
+
+![研究結果揭示，胃癌形成前已出現的早期突變，為預防患病及早期檢測的策略，有重要意義。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800217_1_20250414074929.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+港大醫學院發現，部分胃癌患者的胃部一些區域存在染色體異常，這些異常的染色體異常在病人年輕時已經出現，期望研究結果有助及早找出高風險人士預防患病。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800217-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800217-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800217-20250414.htm)
+
+---
+
 # 消委會與金管局推VR遊戲提升防騙意識
 
 ![玩家頭戴VR設備及手持控制器，按語音或圖像指示，在預設情境中作出選擇。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_1_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm)
-
----
-
-# 埃及和印尼國家領導人：巴勒斯坦建國是實現地區持久和平唯一途徑
-
-![埃及總統塞西（圖）在首都開羅與到訪的印尼總統普拉博沃舉行會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800148_1_20250413141104.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-埃及和印尼國家領導人表示，巴勒斯坦建國是實現地區持久和平、安全與穩定的唯一途徑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800148-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800148-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800148-20250413.htm)
 
 ---

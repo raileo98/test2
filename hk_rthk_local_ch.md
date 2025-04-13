@@ -1,3 +1,27 @@
+# 港大研究揭部分胃癌患者早期突變　冀助預防及早期檢測
+
+![研究結果揭示，胃癌形成前已出現的早期突變，為預防患病及早期檢測的策略，有重要意義。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800217_1_20250414074929.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+港大醫學院發現，部分胃癌患者的胃部一些區域存在染色體異常，這些異常的染色體異常在病人年輕時已經出現，期望研究結果有助及早找出高風險人士預防患病。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800217-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800217-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800217-20250414.htm)
+
+---
+
 # 消委會與金管局推VR遊戲提升防騙意識
 
 ![玩家頭戴VR設備及手持控制器，按語音或圖像指示，在預設情境中作出選擇。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_1_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm)
-
----
-
-# 民安隊辦徵文比賽推廣國家安全　培養學生國民身份認同
-
-![民安隊在短片中介紹徵文比賽，認為有助培養學生的國民身份認同。（保安局社交網頁)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800057_1_20250412124848.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-本月15日是全民國家安全教育日，保安局在社交平台繼續介紹不同部門與國家安全有關物品，今日由民眾安全服務隊介紹其徵文比賽，認為有助培養學生的國民身份認同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm)
 
 ---
