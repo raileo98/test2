@@ -47,6 +47,7 @@
 
 # 何永賢：公屋管理人員可善用物聯網技術監察公共地方
 
+![何永賢早前到屯門欣田邨視察，了解房屋署人員對屋邨物聯網系統應用的意見。（何永賢社交專頁影片截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800149_1_20250413141659.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 房屋局局長何永賢表示，現時公共屋邨管理人員可以善用物聯網技術，在保安室或透過電腦屏幕，利用儀表板監察屋邨不同公共地方，她早前到屯門欣田邨視察，了解房屋署人員對屋邨物聯網系統應用的意見。
@@ -237,7 +238,7 @@
 
 # 陳茂波：香港在動盪時期會保持開放　願意建立新聯繫和新夥伴關係
 
-![陳茂波早上出席國際創科營商周開幕禮時表示，本港是創科發展的理想戰略地點。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800137_1_20250413130954.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800137_1_20250413130954.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 財政司司長陳茂波表示，因貿易戰及科技碎片化的關係，全球格局正出現變化，正重塑產業鏈、供應鏈和夥伴關係等，很多企業在新常態下要尋求新合作夥伴，探索新市場，並要採用更靈活的商業模式。他說，香港在動盪時期會保持開放，歡迎世界各地的企業和人才，本港願意建立新聯繫和新夥伴關係，強調本港會確保自由港地位，保持自由貿易政策不變，會堅定保持資金、貨物、資訊和人才的自由流動。

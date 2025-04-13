@@ -1,5 +1,6 @@
 # 埃及和印尼國家領導人：巴勒斯坦建國是實現地區持久和平唯一途徑
 
+![埃及總統塞西（圖）在首都開羅與到訪的印尼總統普拉博沃舉行會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800148_1_20250413141104.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
   
 
 埃及和印尼國家領導人表示，巴勒斯坦建國是實現地區持久和平、安全與穩定的唯一途徑。
