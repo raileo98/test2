@@ -296,7 +296,7 @@ async def process_article(fg, category, article):
 
             if not urlparse(raw_img_url).query:
                 raw_img_url = raw_img_url.rstrip('?')
-                raw_img_url = 'https://i3.wp.com/' + raw_img_url.replace('http://', '').replace('https://', '')
+                raw_img_url = 'https://i3.wp.com/' + raw_img_url.replace('http://', '').replace('https://', '') + '?ulb=true&quality=99&w=720'
             
             raw_img_url = 'https://external-content.duckduckgo.com/iu/?u=' + urllib.parse.quote( raw_img_url, safe='' )
             raw_img_url = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote( raw_img_url, safe='' )
@@ -318,7 +318,7 @@ async def process_article(fg, category, article):
             
                         if not urlparse(raw_img_url).query:
                             raw_img_url = raw_img_url.rstrip('?')
-                            raw_img_url = 'https://i3.wp.com/' + raw_img_url.replace('http://', '').replace('https://', '')
+                            raw_img_url = 'https://i3.wp.com/' + raw_img_url.replace('http://', '').replace('https://', '') + '?ulb=true&quality=99&w=720'
                         
                         raw_img_url = 'https://external-content.duckduckgo.com/iu/?u=' + urllib.parse.quote( raw_img_url, safe='' )
                         raw_img_url = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote( raw_img_url, safe='' )
@@ -444,7 +444,7 @@ async def process_category(category, url):
 
     if not urlparse(feedImg).query:
         feedImg = feedImg.rstrip('?')
-        feedImg = 'https://i3.wp.com/' + feedImg.replace('http://', '').replace('https://', '')
+        feedImg = 'https://i3.wp.com/' + feedImg.replace('http://', '').replace('https://', '') + '?ulb=true&quality=99&w=720'
             
     feedImg = 'https://external-content.duckduckgo.com/iu/?u=' + urllib.parse.quote( feedImg, safe='' )
     feedImg = 'https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=' + urllib.parse.quote( feedImg, safe='' )
