@@ -1,3 +1,49 @@
+# 北方沙塵抵粵　廣州深圳等地罕見遭遇沙塵天氣
+
+  
+
+來自北方的沙塵今日到達廣東，廣州、深圳等地罕見遭遇沙塵天氣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800162-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800162-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800162-20250413.htm)
+
+---
+
+# 黃偉綸稱兩地加強合作建設跨境低空飛行路徑　涉及出入境等安排
+
+  
+
+財政司副司長黃偉綸表示，地緣政治局勢不斷發生變化，但並無改變本港對低空經濟的重視，他強調本港的願景清晰，是將本港定位為低空經濟的全球領導者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm)
+
+---
+
 # 屯門男子行山暈倒　昏迷送院不治
 
   
@@ -1385,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800077-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800077-20250412.htm)
-
----
-
-# 中國駐緬甸大使館：大地震導致8名中國公民死亡
-
-![中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800089_1_20250412184342.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-新華社報道，中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm)
-
----
-
-# 重慶300多人因雷暴誘發急性呼吸道疾病
-
-![雷暴哮喘患者在重慶醫科大學附屬第一醫院排隊求醫。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800087_1_20250412182528.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-新華社報道，重慶300多人因雷暴誘發呼吸道疾病急性發作，要到醫院求醫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm)
 
 ---

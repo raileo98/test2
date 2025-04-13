@@ -1,3 +1,26 @@
+# 黃偉綸稱兩地加強合作建設跨境低空飛行路徑　涉及出入境等安排
+
+  
+
+財政司副司長黃偉綸表示，地緣政治局勢不斷發生變化，但並無改變本港對低空經濟的重視，他強調本港的願景清晰，是將本港定位為低空經濟的全球領導者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm)
+
+---
+
 # 屯門男子行山暈倒　昏迷送院不治
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800000-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800000-20250411.htm)
-
----
-
-# 副特派員潘雲東冀各界依托優勢講好國家及香港故事
-
-![助理廣播處長李慶華（右）出席外交部駐港特派員公署舉辦的短視頻比賽頒獎禮，並頒發獎項給得獎者。（張連登攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799998_2_20250411230517.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-外交部駐港特派員公署副特派員潘雲東表示，國家正以中國式現代化全面推進強國建設和民族復興偉業，國際社會日益聚焦中國、矚目香港，期望社會各界繼續發揮創造力和聰明才智，依托香港「背靠祖國、聯通世界」的優勢，講好香港故事和國家故事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm)
 
 ---

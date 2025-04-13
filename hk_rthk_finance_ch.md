@@ -1,3 +1,26 @@
+# 黃偉綸稱兩地加強合作建設跨境低空飛行路徑　涉及出入境等安排
+
+  
+
+財政司副司長黃偉綸表示，地緣政治局勢不斷發生變化，但並無改變本港對低空經濟的重視，他強調本港的願景清晰，是將本港定位為低空經濟的全球領導者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm)
+
+---
+
 # 陳茂波：本港要保持開放　確保自由港地位
 
 ![陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800142_2_20250413131536.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm)
-
----
-
-# 人民日報文章指美國關稅訛詐　切斷全球產供鏈干擾各國經濟發展
-
-![文章指中美經貿合作促進美國產業升級，為美國消費者帶來好處。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799902_1_20250411123655.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-《人民日報》發表文章，批評美國的「關稅訛詐」，嚴重擾亂全球產業鏈、供應鏈穩定，扭曲全球市場資源配置，損人不利己，重申中美作為全球前兩大經濟體，尤其需要視對方的發展為機遇而非挑戰，把對方當作夥伴，而非對手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm)
 
 ---

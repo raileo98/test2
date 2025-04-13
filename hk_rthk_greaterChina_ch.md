@@ -1,3 +1,49 @@
+# 北方沙塵抵粵　廣州深圳等地罕見遭遇沙塵天氣
+
+  
+
+來自北方的沙塵今日到達廣東，廣州、深圳等地罕見遭遇沙塵天氣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800162-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800162-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800162-20250413.htm)
+
+---
+
+# 黃偉綸稱兩地加強合作建設跨境低空飛行路徑　涉及出入境等安排
+
+  
+
+財政司副司長黃偉綸表示，地緣政治局勢不斷發生變化，但並無改變本港對低空經濟的重視，他強調本港的願景清晰，是將本港定位為低空經濟的全球領導者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm)
+
+---
+
 # 習近平明起出訪東南亞三國　三地冀推動中國與三國關係邁上新台階
 
 ![習近平明天起對越南、馬來西亞及柬埔寨三國展開國事訪問。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800154_1_20250413153524.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799814-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799814-20250410.htm)
-
----
-
-# 對美關稅反制措施實施　中方稱談判大門敞開　須以平等方式進行
-
-![商務部發言人何咏前重申，談判大門敞開，但對話必須在相互尊重的基礎上以平等方式進行。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799809_2_20250410182959.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-中國對美國關稅的反制措施已經開始執行，中午起上調對原產於美國進口商品加徵的關稅至84%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799809-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799809-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799809-20250410.htm)
-
----
-
-# 北京有民眾不擔心必需品供應　亦有藥房不打算增加美國藥物存貨量
-
-![在北京，有藥房表示，不打算增加美國藥物存貨量。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799805_1_20250410182306.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
-  
-
-中國由中午起，對原產於美國的所有進口商品加徵關稅至84%。在北京，有糖尿病及心臟病患者表示，以往醫保定點醫院都會提供進口藥，但上月底覆診時，醫院提供的藥物已全數是國產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm)
 
 ---
