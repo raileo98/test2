@@ -24,7 +24,7 @@ Hong Kong, China's Jordan Tang and Tse Ying-suet made a triumphant return to int
 
 # HK will remain a free port amid turbulent times: FS
 
-![Financial Secretary Paul Chan says Hong Kong will remain as a free port during turbulent times. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800146_1_20250413123811.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800146_1_20250413123811.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 Financial Secretary Paul Chan on Sunday reaffirmed investors that Hong Kong will continue to welcome global business as a free port during "turbulent" times in global development.
@@ -48,7 +48,7 @@ Financial Secretary Paul Chan on Sunday reaffirmed investors that Hong Kong will
 
 # 'SAR to work with mainland in future rescue missions'
 
-![Deputy chief fire officer Cheu Yu-kok (second from left) spoke of the challenges the 51-strong SAR rescue team faced during their mission. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800143_1_20250413122803.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800143_1_20250413122803.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
 The commander of the SAR's search and rescue team on Sunday said a consensus has been reached with their mainland counterparts to work together in future missions.
