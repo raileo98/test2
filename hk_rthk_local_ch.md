@@ -1,3 +1,26 @@
+# 周一鳴：截至上月底安裝閉路電視成功協助偵破兇殺等200多宗案
+
+  
+
+警務處處長周一鳴表示，警方去年在全港安裝615組閉路電視，至年底成功協助短期內偵破122宗案件，包括兇殺和搶劫等嚴重罪案，至上月底更增加至近一倍至226宗，反映成效理想，目標本年度增至2000組，正審視明年的目標安裝數目，希望做到越多越好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm)
+
+---
+
 # 環保署：沙塵氣流對香港的影響可能會持續一至兩天
 
 ![環保署預計在下午近黃昏時間，部分空氣質素監測站的空氣質素健康指數健康風險級別可能會達至「嚴重」水平。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800150_1_20250413135306.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799982-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799982-20250411.htm)
-
----
-
-# 政府推行涉水綫系統試驗　李耀培歡迎並稱如效果好可考慮推行各區
-
-![試點路段行車道旁設有標誌牌。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799981_1_20250411195657.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-政府將於5個水浸風險較高的低窪行車路段，推行涉水綫系統試驗計劃，實時監察水浸情況，協助各部門更有效動員和協作，及早處理水浸情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799981-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799981-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799981-20250411.htm)
 
 ---

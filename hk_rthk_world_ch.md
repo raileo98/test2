@@ -791,7 +791,7 @@
 
 # 也門胡塞武裝稱襲擊美國杜魯門號航母編隊
 
-![也門首都薩那星期五有大批民眾上街，抗議美軍空襲當地。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800019_1_20250412043157.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![也門首都薩那星期五有大批民眾上街，抗議美軍空襲當地。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800019_1_20250412043157.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
   
 
 也門胡塞武裝表示，組織星期五襲擊了部署在紅海北部的美國航母編隊。

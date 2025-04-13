@@ -1,3 +1,26 @@
+# 周一鳴：截至上月底安裝閉路電視成功協助偵破兇殺等200多宗案
+
+  
+
+警務處處長周一鳴表示，警方去年在全港安裝615組閉路電視，至年底成功協助短期內偵破122宗案件，包括兇殺和搶劫等嚴重罪案，至上月底更增加至近一倍至226宗，反映成效理想，目標本年度增至2000組，正審視明年的目標安裝數目，希望做到越多越好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm)
+
+---
+
 # 環保署：沙塵氣流對香港的影響可能會持續一至兩天
 
 ![環保署預計在下午近黃昏時間，部分空氣質素監測站的空氣質素健康指數健康風險級別可能會達至「嚴重」水平。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800150_1_20250413135306.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm)
-
----
-
-# 特朗普：將與中方在貿易問題上取得正面成果
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800081_1_20250412175911.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-美國總統特朗普說，美國的關稅政策做得非常好，正迅速取得進展，他否認是因為債市波動而暫緩徵收關稅，說現時債券市場運作良好，市場很穩健，相信會與中方在貿易問題上取得正面成果。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800081-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800081-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800081-20250412.htm)
 
 ---

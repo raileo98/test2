@@ -1,3 +1,27 @@
+# HK will remain a free port amid turbulent times: FS
+
+![Financial Secretary Paul Chan says Hong Kong will remain as a free port during turbulent times. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800146_1_20250413123811.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Financial Secretary Paul Chan on Sunday reaffirmed investors that Hong Kong will continue to welcome global business as a free port during "turbulent" times in global development.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800146-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800146-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800146-20250413.htm)
+
+---
+
 # 'SAR to work with mainland in future rescue missions'
 
 ![Deputy chief fire officer Cheu Yu-kok (second from left) spoke of the challenges the 51-strong SAR rescue team faced during their mission. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800143_1_20250413122803.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
@@ -1411,29 +1435,5 @@ The Billie Jean King Cup finals in Shenzhen have been brought forward from Novem
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799812-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799812-20250410.htm)
-
----
-
-# Manchester United promise to put on a show in HK
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799801_1_20250410172604.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-Manchester United on Thursday assured SAR fans that a “full team” including captain Bruno Fernandes will be featured in a friendly against Hong Kong, China next month.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799801-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799801-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799801-20250410.htm)
 
 ---
