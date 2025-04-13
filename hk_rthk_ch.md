@@ -1,3 +1,26 @@
+# 屯門男子行山暈倒　昏迷送院不治
+
+  
+
+屯門有行山人士昏迷，送院不治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800159-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800159-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800159-20250413.htm)
+
+---
+
 # 張國鈞稱訂立好國家安全法律如同為國家鎖好門窗
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm)
-
----
-
-# 屯門輕鐵車廠站附近有人遭輕鐵撞倒　一度被困車底及後救出
-
-![屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻。（網上圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800088_2_20250412192251.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻，之後陸續恢復。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 屯門男子行山暈倒　昏迷送院不治
+
+  
+
+屯門有行山人士昏迷，送院不治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800159-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800159-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800159-20250413.htm)
+
+---
+
 # 張國鈞稱訂立好國家安全法律如同為國家鎖好門窗
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm)
-
----
-
-# 元朗5人涉策劃傷人案　遇查反抗遭警員擎槍制服
-
-![行動中2名警員受傷，警方一度擎槍制服疑犯。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799989_1_20250411213724.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-警方採取情報主導行動，拘捕5名非華裔男子，年齡介乎20至25歲，涉嫌串謀意圖傷人、意圖傷人及行使虛假文書。行動中2名警員受傷，警方一度擎槍制服疑犯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799989-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799989-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799989-20250411.htm)
 
 ---
