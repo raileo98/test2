@@ -1,3 +1,27 @@
+# 世界互聯網大會亞太峰會明天開幕　李家超：展示創科領域最新發展
+
+![李家超說，香港一直是國際自由港以及國家與世界之間的商業橋樑。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800190_1_20250413210317.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+行政長官李家超表示，世界互聯網大會亞太峰會首次在港舉辦，明日將會開幕，雲集約30個國家和地區約1000名商界領袖、政府部級等人員、學者、協會領袖和其他知名人士，共同探討人工智能和數碼科技的發展。他今晚出席歡迎晚宴，歡迎他們蒞臨香港參與峰會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm)
+
+---
+
 # 克宮：普京與特朗普會晤準備尚未就緒
 
 ![佩斯科夫說，俄美兩國總統均已明確表達舉行會晤的政治意願，但會晤將在適當時候舉行，俄方需要做好準備。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800188_1_20250413200241.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
