@@ -1,3 +1,27 @@
+# 環保署：沙塵氣流對香港的影響可能會持續一至兩天
+
+![環保署預計在下午近黃昏時間，部分空氣質素監測站的空氣質素健康指數健康風險級別可能會達至「嚴重」水平。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800150_1_20250413135306.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+環保署回應查詢時表示，受一股東北季候風相關的沙塵氣流影響，香港空氣中的粒子由昨日晚上10時起開始升高。今日上午的空氣質素健康指數健康風險級別為「高」至「甚高」，預計在下午近黃昏時間，部分空氣質素監測站的空氣質素健康指數健康風險級別可能會達至「嚴重」水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800150-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800150-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800150-20250413.htm)
+
+---
+
 # 何永賢：公屋管理人員可善用物聯網技術監察公共地方
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800081-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800081-20250412.htm)
-
----
-
-# 運輸署籲往返啟德主場館觀眾留意天氣及交通　及早規劃行程
-
-![運輸署提醒觀眾應乘搭港鐵及散場時段提供的特別巴士服務。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800083_1_20250412175131.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-運輸署表示，由於天氣不穩定，呼籲往返啟德體育園啟德主場館演唱會的觀眾，應乘搭港鐵及散場時段提供的特別巴士服務，在戶外時應提高警惕，注意安全。由於入場和散場時間可能因實際情況而有變，觀眾特別是過境旅客應預早計劃行程，有需要應及早購票，觀眾應留意場地廣播和「離場易」平台提供的實時資訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm)
 
 ---
