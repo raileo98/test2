@@ -1,3 +1,27 @@
+# 烏克蘭稱俄羅斯導彈擊中蘇梅市中心逾20人死
+
+![消防員在導彈襲擊現場撲救大火。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800168_1_20250413174055.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+  
+
+烏克蘭當局說，俄羅斯使用彈道導彈襲擊烏克蘭北部城市蘇梅，造成至少21人死亡，20人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800168-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800168-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800168-20250413.htm)
+
+---
+
 # 央視「玉淵譚天」：決不允許拿中方利益當美國談判投名狀
 
 ![「玉淵譚天」說，中方正與多國共同應對美國濫施關稅，決不允許拿中方利益當美國談判投名狀。（徵博截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800167_2_20250413172122.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800100-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800100-20250412.htm)
-
----
-
-# 特朗普豁免向智能電話、電腦、晶片等產品徵收對等關稅
-
-![特朗普豁免向智能電話、電腦、晶片等產品徵收對等關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800098_1_20250412214344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國總統特朗普簽署備忘錄，豁免向部分產品徵收對等關稅。美國海關和邊境保護局更新指引，公布獲豁免物品清單，包括智能電話、手提電腦、晶片、硬碟、電腦處理器和記憶體、太陽能電池，以及用於製造半導體的機器。豁免適用於本月5日起輸入美國的產品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800098-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800098-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800098-20250412.htm)
 
 ---
