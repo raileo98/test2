@@ -1,3 +1,27 @@
+# 白宮醫生指特朗普認知及健康極好　完成適合履行國家元首職務
+
+![特朗普進行第二個總統任期的首次年度身體檢查。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800197_1_20250414001348.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國白宮醫生表示，總統特朗普的認知及健康情況極好，完全適合履行國家元首及軍隊總司令的職務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800197-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800197-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800197-20250414.htm)
+
+---
+
 # 警隊於日內瓦國際發明展贏得5個國際獎項
 
 ![團隊在瑞士舉辦的「第50屆日內瓦國際發明展」中贏得5個國際獎項。（警方社交網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800195_1_20250413224050.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm)
-
----
-
-# 白宮稱中國總關稅為145%　特朗普：期望與中方達成協議
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799969_1_20250411183308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國總統特朗普早前宣布，對中國進口貨品的關稅稅率提高至125%，白宮官員澄清，特朗普所指的125%是對等關稅，連同早前因芬太尼問題加徵的20%關稅，美國對中國貨加徵的總關稅是145%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799969-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799969-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799969-20250411.htm)
 
 ---
