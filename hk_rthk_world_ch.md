@@ -1,6 +1,30 @@
+# 習近平同普拉博沃互相致賀電　慶祝中國與印尼建交75周年
+
+![習近平同普拉博沃互相致賀電，慶祝中國與印尼建交75周年。 (新華社資料圖片)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800152_1_20250413142745.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+國家主席習近平同印尼總統普拉博沃互相致賀電，慶祝中國與印尼建交75周年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800152-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800152-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800152-20250413.htm)
+
+---
+
 # 埃及和印尼國家領導人：巴勒斯坦建國是實現地區持久和平唯一途徑
 
-![埃及總統塞西（圖）在首都開羅與到訪的印尼總統普拉博沃舉行會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800148_1_20250413141104.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![埃及總統塞西（圖）在首都開羅與到訪的印尼總統普拉博沃舉行會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800148_1_20250413141104.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 埃及和印尼國家領導人表示，巴勒斯坦建國是實現地區持久和平、安全與穩定的唯一途徑。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm)
-
----
-
-# 王文濤就應對美國對等關稅分與南非貿工部長及沙特商務大臣交流
-
-![王文濤就應對美國對等關稅，分別與南非及沙特官員交流。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799897_1_20250411124037.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-在北京，商務部表示部長王文濤昨日與二十國集團輪值主席國、南非貿工部長帕克斯陶，進行視像通話，雙方圍繞應對美國加徵所謂對等關稅、加強中南經貿合作，發揮二十國集團、金磚國家等多邊平台作用等問題，進行交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799897-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799897-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799897-20250411.htm)
 
 ---

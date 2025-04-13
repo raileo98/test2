@@ -1,3 +1,27 @@
+# 習近平同普拉博沃互相致賀電　慶祝中國與印尼建交75周年
+
+![習近平同普拉博沃互相致賀電，慶祝中國與印尼建交75周年。 (新華社資料圖片)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800152_1_20250413142745.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+國家主席習近平同印尼總統普拉博沃互相致賀電，慶祝中國與印尼建交75周年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800152-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800152-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800152-20250413.htm)
+
+---
+
 # 中國國際消費品博覽會今起舉行　韓正宣布系列活動正式啟動
 
 ![韓正出席啟動儀式，並宣布系列活動正式啟動。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800135_1_20250413133510.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm)
-
----
-
-# 美國對中國船隻徵港口停泊費　外交部：無法振興美國造船業
-
-![林劍說，美方單邊主義、保護主義的霸道做法不得人心，對世界各國的利益造成損害。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799794_1_20250410171102.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-在北京，外交部發言人林劍表示，美方單邊主義、保護主義的霸道做法不得人心，只會推高全球的海運成本，擾亂全球的產供鏈穩定，對世界各國的利益造成損害，最終也無法振興美國的造船業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm)
 
 ---

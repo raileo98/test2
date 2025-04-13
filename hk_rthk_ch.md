@@ -1,3 +1,27 @@
+# 習近平同普拉博沃互相致賀電　慶祝中國與印尼建交75周年
+
+![習近平同普拉博沃互相致賀電，慶祝中國與印尼建交75周年。 (新華社資料圖片)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800152_1_20250413142745.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+國家主席習近平同印尼總統普拉博沃互相致賀電，慶祝中國與印尼建交75周年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800152-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800152-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800152-20250413.htm)
+
+---
+
 # 周一鳴：截至上月底安裝閉路電視成功協助偵破兇殺等200多宗案
 
   
@@ -71,7 +95,7 @@
 
 # 埃及和印尼國家領導人：巴勒斯坦建國是實現地區持久和平唯一途徑
 
-![埃及總統塞西（圖）在首都開羅與到訪的印尼總統普拉博沃舉行會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800148_1_20250413141104.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![埃及總統塞西（圖）在首都開羅與到訪的印尼總統普拉博沃舉行會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800148_1_20250413141104.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 埃及和印尼國家領導人表示，巴勒斯坦建國是實現地區持久和平、安全與穩定的唯一途徑。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm)
-
----
-
-# 周一鳴指詐騙案成「產業鏈」　重點打擊出售傀儡戶口
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800079_1_20250412181156.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-本港去年全年有逾4.4萬宗詐騙案，佔整體罪案約47%。警務處處長周一鳴形容，詐騙案已成為「產業鏈」，破案需要國際間合作，警方亦會重點打擊售賣涉及騙案傀儡戶口的人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm)
 
 ---
