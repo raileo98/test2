@@ -3,7 +3,7 @@
 ![消防員在導彈襲擊現場撲救大火。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800168_1_20250413174055.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
-烏克蘭當局說，俄羅斯使用彈道導彈襲擊烏克蘭北部城市蘇梅，造成至少21人死亡，20人受傷。
+烏克蘭當局說，俄羅斯使用彈道導彈襲擊烏克蘭北部城市蘇梅，造成至少21人死亡，多人受傷。
 
   
 
@@ -263,7 +263,8 @@
 
 # 羽毛球混雙組合鄧俊文和謝影雪在亞洲錦標賽奪冠
 
-![香港羽毛球混雙組合鄧俊文和謝影雪於亞洲錦標賽奪得冠軍。（BWF世界羽聯微博圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800155_1_20250413164336.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![鄧俊文和謝影雪在決賽擊敗日本組合。（BWF世界羽聯微博圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800155_1_20250413164336.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![鄧俊文和謝影雪在亞洲錦標賽奪得冠軍。（Ningbo Olympic Sports Center）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800155_2_20250413174437.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
 香港羽毛球混雙組合鄧俊文和謝影雪於亞洲錦標賽奪得冠軍。
