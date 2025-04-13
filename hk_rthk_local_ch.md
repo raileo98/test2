@@ -23,6 +23,7 @@
 
 # 今早相對濕度創1984年以來4月最低紀錄　沙塵氣流或持續兩天
 
+![環保署預測，今次沙塵氣流對香港的影響可能會持續一至兩天。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800179_1_20250413184057.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 受一股東北季候風相關的沙塵氣流影響，本港空氣質素欠佳。環保署預測，今次沙塵氣流對香港的影響可能會持續一至兩天。
@@ -70,6 +71,7 @@
 
 # 陳茂波指示證監會準備　倘海外上市中概股回流香港須成首選上市地
 
+![陳茂波表示，已指示證監會和港交所做好準備。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800177_1_20250413184123.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 財政司司長陳茂波表示，港股經過上周一跌勢後大致穩定，市場整體繼續暢順有序運作，認為香港在當前環球市場前景不明朗情況下，顯得更加穩定和具吸引力。
@@ -93,6 +95,7 @@
 
 # 郭毅可料7月可推聊天機械人供市民使用　並連接「智方便」系統
 
+![郭毅預料7月可將基於大語言模型開發的聊天機械人推出市場，供市民大眾使用。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800180_1_20250413184029.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 「InnoHK香港生成式人工智能研發中心」正研發港產大語言模型。

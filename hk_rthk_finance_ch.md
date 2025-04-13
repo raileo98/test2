@@ -1,5 +1,6 @@
 # 陳茂波指示證監會準備　倘海外上市中概股回流香港須成首選上市地
 
+![陳茂波表示，已指示證監會和港交所做好準備。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800177_1_20250413184123.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 財政司司長陳茂波表示，港股經過上周一跌勢後大致穩定，市場整體繼續暢順有序運作，認為香港在當前環球市場前景不明朗情況下，顯得更加穩定和具吸引力。
