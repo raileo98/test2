@@ -1,3 +1,26 @@
+# 2025年日本大阪世博會中國館開館　展品包括月球土壤樣本
+
+  
+
+2025年日本大阪世博會今日正式開幕，中國館舉行開館儀式，首次在全球零距離對比展示由中國嫦娥五號、嫦娥六號探測器採集的月球正面和背面土壤樣本，展出「蛟龍號」深潛體驗艙、全新一代人形機器人等展項。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm)
+
+---
+
 # 習近平同普拉博沃互相致賀電　慶祝中國與印尼建交75周年
 
 ![習近平同普拉博沃互相致賀電，慶祝中國與印尼建交75周年。 (新華社資料圖片)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800152_1_20250413142745.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799932-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799932-20250411.htm)
-
----
-
-# 美國對中國內地及香港800美元或以下小額包裹關稅增至120%
-
-![美國對來自中國內地及香港、價值800美元或以下的小額包裹的關稅，提升至120%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799905_1_20250411123743.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-美國全國廣播公司商業頻道報道，白宮表示對華加徵的總關稅是145%、即時生效的同時，亦公布對來自中國內地及香港、價值800美元或以下的小額包裹的關稅，由日前提及的90%，提升至120%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm)
 
 ---

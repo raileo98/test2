@@ -1,3 +1,26 @@
+# 2025年日本大阪世博會中國館開館　展品包括月球土壤樣本
+
+  
+
+2025年日本大阪世博會今日正式開幕，中國館舉行開館儀式，首次在全球零距離對比展示由中國嫦娥五號、嫦娥六號探測器採集的月球正面和背面土壤樣本，展出「蛟龍號」深潛體驗艙、全新一代人形機器人等展項。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm)
+
+---
+
 # 習近平同普拉博沃互相致賀電　慶祝中國與印尼建交75周年
 
 ![習近平同普拉博沃互相致賀電，慶祝中國與印尼建交75周年。 (新華社資料圖片)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800152_1_20250413142745.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm)
-
----
-
-# 中方發布赴美風險提示　外交部：將繼續採取堅決有力措施
-
-![林劍表示，中方將繼續採取堅決有力措施，堅決維護自身的正當合法權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799796_1_20250410171411.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-國家文化和旅遊部昨天對赴美中國遊客發布風險提示，提醒中國遊客充分評估赴美旅遊風險，謹慎前往。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799796-20250410.htm)
 
 ---

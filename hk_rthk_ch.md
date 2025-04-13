@@ -1,3 +1,26 @@
+# 2025年日本大阪世博會中國館開館　展品包括月球土壤樣本
+
+  
+
+2025年日本大阪世博會今日正式開幕，中國館舉行開館儀式，首次在全球零距離對比展示由中國嫦娥五號、嫦娥六號探測器採集的月球正面和背面土壤樣本，展出「蛟龍號」深潛體驗艙、全新一代人形機器人等展項。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm)
+
+---
+
 # 習近平同普拉博沃互相致賀電　慶祝中國與印尼建交75周年
 
 ![習近平同普拉博沃互相致賀電，慶祝中國與印尼建交75周年。 (新華社資料圖片)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800152_1_20250413142745.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm)
-
----
-
-# 林定國：國安教育與愛國主義教育好比「孖生兄弟」
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800078_1_20250412181224.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-下周二是「全民國家安全教育日」，保安局轄下8支紀律部隊和輔助部隊由今天起，陸續在不同的周末及假日舉行開放日，讓公眾了解各部隊防範和抵禦國家安全風險所做的工作，提高國家安全意識。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm)
 
 ---
