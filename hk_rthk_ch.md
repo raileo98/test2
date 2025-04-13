@@ -69,7 +69,7 @@
 
 # 西九戶外演唱會　警方接4宗遺失手機報案
 
-![西九文化區竹翠公園昨晚舉行戶外演唱會，警方接獲4人報案在該處失手機。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800145_1_20250413124224.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![西九文化區竹翠公園昨晚舉行戶外演唱會，警方接獲4人報案在該處失手機。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800145_1_20250413124224.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 西九文化區竹翠公園昨晚舉行戶外演唱會，警方回覆查詢時表示，油麻地警區由昨晚至今日凌晨，接獲4人報案指，在竹翠公園遺失手提電話，向警方備案，警方暫列作遺失財物案件處理。
@@ -93,7 +93,7 @@
 
 # 控煙酒辦在旺角一酒吧向非法吸食水煙者共發4張定額罰款通知書
 
-![控煙酒辦公室在旺角一間酒吧巡查和執法。（衞生署圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800144_1_20250413124234.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![控煙酒辦公室在旺角一間酒吧巡查和執法。（衞生署圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800144_1_20250413124234.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 控煙酒辦公室昨晚派員到旺角進行代號「菸滅」的行動，在旺角一間酒吧巡查和執法，向非法吸食水煙的人士，發出共4張定額罰款通知書。
@@ -117,7 +117,7 @@
 
 # 陳茂波：本港要保持開放　確保自由港地位
 
-![陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800142_2_20250413131536.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800142_2_20250413131536.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 財政司司長陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位，自由貿易政策不變。
@@ -141,7 +141,7 @@
 
 # 許正宇：面對美國關稅措施但本港市場維持運作有序
 
-![許正宇表示，面對美國的關稅措施，本港市場維持運作有序，有信心香港可立於不敗之地。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800141_1_20250413121946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![許正宇表示，面對美國的關稅措施，本港市場維持運作有序，有信心香港可立於不敗之地。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800141_1_20250413121946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 財經事務及庫務局局長許正宇表示，面對美國的關稅措施，環球經濟受影響，但本港市場維持運作有序，有信心香港可立於不敗之地。
@@ -165,7 +165,7 @@
 
 # 孫東：面對更複雜形勢　本港要堅持自由開放聯通全球
 
-![孫東表示，創科營商周可向世界展示香港改革開放、充滿創新的機遇。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800140_1_20250413123420.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![孫東表示，創科營商周可向世界展示香港改革開放、充滿創新的機遇。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800140_1_20250413123420.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 國際創科營商周開幕，創新科技及工業局局長孫東表示，創科營商周可向世界展示香港改革開放、充滿創新的機遇，現時面對更複雜形勢，尤其貿易戰及關稅戰，本港要堅持成功精髓，即是自由開放，聯通全球，以及協同創新，只要堅持走下去，就可把道路愈走愈寬、愈走愈廣。
@@ -189,7 +189,7 @@
 
 # 緬甸發生5.6級地震
 
-![緬甸發生5.6級地震](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800138_1_20250413114914.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![緬甸發生5.6級地震](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800138_1_20250413114914.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 緬甸發生5.6級地震，震源深度為35公里。
@@ -213,7 +213,7 @@
 
 # 甯漢豪：東江水現佔全港食水用量達七至八成是穩定可靠主要水源
 
-![甯漢豪（右）表示，現時東江水佔全港食水用量達七至八成。黃恩諾（左）解釋，興建將軍澳海水化淡廠的主要目的在於應對氣候變化所帶來的影響，並非取代東江水作為主要水源。（發展局網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800139_1_20250413123754.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=60)
+![甯漢豪（右）表示，現時東江水佔全港食水用量達七至八成。黃恩諾（左）解釋，興建將軍澳海水化淡廠的主要目的在於應對氣候變化所帶來的影響，並非取代東江水作為主要水源。（發展局網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800139_1_20250413123754.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
   
 
 發展局局長甯漢豪表示，香港的雨水收集不足以應付全港淡水使用需求，因此主要依賴東江水供港，現時東江水佔全港食水用量達七至八成，是穩定可靠的主要水源。
@@ -237,7 +237,7 @@
 
 # 陳茂波：香港在動盪時期會保持開放　願意建立新聯繫和新夥伴關係
 
-![陳茂波早上出席國際創科營商周開幕禮時表示，本港是創科發展的理想戰略地點。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800137_1_20250413130954.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![陳茂波早上出席國際創科營商周開幕禮時表示，本港是創科發展的理想戰略地點。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800137_1_20250413130954.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 財政司司長陳茂波表示，因貿易戰及科技碎片化的關係，全球格局正出現變化，正重塑產業鏈、供應鏈和夥伴關係等，很多企業在新常態下要尋求新合作夥伴，探索新市場，並要採用更靈活的商業模式。他說，香港在動盪時期會保持開放，歡迎世界各地的企業和人才，本港願意建立新聯繫和新夥伴關係，強調本港會確保自由港地位，保持自由貿易政策不變，會堅定保持資金、貨物、資訊和人才的自由流動。
@@ -261,7 +261,7 @@
 
 # 陳國基：消防處在維護國家安全方面擔當舉足輕重角色
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800136_2_20250413125046.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800136_2_20250413125046.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 消防處響應「全民國家安全教育日」，在將軍澳消防及救護學院舉行開放日。
@@ -285,7 +285,7 @@
 
 # 中國國際消費品博覽會今起舉行　韓正宣布系列活動正式啟動
 
-![韓正出席啟動儀式，並宣布系列活動正式啟動。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800135_1_20250413133510.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![韓正出席啟動儀式，並宣布系列活動正式啟動。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800135_1_20250413133510.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 第五屆中國國際消費品博覽會今日起一連6日在海南海口舉行，國家副主席韓正出席啟動儀式，並宣布系列活動正式啟動。
@@ -309,7 +309,7 @@
 
 # 陳茂波：香港在當前環球市場前景不明朗下顯得更穩定和具吸引力
 
-![陳茂波日前會同財經事務及庫務局局長、商務及經濟發展局局長和金融監管機構代表會見傳媒。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800134_1_20250413111019.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![陳茂波日前會同財經事務及庫務局局長、商務及經濟發展局局長和金融監管機構代表會見傳媒。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800134_1_20250413111019.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 財政司司長陳茂波表示，自美國公布向全球貿易伙伴施加所謂「對等關稅」後，國際金融市場出現大幅波動，美國國庫債券價格急跌、孳息急升；上周開始至今，港匯持續偏強，港元兌美元仍處於強方水平，顯示資金仍留在本港市場，港股經過上周一跌勢後大致穩定，上周五恒生指數收市，仍略高於今年一月初的水平，上周的平均每日成交額增至4276億港元，比前周增加約68%，反映過去一周市場整體繼續暢順有序運作，認為香港在當前環球市場前景不明朗的情況下，顯得更加穩定和具吸引力。
@@ -333,7 +333,7 @@
 
 # 東盟秘書長高金洪：致力深化對華全面戰略伙伴關係　倡導多邊主義
 
-![高金洪表示，東盟致力於深化對華全面戰略伙伴關係。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800130_2_20250413130957.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![高金洪表示，東盟致力於深化對華全面戰略伙伴關係。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800130_2_20250413130957.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 東盟秘書長高金洪表示，東盟致力於深化對華全面戰略伙伴關係，同時倡導多邊主義，以應對共同挑戰。
@@ -357,7 +357,7 @@
 
 # 尹錫悅首次刑事審判明天舉行　倘領導叛亂罪成可能囚終身或死刑
 
-![尹錫悅被指領導叛亂的首次刑事審判明天舉行。圖為他日前返回私人住宅途中向傳媒揮手。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800133_1_20250413104522.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![尹錫悅被指領導叛亂的首次刑事審判明天舉行。圖為他日前返回私人住宅途中向傳媒揮手。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800133_1_20250413104522.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 南韓前總統尹錫悅被指領導叛亂的首次刑事審判定於明天舉行，他作為被告，必須出席庭審。
@@ -381,7 +381,7 @@
 
 # 為應對復活節假期求診需要　醫管局明起啓動高峰期特別措施
 
-![醫管局明日起啓動服務需求高峰期特別措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800132_1_20250413104410.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![醫管局明日起啓動服務需求高峰期特別措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800132_1_20250413104410.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 醫管局公布，為應對市民在復活節假期的求診需要及減輕急症室的服務壓力，明日起啓動服務需求高峰期特別措施。復活節假期期間，即4月18日至21日將有18間普通科門診診所提供公眾假期普通科門診服務。求診人士可透過電話預約系統或「HA Go」流動應用程式內的「預約普通科門診」功能作出預約。
@@ -405,7 +405,7 @@
 
 # 本港今早相對濕度降至21% 　1984年以來4月份最低紀錄
 
-![天文台的相對濕度曾下降至21%，是天文台總部自1984年設置自動氣象站以來4月份的最低紀錄。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800129_1_20250413100044.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![天文台的相對濕度曾下降至21%，是天文台總部自1984年設置自動氣象站以來4月份的最低紀錄。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800129_1_20250413100044.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 天文台表示，今早多處地區的相對濕度下降至30%或以下，而截至上午9時40分，天文台的相對濕度曾下降至21%，是天文台總部自1984年設置自動氣象站以來4月份的最低紀錄。
@@ -429,7 +429,7 @@
 
 # 美國將對俄羅斯的部份制裁措施延長一年
 
-![據美國聯邦公報網站，特朗普簽署行政命令，繼續執行行政命令宣布的國家緊急狀態一年。（網上截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800128_1_20250413101033.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![據美國聯邦公報網站，特朗普簽署行政命令，繼續執行行政命令宣布的國家緊急狀態一年。（網上截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800128_1_20250413101033.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 美國將對俄羅斯的部份制裁措施延長一年。
@@ -453,7 +453,7 @@
 
 # 許正宇：本港金融系統久經歷練　有信心香港可立於不敗之地
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800127_2_20250413104711.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800127_2_20250413104711.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 財經事務及庫務局局長許正宇表示，美國實施關稅政策，對全球經濟百害而無一利，但香港股票市場穩健，交易結算有序，反映即使宏觀環境複雜，最重要是「人亂我不亂」。他認為，本港金融系統久經歷練，監管系統能夠抵禦和察覺風險，整體市場運作有序，現時需持續鞏固本港市場的安全、穩定和可預見性，有信心香港可立於不敗之地。
@@ -477,7 +477,7 @@
 
 # 環保署料部份監測站空氣質素健康指數健康風險達嚴重水平
 
-![環保署表示會繼續留意空氣質素變化，並適時發布最新情況。（郭志強攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800126_2_20250413093111.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![環保署表示會繼續留意空氣質素變化，並適時發布最新情況。（郭志強攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800126_2_20250413093111.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 環保署預測今日稍後時間，部分空氣質素監測站的空氣質素健康指數健康風險級別會達至「嚴重」水平。
@@ -501,7 +501,7 @@
 
 # 剛果民主共和國譴責反政府武裝M23運動襲擊平民造成至少52死
 
-![聲明譴責反政府武裝M23運動，在戈馬市對平民發動襲擊。圖為M23運動成員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800125_1_20250413093346.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=40)
+![聲明譴責反政府武裝M23運動，在戈馬市對平民發動襲擊。圖為M23運動成員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800125_1_20250413093346.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
   
 
 剛果民主共和國發表聲明，強烈譴責反政府武裝M23運動，在東部北基伍省首府戈馬市對平民發動襲擊，造成至少52人死亡。
@@ -525,7 +525,7 @@
 
 # 英超曼城5:2水晶宮　阿仙奴1:1賓福特　森林0:1愛華頓
 
-![迪布尼（中）為今場曼城反勝功臣。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800124_1_20250413083925.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![迪布尼（中）為今場曼城反勝功臣。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800124_1_20250413083925.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 英格蘭超級足球聯賽，曼城以5:2反勝水晶宮。阿仙奴就被賓福特逼和1:1，諾定咸森林就以0:1不敵愛華頓。
@@ -549,7 +549,7 @@
 
 # 美國將手機等產品排除對等關稅外　新華社文章強調貿易戰無贏家
 
-![分析指蘋果（圖）、英偉達及微軟等科技巨頭可以暫時鬆一口氣。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800123_1_20250413073234.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![分析指蘋果（圖）、英偉達及微軟等科技巨頭可以暫時鬆一口氣。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800123_1_20250413073234.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 美國政府將智能手機、電腦、晶片等產品，排除在對等關稅之外，措施適用於本月5日以後進入美國的電子產品，已經支付的對等關稅可以尋求退款。
@@ -573,7 +573,7 @@
 
 # 以色列指以軍攻勢很快擴至加沙大部分地區　形容結束戰爭最後時刻
 
-![以軍指已於加沙南部完成將拉法（圖）與加沙其他地區隔開的「莫拉格走廊」建設，完全包圍拉法地區。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800121_1_20250413073028.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![以軍指已於加沙南部完成將拉法（圖）與加沙其他地區隔開的「莫拉格走廊」建設，完全包圍拉法地區。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800121_1_20250413073028.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 以色列國防部長卡茨發表聲明說，以軍攻勢將很快擴展到加沙地帶大部分地區。
@@ -597,7 +597,7 @@
 
 # 珠江客運中港城往廣州南沙及中山港航班上午8時停航　受天氣影響
 
-![珠江客運中港城往廣州南沙及中山港航班上午8時停航　受天氣影響](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800120_1_20250413071211.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![珠江客運中港城往廣州南沙及中山港航班上午8時停航　受天氣影響](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800120_1_20250413071211.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 根據珠江客運網頁，受強對流天氣影響，今日在市區航線方面，香港中港城碼頭往廣州南沙港，以及香港中港城碼頭往中山港的航班，上午8時停航。
@@ -621,7 +621,7 @@
 
 # 中方助建公路舉行通車啟用儀式　柬埔寨首相稱促進交通及貨物運輸
 
-![這條公路全長114.9公里是柬埔寨中東部公路網的重要組成部分。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800117_1_20250413052947.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=45)
+![這條公路全長114.9公里是柬埔寨中東部公路網的重要組成部分。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800117_1_20250413052947.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
   
 
 由上海建工集團股份有限公司承建的柬埔寨71C號國家公路，昨日在柬埔寨特本克蒙舉行通車啟用儀式，柬埔寨首相洪瑪奈、公共工程與運輸部大臣賓波尼及中國駐柬埔寨大使汪文斌等出席儀式。
@@ -645,7 +645,7 @@
 
 # 白宮稱美伊溝通朝著實現互利結果邁出一步　雙方同意再會面
 
-![阿拉格齊與阿曼外交大臣巴德爾會面。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800116_1_20250413044217.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![阿拉格齊與阿曼外交大臣巴德爾會面。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800116_1_20250413044217.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 美國白宮表示，美國中東問題特使威特科夫在星期六與伊朗的溝通是朝著實現互利結果邁出的一步，雙方同意於本月19日再次會面。
@@ -669,7 +669,7 @@
 
 # 美上訴法院裁定政府可裁減消費者金融保護局員工但不能解散該機構
 
-![特朗普政府推動解散美國消費者金融保護局，引發不滿。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800114_1_20250413021951.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![特朗普政府推動解散美國消費者金融保護局，引發不滿。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800114_1_20250413021951.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 美國上訴法院裁定，總統特朗普政府可以裁減美國消費者金融保護局的員工，但不能解散該機構。
@@ -693,7 +693,7 @@
 
 # 世糧署警告美國新一輪削援或惡化阿富汗饑餓狀況　籲捐助方增支持
 
-![圖為阿富汗民眾去年排隊，等候世界糧食計劃署派發口糧的情況。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800113_1_20250413015048.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=70)
+![圖為阿富汗民眾去年排隊，等候世界糧食計劃署派發口糧的情況。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800113_1_20250413015048.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
 世界糧食計劃署警告，美國新一輪對糧食援助的削減，可能惡化阿富汗本來已十分普遍的饑餓狀況，署方只能支援當地一半貧困人口，而且亦只能提供一半口糧。
@@ -717,7 +717,7 @@
 
 # 厄瓜多爾七省兩市及所有監獄實施為期60日緊急狀態
 
-![厄瓜多爾軍方加強邊境巡邏。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800112_1_20250413013645.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![厄瓜多爾軍方加強邊境巡邏。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800112_1_20250413013645.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 厄瓜多爾總統諾沃亞發布政令，宣布因嚴重內部動蕩，瓜亞斯省、洛斯里奧斯省等七個省，以及首都基多與另一城市，進入60日緊急狀態。
@@ -741,7 +741,7 @@
 
 # 英國會通過緊急法案維持英國鋼鐵運作　分析指收歸國有或不可避免
 
-![英國首相施紀賢會見當地鋼鐵工人。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800111_1_20250413011641.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![英國首相施紀賢會見當地鋼鐵工人。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800111_1_20250413011641.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 英國國會經辯論後通過緊急法案，以維持英國鋼鐵集團的運作。法案已獲御准，代表正式成為法例。分析指將中資控制的英國鋼鐵收歸英國國有，似乎是不可避免的下一步。
@@ -765,7 +765,7 @@
 
 # 美烏礦產協議方案會談據報氣氛對立　取得突破可能性渺茫
 
-![澤連斯基的首要要求是華盛頓向基輔提供安全保障。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800110_1_20250413004341.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![澤連斯基的首要要求是華盛頓向基輔提供安全保障。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800110_1_20250413004341.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 美國與烏克蘭官員就華盛頓提出的兩國之間礦產協議方案，舉行會談。路透社引述知情人士報道，會談氣氛對立，取得突破的可能性渺茫。
@@ -789,7 +789,7 @@
 
 # 大阪世博會今日正式開園　石破茂稱匯聚日本國內外智慧平台
 
-![本屆世博會以「構想煥發生機的未來社會」為主題，共有158個國家和地區、7個國際組織參展。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800109_1_20250413002757.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![本屆世博會以「構想煥發生機的未來社會」為主題，共有158個國家和地區、7個國際組織參展。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800109_1_20250413002757.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 2025年大阪關西世博會今日正式開園，中國館亦於今日舉行開館儀式，正式迎接參觀者。
@@ -813,7 +813,7 @@
 
 # 普京稱火箭及航天工業應成為俄羅斯技術主權及經濟增長火車頭
 
-![普京表示宇宙開發及太空系統應用是全球競爭極為激烈的領域。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800108_1_20250413001952.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![普京表示宇宙開發及太空系統應用是全球競爭極為激烈的領域。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800108_1_20250413001952.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 俄羅斯總統普京表示，火箭及航天工業應該成為國民經濟增長的火車頭之一。
@@ -837,7 +837,7 @@
 
 # 警方昨於機場拘捕兩漢涉毒　檢總市值約320萬元懷疑海洛英
 
-![警方扣留調查涉案人士。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800107_1_20250412235102.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=40)
+![警方扣留調查涉案人士。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800107_1_20250412235102.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
   
 
 警方昨日下午聯同相關部門人員，在香港國際機場進行打擊毒品行動，在入境大堂截查2名男子，並在其中一名內地男子的行李箱內，檢獲約4.5公斤懷疑海洛英，總市值約320萬元。
@@ -861,8 +861,8 @@
 
 # Coldplay完成4場演出約20萬人入場　體育園稱運作暢順
 
-![啟德體育園稱Coldplay演唱會首次在啟德體育園成功完滿舉行。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_1_20250412233056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
-![體育園有信心繼續為香港帶來更多精彩盛事。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_2_20250412233056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=70)
+![啟德體育園稱Coldplay演唱會首次在啟德體育園成功完滿舉行。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_1_20250412233056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![體育園有信心繼續為香港帶來更多精彩盛事。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_2_20250412233056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
   
 
 英國樂隊Coldplay完成在本港的4場演出，啟德體育園表示，共吸引約20萬名來自海外、內地及香港的觀眾入場。
@@ -886,7 +886,7 @@
 
 # 70歲男子胡開成離開梨木道院舍後失蹤　警方呼籲提供消息
 
-![失蹤男子身高約1.65米，體重約72公斤，中等身材。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800105_1_20250412230948.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![失蹤男子身高約1.65米，體重約72公斤，中等身材。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800105_1_20250412230948.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 70歲男子胡開成早上離開位於葵涌梨木道的院舍後失蹤，院舍職員報案，警方呼籲市民提供消息。
@@ -910,7 +910,7 @@
 
 # 美伊首輪核問題間接談判結束　兩國代表團曾短暫交談
 
-![阿拉格齊（圖左）表示，美伊首輪核問題間接談判正面和有建設性。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800103_1_20250412225723.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![阿拉格齊（圖左）表示，美伊首輪核問題間接談判正面和有建設性。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800103_1_20250412225723.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 伊朗外長阿拉格齊表示，伊朗和美國在阿曼首都馬斯喀特舉行的首輪核問題間接談判結束，會談正面、具建設性，下星期會再與美國間接談判。
@@ -934,7 +934,7 @@
 
 # 27歲外籍女子港鐵旺角東站失蹤　警方呼籲提供消息
 
-![失蹤的27歲外籍女子。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800104_1_20250412230322.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![失蹤的27歲外籍女子。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800104_1_20250412230322.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 一名27歲外籍女子Moran Dante Elaine Cipolla 昨日下午離開港鐵旺角東站後失蹤，院舍職員報案，警方呼籲市民提供消息。
@@ -958,7 +958,7 @@
 
 # 新華社：美關稅訛詐不得人心　中方堅定捍衛自身權益
 
-![文章指美國國內及國際社會強烈不滿白宮的關稅手段。圖為受關稅措施影響的加拿大汽車業。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800102_1_20250412232116.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![文章指美國國內及國際社會強烈不滿白宮的關稅手段。圖為受關稅措施影響的加拿大汽車業。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800102_1_20250412232116.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 新華社以「美關稅訛詐不得人心　中方堅定捍衛自身權益」為題發表文章，強調中方反制有理、有利、有節，充分體現了維護國家安全和利益的堅定決心，以及維護以規則為基礎的多邊貿易體制的大國擔當和責任。
@@ -982,8 +982,8 @@
 
 # 啟德體育園演唱會散場人流高峰　運輸署籲觀眾乘搭港鐵
 
-![運輸署提醒觀眾留意場地廣播及「離場易」平台實時資訊。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800101_2_20250412233744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=50)
-![觀眾離場時分別前往港鐵站或巴士站。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800101_3_20250412233744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=65)
+![運輸署提醒觀眾留意場地廣播及「離場易」平台實時資訊。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800101_2_20250412233744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+![觀眾離場時分別前往港鐵站或巴士站。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800101_3_20250412233744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
 運輸署表示，現時為啟德體育園演唱會散場人流高峰時段，宋皇臺道的士上落客區現時輪候人數較多，輪候時間會較長，呼籲觀眾選擇乘搭港鐵離開啟德體育園。
@@ -1007,7 +1007,7 @@
 
 # 戴工作人員手環觀看Coldplay演出　3男子涉串謀詐騙被捕
 
-![警方指，涉案人士當時在觀看演唱會而不是清潔中，於是將他們拘捕。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800100_1_20250412224233.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=30)
+![警方指，涉案人士當時在觀看演唱會而不是清潔中，於是將他們拘捕。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800100_1_20250412224233.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
   
 
 英國著名樂隊Coldplay在啟德體育園啟德主場館舉行最後一晚演唱會。在昨晚的演出，有三名男子戴上工作人員手環觀看演唱會，被警方以涉嫌「串謀詐騙」拘捕，三人獲准保釋，下月12日向牛頭角警署報到。
@@ -1031,7 +1031,7 @@
 
 # 特朗普豁免向智能電話、電腦、晶片等產品徵收對等關稅
 
-![特朗普豁免向智能電話、電腦、晶片等產品徵收對等關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800098_1_20250412214344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![特朗普豁免向智能電話、電腦、晶片等產品徵收對等關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800098_1_20250412214344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 美國總統特朗普簽署備忘錄，豁免向部分產品徵收對等關稅。美國海關和邊境保護局更新指引，公布獲豁免物品清單，包括智能電話、手提電腦、晶片、硬碟、電腦處理器和記憶體、太陽能電池，以及用於製造半導體的機器。豁免適用於本月5日起輸入美國的產品。
@@ -1055,7 +1055,7 @@
 
 # 女子遭輕鐵撞傷送院　港鐵指女事主突然衝出　車長響號並急剎車
 
-![港鐵表示，輕鐵上的行車紀錄儀器拍攝到事發情況，會配合警方調查。（網上圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800097_1_20250412211647.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=45)
+![港鐵表示，輕鐵上的行車紀錄儀器拍攝到事發情況，會配合警方調查。（網上圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800097_1_20250412211647.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
   
 
 屯門輕鐵車廠站附近，傍晚有途人被輕鐵撞倒，輕鐵三條綫服務受阻十數分鐘，之後陸續回復正常，警方表示，女事主擦傷面部及手腳，送院時清醒。
@@ -1079,7 +1079,7 @@
 
 # Coldplay尾場演出場外傘架爆滿　有長傘暫置草叢或石壆
 
-![有長傘被擺放於草叢及石壆位置。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800096_2_20250412211906.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=50)
+![有長傘被擺放於草叢及石壆位置。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800096_2_20250412211906.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
   
 
 英國著名樂隊Coldplay在香港啟德體育園主場館舉行的四場演唱會，今晚上演最後一場。啟德下午一度下大雨，晚上入場時已經停雨，不少觀眾攜帶了不能帶進場的長雨傘，場外的雨傘架放滿長雨傘。
@@ -1103,7 +1103,7 @@
 
 # 美伊正式就核問題展開間接談判
 
-![伊朗外長阿拉格齊（左）向阿曼外交大臣巴德爾（右）闡述伊朗的核心立場。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800095_1_20250412203739.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![伊朗外長阿拉格齊（左）向阿曼外交大臣巴德爾（右）闡述伊朗的核心立場。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800095_1_20250412203739.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 伊朗與美國在阿曼首都馬斯喀特正式就核問題展開間接談判。
@@ -1127,7 +1127,7 @@
 
 # 北京遭大風天氣影響部分交通停運　市內兩大機場共取消逾7百航班
 
-![北京市有樹木被強風吹倒。(路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800094_1_20250412204344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=40)
+![北京市有樹木被強風吹倒。(路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800094_1_20250412204344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
   
 
 一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。今日截至傍晚6時，北京首都機場和大興機場共取消超過700個航班。
@@ -1151,7 +1151,7 @@
 
 # 石破茂稱世界飽受分裂困擾　強調團結重要性
 
-![石破茂出席大阪世博會開幕儀式，強調團結重要性。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800077_1_20250412171559.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![石破茂出席大阪世博會開幕儀式，強調團結重要性。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800077_1_20250412171559.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 日本首相石破茂在大阪世博會開幕儀式上提到，在一個飽受分裂困擾的世界，團結的重要性。他說，世界克服新冠疫情，但現在面臨多方面危機，世博會將為全世界的人提供對話交流的舞台，並向世界展現日本的新面貌。
@@ -1175,7 +1175,7 @@
 
 # 中國駐緬甸大使館：大地震導致8名中國公民死亡
 
-![中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800089_1_20250412184342.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=50)
+![中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800089_1_20250412184342.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
   
 
 新華社報道，中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。
@@ -1199,7 +1199,7 @@
 
 # 重慶300多人因雷暴誘發急性呼吸道疾病
 
-![雷暴哮喘患者在重慶醫科大學附屬第一醫院排隊求醫。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800087_1_20250412182528.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![雷暴哮喘患者在重慶醫科大學附屬第一醫院排隊求醫。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800087_1_20250412182528.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 新華社報道，重慶300多人因雷暴誘發呼吸道疾病急性發作，要到醫院求醫。
@@ -1223,7 +1223,7 @@
 
 # 屯門輕鐵車廠站附近有人遭輕鐵撞倒　一度被困車底及後救出
 
-![屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻。（網上圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800088_2_20250412192251.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=40)
+![屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻。（網上圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800088_2_20250412192251.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
   
 
 屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻，之後陸續恢復。
@@ -1247,7 +1247,7 @@
 
 # 天文台稱冷鋒橫過廣東沿岸　受驟雨及狂風雷暴影響本港風力增強
 
-![天文台科學主任謝鈞澍表示，一道冷鋒正橫過廣東沿岸，與其相關的大驟雨及狂風雷暴正影響該區。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800085_1_20250412184814.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![天文台科學主任謝鈞澍表示，一道冷鋒正橫過廣東沿岸，與其相關的大驟雨及狂風雷暴正影響該區。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800085_1_20250412184814.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 強烈季候風信號現正生效，預料本港吹偏北強風，平均風速每小時超過40公里。
@@ -1271,7 +1271,7 @@
 
 # 內地多處出現極端大風　北京近700航班取消
 
-![北京市面大風，有單車等車輛被強風吹倒。(盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800084_1_20250412184125.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=65)
+![北京市面大風，有單車等車輛被強風吹倒。(盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800084_1_20250412184125.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
 一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。今日截至下午2時，北京兩大機場共取消近700個航班。
@@ -1295,7 +1295,7 @@
 
 # 內地多地極端天氣　中央氣象台發布大風、強對流、沙塵暴等預警
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800082_1_20250412181355.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800082_1_20250412181355.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 內地多處出現惡劣天氣，較強冷空氣繼續影響中國中東部地區，中央氣象台繼續發布大風橙色預警、強對流天氣黃色預警、暴雪黃色預警和沙塵暴藍色預警，其中北京已進入風力最強時段，多個景區關閉，陸空交通受阻，全國有至少3200班航班取消。
@@ -1319,7 +1319,7 @@
 
 # 王毅：美國不能任意妄為　歷史車輪不能倒退
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800080_1_20250412181256.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800080_1_20250412181256.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 中共中央政治局委員、外長王毅周五在北京，會見國際原子能機構總幹事格羅西時指，當前國際局勢動蕩不安，亂象頻出，一個重要原因就是個別大國迷信實力至上、本國優先，大搞單邊霸凌。
@@ -1343,7 +1343,7 @@
 
 # 林定國：國安教育與愛國主義教育好比「孖生兄弟」
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800078_1_20250412181224.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800078_1_20250412181224.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 下周二是「全民國家安全教育日」，保安局轄下8支紀律部隊和輔助部隊由今天起，陸續在不同的周末及假日舉行開放日，讓公眾了解各部隊防範和抵禦國家安全風險所做的工作，提高國家安全意識。
@@ -1367,7 +1367,7 @@
 
 # 周一鳴指詐騙案成「產業鏈」　重點打擊出售傀儡戶口
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800079_1_20250412181156.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800079_1_20250412181156.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 本港去年全年有逾4.4萬宗詐騙案，佔整體罪案約47%。警務處處長周一鳴形容，詐騙案已成為「產業鏈」，破案需要國際間合作，警方亦會重點打擊售賣涉及騙案傀儡戶口的人。
@@ -1391,7 +1391,7 @@
 
 # 特朗普：將與中方在貿易問題上取得正面成果
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800081_1_20250412175911.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800081_1_20250412175911.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 美國總統特朗普說，美國的關稅政策做得非常好，正迅速取得進展，他否認是因為債市波動而暫緩徵收關稅，說現時債券市場運作良好，市場很穩健，相信會與中方在貿易問題上取得正面成果。
@@ -1415,7 +1415,7 @@
 
 # 運輸署籲往返啟德主場館觀眾留意天氣及交通　及早規劃行程
 
-![運輸署提醒觀眾應乘搭港鐵及散場時段提供的特別巴士服務。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800083_1_20250412175131.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![運輸署提醒觀眾應乘搭港鐵及散場時段提供的特別巴士服務。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800083_1_20250412175131.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 運輸署表示，由於天氣不穩定，呼籲往返啟德體育園啟德主場館演唱會的觀眾，應乘搭港鐵及散場時段提供的特別巴士服務，在戶外時應提高警惕，注意安全。由於入場和散場時間可能因實際情況而有變，觀眾特別是過境旅客應預早計劃行程，有需要應及早購票，觀眾應留意場地廣播和「離場易」平台提供的實時資訊。

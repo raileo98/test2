@@ -1,6 +1,6 @@
 # US and Iran to meet again after rare talks
 
-![Iranian Foreign Minister Abbas Araghchi briefly spoke face-to-face with US special envoy Steve Witkoff (pictured). File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800119_1_20250413063740.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![Iranian Foreign Minister Abbas Araghchi briefly spoke face-to-face with US special envoy Steve Witkoff (pictured). File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800119_1_20250413063740.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 The United States wants a nuclear agreement "as soon as possible", Iran said after rare talks on Saturday, as US President Donald Trump threatens military action if they fail to reach a deal.
@@ -24,7 +24,7 @@ The United States wants a nuclear agreement "as soon as possible", Iran said aft
 
 # First US-Iran nuclear talks in years start in Oman
 
-![Iranians walk by anti-US murals on the walls of the former US embassy in Tehran, Iran. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800093_1_20250412200659.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=65)
+![Iranians walk by anti-US murals on the walls of the former US embassy in Tehran, Iran. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800093_1_20250412200659.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
   
 
 The United States and Iran opened high-stakes talks on Tehran's nuclear programme on Saturday, with President Donald Trump threatening military action if they fail to produce a deal.
@@ -48,7 +48,7 @@ The United States and Iran opened high-stakes talks on Tehran's nuclear programm
 
 # At least 69 killed in thunderstorms in India, Nepal
 
-![Dark clouds gather in the sky before a thunderstorm in Nagaon District, Assam, India. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800092_1_20250412200340.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![Dark clouds gather in the sky before a thunderstorm in Nagaon District, Assam, India. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800092_1_20250412200340.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 At least 69 people were killed this week in unusually intense thunderstorms across eastern India's Bihar state and in neighbouring Nepal, officials said on Saturday.
@@ -72,7 +72,7 @@ At least 69 people were killed this week in unusually intense thunderstorms acro
 
 # South Carolina executes second convict by firing squad
 
-![Mikal Mahdi (pictured) was executed for the 2004 murder of 56-year-old James Myers. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800044_1_20250412094035.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![Mikal Mahdi (pictured) was executed for the 2004 murder of 56-year-old James Myers. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800044_1_20250412094035.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 A man facing the death penalty for committing two murders was executed by firing squad on Friday, the second such execution in the US state of South Carolina this year.
@@ -96,7 +96,7 @@ A man facing the death penalty for committing two murders was executed by firing
 
 # Head of Greenland base fired after Vance visit
 
-![Colonel Susannah Meyers was removed after reports she distanced herself from comments made by US Vice President JD Vance. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800020_1_20250412045204.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![Colonel Susannah Meyers was removed after reports she distanced herself from comments made by US Vice President JD Vance. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800020_1_20250412045204.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 The head of the US military base in Greenland, a Danish territory coveted by US President Donald Trump, has been fired for criticising Washington's agenda for the Arctic island.
@@ -120,7 +120,7 @@ The head of the US military base in Greenland, a Danish territory coveted by US 
 
 # Trump takes annual physical exam, says it went well
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800043_1_20250412093003.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800043_1_20250412093003.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 President Donald Trump, who in January became the oldest person to assume the US presidency, underwent his first physical exam of his second term on Friday and said it went well, with results set to be released Sunday.
@@ -144,7 +144,7 @@ President Donald Trump, who in January became the oldest person to assume the US
 
 # Women, children killed in Israeli strikes: UN
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800005_1_20250411221346.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800005_1_20250411221346.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 Dozens of Israeli air strikes on Gaza have killed "only women and children" after a ceasefire collapsed, the UN said, as an Israeli attack in the territory's south on Friday left a family of 10 dead.
@@ -168,7 +168,7 @@ Dozens of Israeli air strikes on Gaza have killed "only women and children" afte
 
 # Two feared trapped in S Korea subway tunnel collapse
 
-![A bird's eye view of the site of the tunnel collapse in Gwangmyeong. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799974_1_20250411182841.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=40)
+![A bird's eye view of the site of the tunnel collapse in Gwangmyeong. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799974_1_20250411182841.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
   
 
 A subway tunnel under construction near Seoul collapsed on Friday, likely leaving two workers trapped at the site, officials said.
@@ -192,7 +192,7 @@ A subway tunnel under construction near Seoul collapsed on Friday, likely leavin
 
 # EU set to mark 50 years of ties with China in July
 
-![French leader Emmanuel Macron and European Commission chief Ursula von der Leyen meet President Xi Jinping at the Elysee Palace in Paris in May 2024. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799970_1_20250411181740.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![French leader Emmanuel Macron and European Commission chief Ursula von der Leyen meet President Xi Jinping at the Elysee Palace in Paris in May 2024. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799970_1_20250411181740.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 Top EU officials and Chinese leaders are due to hold their next summit marking 50 years of ties in China in July, a spokesperson for the European Council said on Friday.
@@ -216,7 +216,7 @@ Top EU officials and Chinese leaders are due to hold their next summit marking 5
 
 # Yoon in emotional exit from official residence
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799965_1_20250411175109.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799965_1_20250411175109.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
 Former South Korean president Yoon Suk-yeol returned to his private home on Friday from the official residence after his removal from office, with crowds of supporters turning out to greet his motorcade.
@@ -240,7 +240,7 @@ Former South Korean president Yoon Suk-yeol returned to his private home on Frid
 
 # Xi urges EU to join in opposing 'unilateral bullying'
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799942_1_20250411155117.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799942_1_20250411155117.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 President Xi Jinping urged the European Union on Friday to join hands with China in resisting "unilateral bullying", in reference to tariffs imposed by US President Donald Trump.
@@ -264,7 +264,7 @@ President Xi Jinping urged the European Union on Friday to join hands with China
 
 # China raises tariffs on US goods to 125pc
 
-![US exporters to China of goods such as soybeans now face 125 percent tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799950_1_20250411162842.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![US exporters to China of goods such as soybeans now face 125 percent tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799950_1_20250411162842.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 China blasted US President Donald Trump's tariffs on Friday as a "numbers game" that "will become a joke", as Beijing raised levies on US imports to 125 percent and said it would go no further.
@@ -288,7 +288,7 @@ China blasted US President Donald Trump's tariffs on Friday as a "numbers game" 
 
 # Trump levy looms larger for senders of small parcels
 
-![People sending small parcels to the US will have to pay US$100 per item from May 2 and US$200 from June 1. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799912_1_20250411115603.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=70)
+![People sending small parcels to the US will have to pay US$100 per item from May 2 and US$200 from June 1. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799912_1_20250411115603.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
 Hong Kong is continuing to see fallout from the trade war started by US President Donald Trump who raised the duty on small goods parcels from the SAR to 120 percent from the 90 percent that he had set just a day before that, and the 30 percent in his opening salvo on April 2.
@@ -312,7 +312,7 @@ Hong Kong is continuing to see fallout from the trade war started by US Presiden
 
 # Xi to visit Vietnam, Malaysia and Cambodia next week
 
-![President Xi Jinping with late Vietnam Communist Party general secretary Nguyen Phu Trong at the presidential palace in Hanoi in December 2023. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799903_1_20250411103929.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=65)
+![President Xi Jinping with late Vietnam Communist Party general secretary Nguyen Phu Trong at the presidential palace in Hanoi in December 2023. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799903_1_20250411103929.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
   
 
 President Xi Jinping will visit Vietnam, Malaysia and Cambodia next week, the Foreign Ministry said on Friday.
@@ -336,7 +336,7 @@ President Xi Jinping will visit Vietnam, Malaysia and Cambodia next week, the Fo
 
 # More than 200 dead as rescue efforts end at nightclub
 
-![Authorities have called off the search for bodies as the death toll stands at 221. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799885_1_20250411091644.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=20)
+![Authorities have called off the search for bodies as the death toll stands at 221. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799885_1_20250411091644.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
   
 
 Recovery efforts wrapped up in the capital of the Dominican Republic after a roof collapse at a nightclub during a concert killed at least 221 people, authorities said on Thursday.
@@ -360,7 +360,7 @@ Recovery efforts wrapped up in the capital of the Dominican Republic after a roo
 
 # Ukraine coalition presses ahead with force planning
 
-![Britain's Defence Secretary John Healey and France's Defence Minister Sebastien Lecornu attend a meeting of the Coalition of the Willing, hosted by the United Kingdom and France at Nato headquarters in Brussels. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799871_1_20250411080308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![Britain's Defence Secretary John Healey and France's Defence Minister Sebastien Lecornu attend a meeting of the Coalition of the Willing, hosted by the United Kingdom and France at Nato headquarters in Brussels. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799871_1_20250411080308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 Britain's defence minister on Thursday urged his counterparts from around 30 countries to press ahead with plans to deploy troops to Ukraine to police any future peace agreement with Russia, as questions remained over whether the United States would provide backup.
@@ -384,7 +384,7 @@ Britain's defence minister on Thursday urged his counterparts from around 30 cou
 
 # Tourists, pilot killed in NY helicopter crash
 
-![The chopper's landing skids were seen protruding from the river beside a tunnel vent. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799865_1_20250411073022.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![The chopper's landing skids were seen protruding from the river beside a tunnel vent. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799865_1_20250411073022.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 Six people, including three children, were killed after a sightseeing helicopter crashed into the Hudson River in New York on Thursday, sparking a major water rescue operation, authorities said.
@@ -408,7 +408,7 @@ Six people, including three children, were killed after a sightseeing helicopter
 
 # Democrats want insider probe over Trump's flip-flop
 
-![Donald Trump is said to have posted a few minutes after Wall Street opened that 'IT'S TIME TO BUY', hours before he announced a 90-day suspension of additional tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799813_1_20250410183656.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![Donald Trump is said to have posted a few minutes after Wall Street opened that 'IT'S TIME TO BUY', hours before he announced a 90-day suspension of additional tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799813_1_20250410183656.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 Several American senators have called for an investigation into whether US President Donald Trump engaged in insider trading or market manipulation by encouraging people to buy stocks just before his dramatic reversal on global tariffs.
@@ -432,7 +432,7 @@ Several American senators have called for an investigation into whether US Presi
 
 # Trump wants to 'make showers great again'
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799755_1_20250410134902.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799755_1_20250410134902.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 US President Donald Trump has signed an executive order lifting water-pressure restrictions on showerheads, a move the White House said would "make America's showers great again".
@@ -456,7 +456,7 @@ US President Donald Trump has signed an executive order lifting water-pressure r
 
 # 'AI surge creates new energy security challenges'
 
-![Data centres' global electricity consumption has increased by 12 percent annually over the past five years. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799751_1_20250410130449.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![Data centres' global electricity consumption has increased by 12 percent annually over the past five years. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799751_1_20250410130449.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 Electricity consumption by data centres will more than double by 2030, driven by artificial intelligence applications that will create new challenges for energy security and CO2 emission goals, the International Energy Agency (IEA) said on Thursday.
@@ -480,7 +480,7 @@ Electricity consumption by data centres will more than double by 2030, driven by
 
 # S Korean opposition leader opens presidential bid
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799740_1_20250410123632.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799740_1_20250410123632.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 South Korean opposition leader Lee Jae-myung, widely seen as the frontrunner in a presidential by-election triggered by the removal of President Yoon Suk Yeol last week, officially announced a presidential bid on Thursday, vowing to heal a starkly divided nation through economic growth.
@@ -504,7 +504,7 @@ South Korean opposition leader Lee Jae-myung, widely seen as the frontrunner in 
 
 # Search ends for survivors of nightclub disaster
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799736_1_20250410120325.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799736_1_20250410120325.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 Dominican Republic rescue workers ended the search for survivors of a nightclub roof collapse as the death toll surpassed 180 in the Caribbean nation's worst disaster in decades.
@@ -528,7 +528,7 @@ Dominican Republic rescue workers ended the search for survivors of a nightclub 
 
 # Far right targets Canada PM as election looms large
 
-![Mark Carney and his wife Diana Fox are targeted because of a photograph showing them with Jeffrey Epstein's convicted accomplice, Ghislaine Maxwell. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799735_1_20250410115043.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![Mark Carney and his wife Diana Fox are targeted because of a photograph showing them with Jeffrey Epstein's convicted accomplice, Ghislaine Maxwell. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799735_1_20250410115043.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 Canadian Prime Minister Mark Carney is leaning into his banking background as his country fights a trade war with the United States, but his financial ties have also made him a target for conspiracy theories.
@@ -552,7 +552,7 @@ Canadian Prime Minister Mark Carney is leaning into his banking background as hi
 
 # Lego opens US$1bn factory in Vietnam
 
-![The new Vietnam factory is the Danish company's sixth worldwide and its second in Asia. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799734_1_20250410114928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![The new Vietnam factory is the Danish company's sixth worldwide and its second in Asia. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799734_1_20250410114928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 Lego has opened a US$1 billion factory in Vietnam that it says will make toys without adding planet-warming gas to the atmosphere by relying entirely on clean energy.
@@ -576,7 +576,7 @@ Lego has opened a US$1 billion factory in Vietnam that it says will make toys wi
 
 # US backtracks on some food aid cuts: UN
 
-![A WFP distribution centre in Chad, one of eight countries where the US is ending emergency funding. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799695_1_20250410080414.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![A WFP distribution centre in Chad, one of eight countries where the US is ending emergency funding. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799695_1_20250410080414.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 The United States has backtracked on emergency food aid cuts it announced for 14 countries, restoring assistance to six of them, the UN's World Food Program said on Wednesday.
@@ -600,7 +600,7 @@ The United States has backtracked on emergency food aid cuts it announced for 14
 
 # Israel says it's seizing 'large areas' of Gaza
 
-![Palestinian rescuers work at the site of an Israeli strike on a residential area in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799691_1_20250410071647.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=35)
+![Palestinian rescuers work at the site of an Israeli strike on a residential area in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799691_1_20250410071647.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
   
 
 Israel said on Wednesday its troops were seizing "large areas" in Gaza and making the Palestinian territory "smaller and more isolated", as an air strike on a residential block killed at least 23 people.
@@ -624,7 +624,7 @@ Israel said on Wednesday its troops were seizing "large areas" in Gaza and makin
 
 # France cuts growth forecast for 2025 on tariff fears
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799688_1_20250410064059.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799688_1_20250410064059.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 The French government has cut its growth forecast for 2025 because of the uncertainty over world trade, the economy minister said on Wednesday just hours after US President Donald Trump paused a massive hike in tariffs.
@@ -648,7 +648,7 @@ The French government has cut its growth forecast for 2025 because of the uncert
 
 # Deaths mount in Dominican Republic nightclub disaster
 
-![Rescue teams working at the Jet Set nightclub a day after the collapse of its roof in Santo Domingo. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799679_1_20250410034524.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=35)
+![Rescue teams working at the Jet Set nightclub a day after the collapse of its roof in Santo Domingo. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799679_1_20250410034524.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
   
 
 Relatives of people trapped under the rubble of a Dominican Republic nightclub that collapsed, killing over 120, waited anxiously for news on Wednesday as hopes of finding their loved ones alive began to fade.
@@ -672,7 +672,7 @@ Relatives of people trapped under the rubble of a Dominican Republic nightclub t
 
 # Trump pauses tariffs for 90 days but hits China harder
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799675_1_20250410021956.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799675_1_20250410021956.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 US President Donald Trump abruptly backed down on Wednesday in his global trade war with a 90-day pause for most countries – but slapped even more levies against China in what has become a full-scale confrontation between the world's two largest economies.
@@ -696,7 +696,7 @@ US President Donald Trump abruptly backed down on Wednesday in his global trade 
 
 # EU greenlights first set of tariffs hitting back at US
 
-![Europe's response to Trump's latest tariffs salvo yet to be announced. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799659_1_20250409220122.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=60)
+![Europe's response to Trump's latest tariffs salvo yet to be announced. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799659_1_20250409220122.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
   
 
 The EU on Wednesday adopted its first measures hitting back at US President Donald Trump's tariffs, targeting more than 20 billion euros of US products including soybeans, motorcycles and beauty products.
@@ -720,7 +720,7 @@ The EU on Wednesday adopted its first measures hitting back at US President Dona
 
 # At least 20 killed in airstrike on southern Gaza
 
-![A mother and her son are left in mourning after an Israeli strike in Khan Younis in southern Gaza. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799632_1_20250409181114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![A mother and her son are left in mourning after an Israeli strike in Khan Younis in southern Gaza. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799632_1_20250409181114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 Gaza's civil defence agency said an Israeli strike on a residential building in the Shujaiya area of Gaza City killed at least 20 people on Wednesday, as the military said they were looking into the attack.
@@ -744,7 +744,7 @@ Gaza's civil defence agency said an Israeli strike on a residential building in 
 
 # Hezbollah 'ready for talks on disarmament'
 
-![Israeli military exhibit seized Hezbollah weapons, without specifying when and where they were confiscated, near the border with Lebanon last year. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799628_1_20250409180051.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![Israeli military exhibit seized Hezbollah weapons, without specifying when and where they were confiscated, near the border with Lebanon last year. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799628_1_20250409180051.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 As calls for Lebanon's Hezbollah to disarm gain momentum, a senior official from the group said it is ready to hold talks with the Lebanese president about its weapons if Israel withdraws from south Lebanon and stops its strikes.
@@ -768,7 +768,7 @@ As calls for Lebanon's Hezbollah to disarm gain momentum, a senior official from
 
 # China 'verifying reports of nationals held in Ukraine'
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799609_1_20250409161617.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799609_1_20250409161617.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 China said on Wednesday it is verifying reports of Chinese nationals being captured in Ukraine.
@@ -792,7 +792,7 @@ China said on Wednesday it is verifying reports of Chinese nationals being captu
 
 # China-US trade ties mutually beneficial: white paper
 
-![The white paper says the world anticipates China-US cooperation to generate more development opportunities. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799602_1_20250409154105.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![The white paper says the world anticipates China-US cooperation to generate more development opportunities. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799602_1_20250409154105.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 China-US economic and trade relations are mutually beneficial and win-win in nature, and cooperation benefits both sides while confrontation harms both, said a white paper released by the State Council Information Office on Wednesday.
@@ -816,7 +816,7 @@ China-US economic and trade relations are mutually beneficial and win-win in nat
 
 # Universal to build first Europe theme park in UK: PM
 
-![Britain's Prime Minister Keir Starmer (right) welcomes President of the Comcast Corporation Mike Cavanagh to Downing Street, London. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799527_1_20250409081130.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![Britain's Prime Minister Keir Starmer (right) welcomes President of the Comcast Corporation Mike Cavanagh to Downing Street, London. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799527_1_20250409081130.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 US media giant Comcast Corp will build its first Universal theme park and resort in Europe in Bedford, north of London, opening in 2031, the British government said on Wednesday.
@@ -840,7 +840,7 @@ US media giant Comcast Corp will build its first Universal theme park and resort
 
 # Trump's sweeping global tariffs take effect
 
-![White House press secretary Karoline Leavitt said President Trump believed China wanted to make a deal over tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799523_1_20250409074554.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![White House press secretary Karoline Leavitt said President Trump believed China wanted to make a deal over tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799523_1_20250409074554.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 US President Donald Trump's "reciprocal" tariffs on dozens of countries took effect on Wednesday, including massive 104 percent duties on Chinese goods, deepening his global trade war even as he prepared for negotiations with some nations.
@@ -864,7 +864,7 @@ US President Donald Trump's "reciprocal" tariffs on dozens of countries took eff
 
 # Trump signs order to 'turbocharge' coal mining in US
 
-![President Trump speaks next to coal industry workers, on the day he signs energy-related executive orders at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799521_1_20250409073316.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![President Trump speaks next to coal industry workers, on the day he signs energy-related executive orders at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799521_1_20250409073316.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 US President Donald Trump on Tuesday signed executive orders to "turbocharge coal mining" in the country, seeking to "more than double" electricity production to keep up with power-hungry artificial intelligence technology.
@@ -888,7 +888,7 @@ US President Donald Trump on Tuesday signed executive orders to "turbocharge coa
 
 # At least 98 dead in Dominican Republic roof collapse
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799520_1_20250409073023.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=60)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799520_1_20250409073023.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
   
 
 Rescuers raced to find survivors on Tuesday among the rubble of a Dominican Republic nightclub where at least 98 people, including a Major League Baseball star, were killed when the roof collapsed.
@@ -912,7 +912,7 @@ Rescuers raced to find survivors on Tuesday among the rubble of a Dominican Repu
 
 # UN chief says Gaza transformed into 'killing field'
 
-![Antonio Guterres also raised the alarm about the situation in the West Bank. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799501_1_20250409013523.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![Antonio Guterres also raised the alarm about the situation in the West Bank. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799501_1_20250409013523.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 United Nations Secretary-General Antonio Guterres said on Tuesday that Gaza had become "a killing field," blaming Israel for blocking aid and failing in its "unequivocal obligations" to meet the needs of the Palestinian territory's residents.
@@ -936,7 +936,7 @@ United Nations Secretary-General Antonio Guterres said on Tuesday that Gaza had 
 
 # Musk slams Trump trade adviser as a 'moron'
 
-![Elon Musk says Peter Navarro "is dumber than a sack of bricks." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799497_1_20250409001640.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![Elon Musk says Peter Navarro "is dumber than a sack of bricks." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799497_1_20250409001640.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 Elon Musk on Tuesday described Peter Navarro, a senior White House trade adviser, as "truly a moron" in a growing rift over Donald Trump's tariff policy.
@@ -960,7 +960,7 @@ Elon Musk on Tuesday described Peter Navarro, a senior White House trade adviser
 
 # Deadly nightclub disaster rocks Dominican Republic
 
-![Rescue staff find a survivor at the Jet Set nightclub in Santo Domingo. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799484_1_20250408221231.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![Rescue staff find a survivor at the Jet Set nightclub in Santo Domingo. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799484_1_20250408221231.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 Rescuers were on Tuesday racing to find survivers among the rubble of a Dominican Republic night club where at least 18 people died and dozens were hurt in an early-morning roof collapse.
@@ -984,7 +984,7 @@ Rescuers were on Tuesday racing to find survivers among the rubble of a Dominica
 
 # Singapore PM says tariffs 'not act of a friend'
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799425_1_20250408152306.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799425_1_20250408152306.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 US President Donald Trump's tariffs on Singapore are "not actions one does to a friend", the city-state's leader said on Tuesday, adding the government will likely downgrade this year's economic growth forecast.
@@ -1008,7 +1008,7 @@ US President Donald Trump's tariffs on Singapore are "not actions one does to a 
 
 # Vance slammed over impolite 'Chinese peasants' remarks
 
-![J D Vance made the offensive remarks in defence of Donald Trump's tariffs move on television. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799420_1_20250408150703.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![J D Vance made the offensive remarks in defence of Donald Trump's tariffs move on television. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799420_1_20250408150703.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 China on Tuesday condemned US Vice President JD Vance as "ignorant and impolite", after he referred to Washington borrowing money from "Chinese peasants".
@@ -1032,7 +1032,7 @@ China on Tuesday condemned US Vice President JD Vance as "ignorant and impolite"
 
 # Kennedy gets teeth into ending US fluoridation
 
-![Robert F Kennedy says a task force of health experts will study the issue of fluoride in water and make new recommendations. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799385_1_20250408113219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![Robert F Kennedy says a task force of health experts will study the issue of fluoride in water and make new recommendations. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799385_1_20250408113219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 US Health Secretary Robert F Kennedy Jr said he plans to tell the Centers for Disease Control and Prevention to stop recommending fluoridation in communities nationwide.
@@ -1056,7 +1056,7 @@ US Health Secretary Robert F Kennedy Jr said he plans to tell the Centers for Di
 
 # World temps near record highs in March: scientists
 
-![The Copernicus Climate Change Service said Europe saw the hottest March ever recorded. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799381_1_20250408111344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=65)
+![The Copernicus Climate Change Service said Europe saw the hottest March ever recorded. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799381_1_20250408111344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
   
 
 Global temperatures hovered at historic highs in March, Europe's climate monitor said on Tuesday, prolonging an extraordinary heat streak that has tested scientific expectations.
@@ -1080,7 +1080,7 @@ Global temperatures hovered at historic highs in March, Europe's climate monitor
 
 # Seoul confirms June 3 date for presidential elections
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799377_1_20250408105202.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799377_1_20250408105202.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 South Korea will hold a presidential election on June 3, the country's acting president said on Tuesday, after Seoul's former leader Yoon Suk-yeol was removed from office over a disastrous declaration of martial law.
@@ -1104,7 +1104,7 @@ South Korea will hold a presidential election on June 3, the country's acting pr
 
 # US aid cuts a 'death sentence' for millions: UN
 
-![The Trump administration has largely gutted USAID, the main US humanitarian assistance organisation. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799361_1_20250408093958.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![The Trump administration has largely gutted USAID, the main US humanitarian assistance organisation. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799361_1_20250408093958.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 The United States has ended emergency food aid for 14 countries, endangering the lives of millions of hungry or starving people, a United Nations agency said.
@@ -1128,7 +1128,7 @@ The United States has ended emergency food aid for 14 countries, endangering the
 
 # Tokyo's Nikkei up 5.8pc as US tariffs fuel volatility
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799360_1_20250408093028.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=50)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799360_1_20250408093028.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
   
 
 Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after plunging 7.8 percent the previous day, as US tariffs fuel market volatility.
@@ -1152,7 +1152,7 @@ Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after p
 
 # Philippines volcano sends ash into the air
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799343_1_20250408083655.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799343_1_20250408083655.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 A volcano in the central Philippines erupted early on Tuesday morning, sending a plume of ash 4,000 metres into the sky and prompting calls for local school cancellations.
@@ -1176,7 +1176,7 @@ A volcano in the central Philippines erupted early on Tuesday morning, sending a
 
 # Trump announces direct nuclear talks with Iran
 
-![US President Donald Trump made the announcement about the Iran talks during a meeting with Israeli Prime Minister Benjamin Netanyahu. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799344_1_20250408083723.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![US President Donald Trump made the announcement about the Iran talks during a meeting with Israeli Prime Minister Benjamin Netanyahu. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799344_1_20250408083723.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 US President Donald Trump said the United States was starting direct, high-level talks with Iran over its nuclear programme on Saturday, in an announcement during a White House meeting with Israeli Prime Minister Benjamin Netanyahu.
@@ -1200,7 +1200,7 @@ US President Donald Trump said the United States was starting direct, high-level
 
 # Supreme Court backs Trump over Alien Enemies Act
 
-![US President Donald Trump has used the law to deport alleged Venezuelan gang members. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799334_1_20250408075344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
+![US President Donald Trump has used the law to deport alleged Venezuelan gang members. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799334_1_20250408075344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
   
 
 The US Supreme Court handed Donald Trump a victory on Monday by letting him use a 1798 law that historically has been employed only in wartime to swiftly deport alleged Venezuelan gang members as part of the Republican president's hardline approach to immigration.
@@ -1224,7 +1224,7 @@ The US Supreme Court handed Donald Trump a victory on Monday by letting him use 
 
 # Trump threatens further 50pc tariffs on China
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799320_1_20250408012952.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799320_1_20250408012952.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 US President Donald Trump on Monday threatened huge additional tariffs on imports from China, raising the possibility of further escalation in a trade war that has already wiped trillions of dollars from global markets.
@@ -1248,7 +1248,7 @@ US President Donald Trump on Monday threatened huge additional tariffs on import
 
 # Britain may close hundreds of quangos to cut costs
 
-![Quangos, or quasi-autonomous non-governmental organizations, will be reviewed with a view to closing or merging them or bringing their functions back into government departments. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799284_1_20250407182022.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=65)
+![Quangos, or quasi-autonomous non-governmental organizations, will be reviewed with a view to closing or merging them or bringing their functions back into government departments. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799284_1_20250407182022.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
   
 
 Britain said it could close hundreds of arms-length government agencies, as it looks to reform the state to cut costs and improve productivity in what it called "a new era of global instability".
@@ -1272,7 +1272,7 @@ Britain said it could close hundreds of arms-length government agencies, as it l
 
 # Trump calls tariffs havoc 'medicine'
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799234_1_20250407131818.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799234_1_20250407131818.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 US President Donald Trump warned foreign governments they would have to pay "a lot of money" to lift sweeping tariffs, characterising the duties as "medicine" and triggering further carnage across global financial markets on Monday.
@@ -1296,7 +1296,7 @@ US President Donald Trump warned foreign governments they would have to pay "a l
 
 # Trial looms for Boeing over 737 MAX crash in Eithiopia
 
-![Two 737 MAX aircraft are assembled at Boeing's plant in Renton, Washington. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799216_1_20250407115025.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=30)
+![Two 737 MAX aircraft are assembled at Boeing's plant in Renton, Washington. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799216_1_20250407115025.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
   
 
 Boeing is poised to face a jury trial from Monday over the fatal 2019 crash of an Ethiopian Airlines 737 MAX plane, the first civil case related to the disaster to reach court.
@@ -1320,7 +1320,7 @@ Boeing is poised to face a jury trial from Monday over the fatal 2019 crash of a
 
 # Sara Duterte back home for electoral fight
 
-![Sara Duterte addresses supporters outside the International Criminal Court in The Hague last month. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799207_1_20250407111536.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![Sara Duterte addresses supporters outside the International Criminal Court in The Hague last month. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799207_1_20250407111536.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 Impeached Philippine Vice President Sara Duterte has returned home after nearly a month at her father's side in The Hague, where he is facing a charge of crimes against humanity, her communications team said Monday.
@@ -1344,7 +1344,7 @@ Impeached Philippine Vice President Sara Duterte has returned home after nearly 
 
 # Seoul to set presidential election for June 3: Yonhap
 
-![People attended a rally to celebrate the expulsion of South Korean President Yoon Suk Yeol in Seoul on Saturday. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799191_1_20250407101114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![People attended a rally to celebrate the expulsion of South Korean President Yoon Suk Yeol in Seoul on Saturday. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799191_1_20250407101114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 South Korea's cabinet is expected to finalise a June 3 date for a presidential election following the removal of Yoon Suk Yeol last week for his short-lived martial law declaration, Yonhap news said on Monday.
@@ -1368,7 +1368,7 @@ South Korea's cabinet is expected to finalise a June 3 date for a presidential e
 
 # Three people die in helicopter crash off Japan
 
-![An ambulance carrying a person rescued from the medical evacuation helicopter accident arrives at Fukuoka Washiro Hospital in Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799178_1_20250407085759.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![An ambulance carrying a person rescued from the medical evacuation helicopter accident arrives at Fukuoka Washiro Hospital in Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799178_1_20250407085759.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 A medical transport helicopter carrying a patient fell into the sea in southwestern Japan Sunday, leaving three of the six people aboard dead, the Japan coast guard said.
@@ -1392,7 +1392,7 @@ A medical transport helicopter carrying a patient fell into the sea in southwest
 
 # Nikkei plunges on Trump tariff concerns
 
-![A display shows the sharp decline in the Nikkei average stock price. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799177_1_20250407084857.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![A display shows the sharp decline in the Nikkei average stock price. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799177_1_20250407084857.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 Japan's Nikkei share index plunged further on Monday, as US futures pointed to additional losses on Wall Street over President Donald Trump's punishing tariffs.
@@ -1416,7 +1416,7 @@ Japan's Nikkei share index plunged further on Monday, as US futures pointed to a
 
 # Second US child dies of measles, almost 650 ill
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799174_1_20250407083943.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799174_1_20250407083943.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 A measles outbreak has killed a second child in the southwestern United States, authorities said on Sunday, with almost 650 people now infected as the highly-contagious disease spreads.
