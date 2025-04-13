@@ -1,3 +1,26 @@
+# 張國鈞稱訂立好國家安全法律如同為國家鎖好門窗
+
+  
+
+律政司副司長張國鈞表示，《基本法》第23條和《香港國安法》在港實施，兩部法律發揮相輔相成的作用，為香港提供「雙重保護盾」，與香港特區其他維護國家安全的法律緊密連接，為香港真正鎖好門窗。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800158-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800158-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800158-20250413.htm)
+
+---
+
 # 韋志成：市建局將為龍崗道兩旁商舖度身訂造具特色店面設計
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm)
-
----
-
-# 天文台稱冷鋒橫過廣東沿岸　受驟雨及狂風雷暴影響本港風力增強
-
-![天文台科學主任謝鈞澍表示，一道冷鋒正橫過廣東沿岸，與其相關的大驟雨及狂風雷暴正影響該區。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800085_1_20250412184814.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-強烈季候風信號現正生效，預料本港吹偏北強風，平均風速每小時超過40公里。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm)
 
 ---

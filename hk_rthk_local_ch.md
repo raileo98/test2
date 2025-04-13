@@ -1,3 +1,26 @@
+# 張國鈞稱訂立好國家安全法律如同為國家鎖好門窗
+
+  
+
+律政司副司長張國鈞表示，《基本法》第23條和《香港國安法》在港實施，兩部法律發揮相輔相成的作用，為香港提供「雙重保護盾」，與香港特區其他維護國家安全的法律緊密連接，為香港真正鎖好門窗。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800158-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800158-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800158-20250413.htm)
+
+---
+
 # 韋志成：市建局將為龍崗道兩旁商舖度身訂造具特色店面設計
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799989-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799989-20250411.htm)
-
----
-
-# 特區政府對范禮全請辭表示遺憾　稱不會削弱本港司法制度基礎
-
-![特區政府對范禮全請辭表示遺憾，並感謝范禮全過去多年的貢獻。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799986_1_20250411191605.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-終審法院非常任法官范禮全請辭。特區政府表示遺憾，並感謝范禮全過去多年的貢獻，又指個別法官的去留不會削弱香港司法制度的基礎，亦無損特區政府堅持維護法治的決心。特區政府會全力支持司法機構日後繼續致力委任和保留外籍非常任法官的工作，並竭盡所能善用普通法制度，堅定維護香港法治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799986-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799986-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799986-20250411.htm)
 
 ---
