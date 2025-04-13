@@ -1,3 +1,26 @@
+# 羽毛球混雙組合鄧俊文和謝影雪在亞洲錦標賽奪冠
+
+  
+
+香港羽毛球混雙組合鄧俊文和謝影雪於亞洲錦標賽奪得冠軍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800155-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800155-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800155-20250413.htm)
+
+---
+
 # 英超曼城5:2水晶宮　阿仙奴1:1賓福特　森林0:1愛華頓
 
 ![迪布尼（中）為今場曼城反勝功臣。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800124_1_20250413083925.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1429,29 +1452,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm)
-
----
-
-# 七欖開鑼鄧竟成稱早上安排順暢　羅淑佩料稍後有更多人入場
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797833_1_20250328130217.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-一連3日的香港國際七人欖球賽在啟德主場館舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm)
 
 ---

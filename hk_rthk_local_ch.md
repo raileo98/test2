@@ -1,3 +1,26 @@
+# 羽毛球混雙組合鄧俊文和謝影雪在亞洲錦標賽奪冠
+
+  
+
+香港羽毛球混雙組合鄧俊文和謝影雪於亞洲錦標賽奪得冠軍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800155-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800155-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800155-20250413.htm)
+
+---
+
 # 周一鳴：截至上月底安裝閉路電視成功協助偵破兇殺等200多宗案
 
 ![周一鳴重申《維護國家安全條例》和《香港國安法》均為社會帶來保障，亦只有極少數人士受影響。(郭志強攝)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800151_1_20250413152318.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799985-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799985-20250411.htm)
-
----
-
-# 議員關注口岸體溫檢測所涉資源　衞生署稱口岸健康篩查非常重要
-
-![衞生署表示，要預防傳染病進入香港，在口岸做健康篩查非常重要。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799982_1_20250411191926.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-多名立法會議員在財委會特別會議上，關注衞生署在各口岸為抵港人士做體溫檢測，牽涉不少資源，但成效不高，促請政府善用科技，並縮減人手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799982-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799982-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799982-20250411.htm)
 
 ---
