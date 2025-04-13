@@ -1,5 +1,29 @@
+# 工聯會：將舉辦五一系列活動　包括邀請官員與前線勞工交流
+
+  
+
+工聯會表示，今年「五一」勞動節將舉辦一系列活動，包括「探訪工友大行動」，邀請特區政府官員深入各行各業，與前線勞工交流，實地了解工作環境與需求；亦會舉辦酒會，邀請各界人士參與，加強交流互動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800163-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800163-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800163-20250413.htm)
+
+---
+
 # 北方沙塵抵粵　廣州深圳等地罕見遭遇沙塵天氣
 
+![北方沙塵抵粵　廣州深圳等地罕見遭遇沙塵天氣](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800162_1_20250413164454.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 來自北方的沙塵今日到達廣東，廣州、深圳等地罕見遭遇沙塵天氣。
@@ -46,6 +70,7 @@
 
 # 屯門男子行山暈倒　昏迷送院不治
 
+![行山男子被送往東區醫院治理，其後不治。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800159_1_20250413164602.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 屯門有行山人士昏迷，送院不治。
@@ -69,6 +94,7 @@
 
 # 張國鈞稱訂立好國家安全法律如同為國家鎖好門窗
 
+![張國鈞說，《基本法》23條和《香港國安法》發揮相輔相成作用，為香港提供「雙重保護盾」。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800158_1_20250413164526.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
   
 
 律政司副司長張國鈞表示，《基本法》第23條和《香港國安法》在港實施，兩部法律發揮相輔相成的作用，為香港提供「雙重保護盾」，與香港特區其他維護國家安全的法律緊密連接，為香港真正鎖好門窗。
@@ -92,6 +118,7 @@
 
 # 韋志成：市建局將為龍崗道兩旁商舖度身訂造具特色店面設計
 
+![市建局計劃利用AR技術，重現飛機在九龍城一帶低飛的歷史場景。 （市建局設計構想圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800157_1_20250413164428.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 市建局行政總監韋志成表示，未來的一年，市建局推展九龍城區的更新項目之餘，更會投放資源，彰顯「龍城」區的獨特個性，為商戶創造更多機遇。
@@ -115,6 +142,7 @@
 
 # 羽毛球混雙組合鄧俊文和謝影雪在亞洲錦標賽奪冠
 
+![香港羽毛球混雙組合鄧俊文和謝影雪於亞洲錦標賽奪得冠軍。（BWF世界羽聯微博圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800155_1_20250413164336.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 香港羽毛球混雙組合鄧俊文和謝影雪於亞洲錦標賽奪得冠軍。
@@ -1407,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800094-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800094-20250412.htm)
-
----
-
-# 石破茂稱世界飽受分裂困擾　強調團結重要性
-
-![石破茂出席大阪世博會開幕儀式，強調團結重要性。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800077_1_20250412171559.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-日本首相石破茂在大阪世博會開幕儀式上提到，在一個飽受分裂困擾的世界，團結的重要性。他說，世界克服新冠疫情，但現在面臨多方面危機，世博會將為全世界的人提供對話交流的舞台，並向世界展現日本的新面貌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800077-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800077-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800077-20250412.htm)
 
 ---

@@ -1,5 +1,6 @@
 # 羽毛球混雙組合鄧俊文和謝影雪在亞洲錦標賽奪冠
 
+![香港羽毛球混雙組合鄧俊文和謝影雪於亞洲錦標賽奪得冠軍。（BWF世界羽聯微博圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800155_1_20250413164336.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 香港羽毛球混雙組合鄧俊文和謝影雪於亞洲錦標賽奪得冠軍。
