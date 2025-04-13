@@ -24,6 +24,7 @@
 
 # 山西省省長金湘軍涉嫌嚴重違紀違法被查
 
+![金湘軍涉嫌嚴重違紀違法被查。（中央紀委國家監委網站圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800176_1_20250413190902.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 中紀委國監委公布，山西省委副書記、省長金湘軍涉嫌嚴重違紀違法被查。有內地傳媒報道，金湘軍在上星期四主持召開會議後被帶走。
