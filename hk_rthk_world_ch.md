@@ -1,3 +1,26 @@
+# 美當局指日前紐約墜河直升機上設備均無記錄有助於調查信息
+
+  
+
+美國國家運輸安全委員會表示，日前在紐約市哈德遜河墜毀的直升機，缺少飛行記錄儀，機上任何設備都無記錄有助於調查的信息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800205-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800205-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800205-20250414.htm)
+
+---
+
 # 莫斯科指責烏克蘭兩度襲擊俄方能源設施　違反俄美之間協議
 
   
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799995-20250411.htm)
-
----
-
-# 劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰
-
-![劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799992_1_20250411213700.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-中共中央總書記、國家主席習近平在北京與西班牙首相桑切斯會面時，首次就近日的關稅議題發聲，強調「打關稅戰」沒有贏家，同世界作對將孤立自己，重申中方不畏懼任何無理打壓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm)
 
 ---

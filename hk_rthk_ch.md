@@ -1,3 +1,26 @@
+# 美當局指日前紐約墜河直升機上設備均無記錄有助於調查信息
+
+  
+
+美國國家運輸安全委員會表示，日前在紐約市哈德遜河墜毀的直升機，缺少飛行記錄儀，機上任何設備都無記錄有助於調查的信息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800205-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800205-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800205-20250414.htm)
+
+---
+
 # 莫斯科指責烏克蘭兩度襲擊俄方能源設施　違反俄美之間協議
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm)
-
----
-
-# 陳國基：消防處在維護國家安全方面擔當舉足輕重角色
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800136_2_20250413125046.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-消防處響應「全民國家安全教育日」，在將軍澳消防及救護學院舉行開放日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm)
 
 ---
