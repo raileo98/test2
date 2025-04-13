@@ -1,3 +1,27 @@
+# Trump's doctor says US president in 'excellent health'
+
+![Donald Trump told reporters on Friday he felt "in very good shape." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800196_1_20250413230158.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Donald Trump is in "excellent health," a White House doctor's assessment said on Sunday, after he underwent his first annual medical checkup since returning to the US presidency.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800196-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800196-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800196-20250413.htm)
+
+---
+
 # Russian strike on Ukraine's Sumy kills at least 32
 
 ![Sumy has come under increasing attack in recent weeks. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800187_1_20250413195631.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
@@ -1411,29 +1435,5 @@ A medical transport helicopter carrying a patient fell into the sea in southwest
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799178-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799178-20250407.htm)
-
----
-
-# Nikkei plunges on Trump tariff concerns
-
-![A display shows the sharp decline in the Nikkei average stock price. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799177_1_20250407084857.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Japan's Nikkei share index plunged further on Monday, as US futures pointed to additional losses on Wall Street over President Donald Trump's punishing tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm)
 
 ---

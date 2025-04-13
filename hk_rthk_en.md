@@ -1,3 +1,27 @@
+# Trump's doctor says US president in 'excellent health'
+
+![Donald Trump told reporters on Friday he felt "in very good shape." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800196_1_20250413230158.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Donald Trump is in "excellent health," a White House doctor's assessment said on Sunday, after he underwent his first annual medical checkup since returning to the US presidency.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800196-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800196-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800196-20250413.htm)
+
+---
+
 # Alcaraz sees off Musetti to win Monte Carlo Masters
 
 ![Carlos Alcaraz had to come from behind to beat Lorenzo Musetti. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800189_1_20250413204452.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
@@ -1412,29 +1436,5 @@ US President Donald Trump claimed victory over Europe in the US tariffs war but 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799867-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799867-20250411.htm)
-
----
-
-# Tourists, pilot killed in NY helicopter crash
-
-![The chopper's landing skids were seen protruding from the river beside a tunnel vent. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799865_1_20250411073022.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Six people, including three children, were killed after a sightseeing helicopter crashed into the Hudson River in New York on Thursday, sparking a major water rescue operation, authorities said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799865-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799865-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799865-20250411.htm)
 
 ---
