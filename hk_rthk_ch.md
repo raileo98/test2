@@ -1,3 +1,27 @@
+# 習近平明起出訪東南亞三國　三地冀推動中國與三國關係邁上新台階
+
+![習近平明天起對越南、馬來西亞及柬埔寨三國展開國事訪問。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800154_1_20250413153524.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+國家主席習近平明天起，對越南、馬來西亞及柬埔寨三國展開國事訪問。央視新聞報道，三國各界人士期待習近平此行推動中國與三國關係邁上新台階，為周邊命運共同體建設注入新動能。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800154-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800154-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800154-20250413.htm)
+
+---
+
 # 2025年日本大阪世博會中國館開館　展品包括月球土壤樣本
 
 ![日本大阪世博會中國館外觀。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800153_1_20250413150031.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -264,7 +288,7 @@
 
 # 孫東：面對更複雜形勢　本港要堅持自由開放聯通全球
 
-![孫東表示，創科營商周可向世界展示香港改革開放、充滿創新的機遇。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800140_1_20250413123420.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800140_1_20250413123420.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 國際創科營商周開幕，創新科技及工業局局長孫東表示，創科營商周可向世界展示香港改革開放、充滿創新的機遇，現時面對更複雜形勢，尤其貿易戰及關稅戰，本港要堅持成功精髓，即是自由開放，聯通全球，以及協同創新，只要堅持走下去，就可把道路愈走愈寬、愈走愈廣。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800082-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800082-20250412.htm)
-
----
-
-# 王毅：美國不能任意妄為　歷史車輪不能倒退
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800080_1_20250412181256.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-中共中央政治局委員、外長王毅周五在北京，會見國際原子能機構總幹事格羅西時指，當前國際局勢動蕩不安，亂象頻出，一個重要原因就是個別大國迷信實力至上、本國優先，大搞單邊霸凌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm)
 
 ---

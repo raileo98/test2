@@ -1,3 +1,27 @@
+# 習近平明起出訪東南亞三國　三地冀推動中國與三國關係邁上新台階
+
+![習近平明天起對越南、馬來西亞及柬埔寨三國展開國事訪問。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800154_1_20250413153524.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+國家主席習近平明天起，對越南、馬來西亞及柬埔寨三國展開國事訪問。央視新聞報道，三國各界人士期待習近平此行推動中國與三國關係邁上新台階，為周邊命運共同體建設注入新動能。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800154-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800154-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800154-20250413.htm)
+
+---
+
 # 2025年日本大阪世博會中國館開館　展品包括月球土壤樣本
 
 ![日本大阪世博會中國館外觀。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800153_1_20250413150031.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799805-20250410.htm)
-
----
-
-# 外交部斥美方大肆利用關稅對全球威脅訛詐
-
-![林劍說，美方大肆利用關稅對全球威脅訛詐，是在試圖扼住各國的喉嚨，逼使各國在美方的霸凌面前做出妥協退讓。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799798_1_20250410171631.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-在北京，外交部發言人林劍回應美國財長貝森特指，西班牙和中國走得更近，無異於割自己喉嚨的言論時表示，美方大肆利用關稅對全球威脅訛詐，才是在試圖扼住各國的喉嚨，逼使各國在美方的霸凌面前做出妥協退讓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799798-20250410.htm)
 
 ---
