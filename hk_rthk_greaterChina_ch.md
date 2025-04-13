@@ -1,5 +1,6 @@
 # 2025年日本大阪世博會中國館開館　展品包括月球土壤樣本
 
+![日本大阪世博會中國館外觀。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800153_1_20250413150031.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
   
 
 2025年日本大阪世博會今日正式開幕，中國館舉行開館儀式，首次在全球零距離對比展示由中國嫦娥五號、嫦娥六號探測器採集的月球正面和背面土壤樣本，展出「蛟龍號」深潛體驗艙、全新一代人形機器人等展項。
