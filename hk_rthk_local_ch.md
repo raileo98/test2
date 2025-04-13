@@ -1,3 +1,50 @@
+# 許正宇：本港金融系統久經歷練　有信心香港可立於不敗之地
+
+  
+
+財經事務及庫務局局長許正宇表示，美國實施關稅政策，對全球經濟百害而無一利，但香港股票市場穩健，交易結算有序，反映即使宏觀環境複雜，最重要是「人亂我不亂」。他認為，本港金融系統久經歷練，監管系統能夠抵禦和察覺風險，整體市場運作有序，現時需持續鞏固本港市場的安全、穩定和可預見性，有信心香港可立於不敗之地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800127-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800127-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800127-20250413.htm)
+
+---
+
+# 環保署料部份監測站空氣質素健康指數健康風險達嚴重水平
+
+![環保署表示會繼續留意空氣質素變化，並適時發布最新情況。（郭志強攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800126_2_20250413093111.jpg&q=90)
+  
+
+環保署預測今日稍後時間，部分空氣質素監測站的空氣質素健康指數健康風險級別會達至「嚴重」水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800126-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800126-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800126-20250413.htm)
+
+---
+
 # 珠江客運中港城往廣州南沙及中山港航班上午8時停航　受天氣影響
 
 ![珠江客運中港城往廣州南沙及中山港航班上午8時停航　受天氣影響](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800120_1_20250413071211.jpg&q=90)
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799954-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799954-20250411.htm)
-
----
-
-# 涉隱瞞債務及向受查人與報案人借貸及索賄　前警員被加控30控罪
-
-![被告獲准保釋，本月29日在區域法院答辯。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799953_1_20250411165519.jpg&q=80)
-  
-
-一名前警員涉嫌未經許可向受查人借貸，早前被廉署落案起訴，被告今日在東區裁判法院應訊，再被加控30項貪污及詐騙罪名，他獲准保釋，本月29日在區域法院答辯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799953-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799953-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799953-20250411.htm)
-
----
-
-# 5個水浸風險較高路段試行設置監測器　提示車輛勿駛入
-
-![試點路段行車道旁設有標誌牌。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799945_1_20250411165217.jpg&q=60)
-  
-
-政府將於5個水浸風險較高的低窪行車路段，推行涉水綫系統試驗計劃，以應對極端天氣下暴雨引致低窪行車路段水浸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799945-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799945-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799945-20250411.htm)
 
 ---

@@ -1,5 +1,125 @@
+# 許正宇：本港金融系統久經歷練　有信心香港可立於不敗之地
+
+  
+
+財經事務及庫務局局長許正宇表示，美國實施關稅政策，對全球經濟百害而無一利，但香港股票市場穩健，交易結算有序，反映即使宏觀環境複雜，最重要是「人亂我不亂」。他認為，本港金融系統久經歷練，監管系統能夠抵禦和察覺風險，整體市場運作有序，現時需持續鞏固本港市場的安全、穩定和可預見性，有信心香港可立於不敗之地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800127-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800127-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800127-20250413.htm)
+
+---
+
+# 環保署料部份監測站空氣質素健康指數健康風險達嚴重水平
+
+![環保署表示會繼續留意空氣質素變化，並適時發布最新情況。（郭志強攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800126_2_20250413093111.jpg&q=90)
+  
+
+環保署預測今日稍後時間，部分空氣質素監測站的空氣質素健康指數健康風險級別會達至「嚴重」水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800126-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800126-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800126-20250413.htm)
+
+---
+
+# 剛果民主共和國譴責反政府武裝M23運動襲擊平民造成至少52死
+
+![聲明譴責反政府武裝M23運動，在戈馬市對平民發動襲擊。圖為M23運動成員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800125_1_20250413093346.jpg&q=40)
+  
+
+剛果民主共和國發表聲明，強烈譴責反政府武裝M23運動，在東部北基伍省首府戈馬市對平民發動襲擊，造成至少52人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800125-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800125-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800125-20250413.htm)
+
+---
+
+# 英超曼城5:2水晶宮　阿仙奴1:1賓福特　森林0:1愛華頓
+
+![迪布尼（中）為今場曼城反勝功臣。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800124_1_20250413083925.jpg&q=80)
+  
+
+英格蘭超級足球聯賽，曼城以5:2反勝水晶宮。阿仙奴就被賓福特逼和1:1，諾定咸森林就以0:1不敵愛華頓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800124-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800124-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800124-20250413.htm)
+
+---
+
+# 美國將手機等產品排除對等關稅外　新華社文章強調貿易戰無贏家
+
+![分析指蘋果（圖）、英偉達及微軟等科技巨頭可以暫時鬆一口氣。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800123_1_20250413073234.jpg&q=90)
+  
+
+美國政府將智能手機、電腦、晶片等產品，排除在所謂的對等關稅之外，措施適用於本月5日以後進入美國的電子產品，已經支付的對等關稅可以尋求退款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800123-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800123-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800123-20250413.htm)
+
+---
+
 # 以色列指以軍攻勢很快擴至加沙大部分地區　形容結束戰爭最後時刻
 
+![以軍指已於加沙南部完成將拉法（圖）與加沙其他地區隔開的「莫拉格走廊」建設，完全包圍拉法地區。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800121_1_20250413073028.jpg&q=90)
   
 
 以色列國防部長卡茨發表聲明說，以軍攻勢將很快擴展到加沙地帶大部分地區。
@@ -1317,125 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm)
-
----
-
-# 配合潑水節活動　九龍城一帶明日下午將實施特別交通安排
-
-![運輸署提醒，警方將視乎環境、交通及人群情況，實施及調整封路及交通管制。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800053_1_20250412113849.jpg&q=90)
-  
-
-九龍城區昨日起至明天一連3日舉辦潑水節相關活動，運輸署發出公告，為配合公眾巡遊活動，該區在星期日下午3時至下午5時30分，將會實施特別交通安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800053-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800053-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800053-20250412.htm)
-
----
-
-# 周一鳴：積極推動「智慧警政」　在市區或郊區試行無人機高空巡邏
-
-![警察無人機隊員接受實務測試。（警務處網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800051_1_20250412110124.jpg&q=30)
-  
-
-警務處處長周一鳴表示，將積極推動「智慧警政」，利用科技、簡化流程等，做到事半功倍的效果，指會推動無人機高空巡邏試驗計劃，在市區或郊區試行。他又表示，會利用大數據，找出較多交通、治安等問題的區域，再靈活調配人手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800051-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800051-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800051-20250412.htm)
-
----
-
-# 完成再入主白宮後首次體檢　特朗普稱自己狀態非常好
-
-![特朗普在專機上表示，已完成體檢，自己的狀態非常好。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800050_1_20250412102349.jpg&q=90)
-  
-
-美國總統特朗普在馬里蘭州一個陸軍醫療中心完成再度入主白宮以來的首次年度體檢，形容自己的狀態非常好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800050-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800050-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800050-20250412.htm)
-
----
-
-# 天文台：驟雨及強烈狂風雷暴下午至黃昏影響珠江口一帶
-
-![天文台：驟雨及強烈狂風雷暴下午至黃昏影響珠江口一帶](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800049_1_20250412100733.jpg&q=90)
-  
-
-天文台發出特別天氣提示，位於廣東北部的一道冷鋒正逐漸向南移動，預料與其相關的驟雨及強烈狂風雷暴會在今日下午至黃昏影響珠江口一帶，部分地區雨勢較大，亦有猛烈陣風。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800049-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800049-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800049-20250412.htm)
-
----
-
-# 北京大風早上10時進入最強時段　部分交通停駛公園關閉
-
-![全國大風預報圖。（央視新聞）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800048_1_20250412101330.jpg&q=75)
-  
-
-內地中央氣象台發布強對流天氣、大風、暴雪、暴雨和沙塵暴預警。預計強對流主要影響時段是早上至中午。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800048-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800048-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800048-20250412.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 英超曼城5:2水晶宮　阿仙奴1:1賓福特　森林0:1愛華頓
+
+![迪布尼（中）為今場曼城反勝功臣。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800124_1_20250413083925.jpg&q=80)
+  
+
+英格蘭超級足球聯賽，曼城以5:2反勝水晶宮。阿仙奴就被賓福特逼和1:1，諾定咸森林就以0:1不敵愛華頓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800124-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800124-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800124-20250413.htm)
+
+---
+
 # 沙拿與利物浦續約兩年
 
 ![沙拿與紅軍續約兩年。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800032_1_20250412070716.jpg&q=90)
@@ -1429,34 +1453,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm)
-
----
-
-# 七欖開鑼現場氣氛熱烈　有球迷形容啟德場地宏偉漂亮如外國球場
-
-![香港國際七人欖球賽首次在啟德主場館舉行。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797821_1_20250328113218.jpg&q=25)
-![部分人身穿球衣、手持所屬國家國旗和打氣棒，為球員打氣。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797821_2_20250328114336.jpg&q=25)
-![首場賽事10時半上演，大約過千名本地和海外人士入場。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797821_3_20250328114336.jpg&q=20)
-![有市民表示，啟德場地宏偉和漂亮，有如外國的球場。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797821_4_20250328114336.jpg&q=60)
-  
-
-一連3日的香港國際七人欖球賽，首次在啟德主場館舉行。
-  
-![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1797821_2_L_20250328114336.jpg)
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797821-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797821-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797821-20250328.htm)
 
 ---

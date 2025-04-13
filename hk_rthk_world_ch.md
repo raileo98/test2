@@ -1,5 +1,54 @@
+# 剛果民主共和國譴責反政府武裝M23運動襲擊平民造成至少52死
+
+![聲明譴責反政府武裝M23運動，在戈馬市對平民發動襲擊。圖為M23運動成員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800125_1_20250413093346.jpg&q=40)
+  
+
+剛果民主共和國發表聲明，強烈譴責反政府武裝M23運動，在東部北基伍省首府戈馬市對平民發動襲擊，造成至少52人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800125-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800125-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800125-20250413.htm)
+
+---
+
+# 美國將手機等產品排除對等關稅外　新華社文章強調貿易戰無贏家
+
+![分析指蘋果（圖）、英偉達及微軟等科技巨頭可以暫時鬆一口氣。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800123_1_20250413073234.jpg&q=90)
+  
+
+美國政府將智能手機、電腦、晶片等產品，排除在所謂的對等關稅之外，措施適用於本月5日以後進入美國的電子產品，已經支付的對等關稅可以尋求退款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800123-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800123-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800123-20250413.htm)
+
+---
+
 # 以色列指以軍攻勢很快擴至加沙大部分地區　形容結束戰爭最後時刻
 
+![以軍指已於加沙南部完成將拉法（圖）與加沙其他地區隔開的「莫拉格走廊」建設，完全包圍拉法地區。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800121_1_20250413073028.jpg&q=90)
   
 
 以色列國防部長卡茨發表聲明說，以軍攻勢將很快擴展到加沙地帶大部分地區。
@@ -1386,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799889-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799889-20250411.htm)
-
----
-
-# 首辦世界互聯網大會亞太峰會　黃志光稱香港能展示創科實力
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799879_2_20250411090859.jpg&q=90)
-  
-
-世界互聯網大會亞太峰會下周一起，一連兩日在香港會展舉行，以「數智融合引領未來——攜手構建網絡空間命運共同體」為主題，由香港特區承辦。屆時有主論壇暨數智未來論壇，亦設有以人工智能大模型、數字金融、數字政府與智慧為題的分論壇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm)
-
----
-
-# 巴拿馬要求美方就聯合聲明英文版本補充關鍵主權表述
-
-![巴拿馬總統穆利諾訪問秘魯時表示，巴拿馬運河過去、現在和未來都永遠屬於巴拿馬。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799875_1_20250411082025.jpg&q=75)
-  
-
-巴拿馬外交部致函美國駐巴拿馬大使館，對近日兩國聯合聲明的美方英文版本中，遺漏關鍵主權表述表達關切，要求美方盡快補充。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799875-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799875-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799875-20250411.htm)
 
 ---
