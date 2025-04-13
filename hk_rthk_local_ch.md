@@ -1,3 +1,96 @@
+# 陳茂波指示證監會準備　倘海外上市中概股回流香港須成首選上市地
+
+  
+
+財政司司長陳茂波表示，港股經過上周一跌勢後大致穩定，市場整體繼續暢順有序運作，認為香港在當前環球市場前景不明朗情況下，顯得更加穩定和具吸引力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm)
+
+---
+
+# 郭毅可料7月推聊天機械人供市民使用　並連接「智方便」系統
+
+  
+
+「InnoHK香港生成式人工智能研發中心」正研發港產大語言模型。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm)
+
+---
+
+# 陳茂波：本港要保持開放　黃偉綸：推動成低空經濟全球領導者
+
+  
+
+創新科技及工業局舉辦的「國際創科營商周」開幕。財政司司長陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位，自由貿易政策不變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm)
+
+---
+
+# 陳茂波：加速吸引境外資金人才來港　迎中概股回流
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800172_1_20250413182154.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+財政司司長陳茂波表示，面對貿易戰等影響，本港會維持開放，自由港地位及自由貿易政策亦不變，並將加速吸引境外資金、人才及企業來港發展，他已指示證監會和港交所做好準備，若在海外上市中概股希望回流，必須讓香港成為他們首選上市地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800172-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800172-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800172-20250413.htm)
+
+---
+
 # 警務處舉辦全民國家安全教育日暨警隊博物館開放日
 
 ![警務處今日舉辦「全民國家安全教育日暨警隊博物館開放日」。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800175_1_20250413180742.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -1343,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800049-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800049-20250412.htm)
-
----
-
-# 周一鳴稱須居安思危提升市民國安意識　社會存暗湧以另類手法煽動
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800046_1_20250412095452.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-警務處處長周一鳴表示，國安法實施5年，整體社會平穩、安居樂業，但不代表完全沒有暗湧，不用理會國家安全，認為必須要居安思危，同時希望提升市民對國家安全的意識。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800046-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800046-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800046-20250412.htm)
-
----
-
-# 發展商多關注片區基建設施時間表　甯漢豪有信心試點能成功招標
-
-![甯漢豪表示，正就收回的片區開發意向書進行詳細分析。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800045_1_20250412095333.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-發展局就位於洪水橋/厦村新發展區、粉嶺北新發展區及新田科技城的三個「片區開發」試點，邀請市場提交意向書，早前共收到22份。發展局局長甯漢豪表示，正就意向書進行詳細分析，初步看有不少意向書提出，希望政府可盡快公布日後在片區內外進行基建設施的時間表。另外亦有發展商關注，若日後片區內的設施無法如期「交貨」，政府會否訂立巨額罰則等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800045-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800045-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800045-20250412.htm)
-
----
-
-# 甯漢豪冀放寬精簡申請　助商場用好室內及戶外空間帶旺經濟
-
-![甯漢豪希望透過為申請程序拆牆鬆綁，助商場用好公共空間帶旺經濟。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800041_1_20250412095145.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-發展局推出試行計劃，放寛商場或其他商業項目的室內和戶外公共空間在地契下限制，精簡相關審批程序，為期兩年。發展局局長甯漢豪表示，今次拆牆鬆綁是希望可以用好商場的公共空間，在不阻街的情況下，帶旺經濟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800041-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800041-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800041-20250412.htm)
-
----
-
-# 周一鳴：騙案已形成產業鏈　要靠國際間合作破案
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800040_1_20250412090440.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-警務處處長周一鳴表示，騙案已形成產業鏈，破案的難處在於騙徒及詐騙集團未必在香港，難以容易即時破案，需要靠國際間的合作，例如與國際刑警協調。他又表示，很多發生在本港的騙案，均涉及傀儡戶口，所以將會重點打擊售賣戶口的人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800040-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800040-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800040-20250412.htm)
 
 ---

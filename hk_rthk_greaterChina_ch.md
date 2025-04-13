@@ -1,3 +1,27 @@
+# 韓正出席消博會啟動儀式　商務部：擴大內需為任務之首
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800171_1_20250413181851.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+國家副主席韓正到海南省出席第五屆中國國際消費品博覽會活動啟動儀式。商務部指，全方位擴大國內需求是今年各項工作重點任務之首，亦會打造國際友好消費環境、擴大開放政策紅利。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800171-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800171-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800171-20250413.htm)
+
+---
+
 # 山西省省長金湘軍涉嫌嚴重違紀違法被查
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799851-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799851-20250411.htm)
-
----
-
-# 中方稱反制美國關稅是為了捍衛國際貿易規則和國際公平正義
-
-![中方代表說，歷史已反覆證明，保護主義沒有出路，開放合作才是正道。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799848_1_20250411030928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-世界貿易組織舉行成立三十周年紀念活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799848-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799848-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799848-20250411.htm)
 
 ---

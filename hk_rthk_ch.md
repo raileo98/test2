@@ -1,3 +1,144 @@
+# 陳茂波指示證監會準備　倘海外上市中概股回流香港須成首選上市地
+
+  
+
+財政司司長陳茂波表示，港股經過上周一跌勢後大致穩定，市場整體繼續暢順有序運作，認為香港在當前環球市場前景不明朗情況下，顯得更加穩定和具吸引力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm)
+
+---
+
+# 郭毅可料7月推聊天機械人供市民使用　並連接「智方便」系統
+
+  
+
+「InnoHK香港生成式人工智能研發中心」正研發港產大語言模型。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm)
+
+---
+
+# 陳茂波：本港要保持開放　黃偉綸：推動成低空經濟全球領導者
+
+  
+
+創新科技及工業局舉辦的「國際創科營商周」開幕。財政司司長陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位，自由貿易政策不變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm)
+
+---
+
+# 陳茂波：加速吸引境外資金人才來港　迎中概股回流
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800172_1_20250413182154.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+財政司司長陳茂波表示，面對貿易戰等影響，本港會維持開放，自由港地位及自由貿易政策亦不變，並將加速吸引境外資金、人才及企業來港發展，他已指示證監會和港交所做好準備，若在海外上市中概股希望回流，必須讓香港成為他們首選上市地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800172-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800172-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800172-20250413.htm)
+
+---
+
+# 美國豁免手提電話及電腦等電子產品徵收對等關稅
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800173_1_20250413182149.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國政府將大約20類電子產品，包括手提電話、平板電腦及半導體元件等，列入對貿易夥伴徵收對等關稅的豁免清單，措施適用於本月5日後進入美國的產品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800173-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800173-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800173-20250413.htm)
+
+---
+
+# 韓正出席消博會啟動儀式　商務部：擴大內需為任務之首
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800171_1_20250413181851.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+國家副主席韓正到海南省出席第五屆中國國際消費品博覽會活動啟動儀式。商務部指，全方位擴大國內需求是今年各項工作重點任務之首，亦會打造國際友好消費環境、擴大開放政策紅利。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800171-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800171-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800171-20250413.htm)
+
+---
+
 # 山西省省長金湘軍涉嫌嚴重違紀違法被查
 
   
@@ -1339,102 +1480,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800108-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800108-20250413.htm)
-
----
-
-# 警方昨於機場拘捕兩漢涉毒　檢總市值約320萬元懷疑海洛英
-
-![警方扣留調查涉案人士。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800107_1_20250412235102.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-警方昨日下午聯同相關部門人員，在香港國際機場進行打擊毒品行動，在入境大堂截查2名男子，並在其中一名內地男子的行李箱內，檢獲約4.5公斤懷疑海洛英，總市值約320萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm)
-
----
-
-# Coldplay完成4場演出約20萬人入場　體育園稱運作暢順
-
-![啟德體育園稱Coldplay演唱會首次在啟德體育園成功完滿舉行。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_1_20250412233056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-![體育園有信心繼續為香港帶來更多精彩盛事。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_2_20250412233056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-英國樂隊Coldplay完成在本港的4場演出，啟德體育園表示，共吸引約20萬名來自海外、內地及香港的觀眾入場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800106-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800106-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800106-20250412.htm)
-
----
-
-# 70歲男子胡開成離開梨木道院舍後失蹤　警方呼籲提供消息
-
-![失蹤男子身高約1.65米，體重約72公斤，中等身材。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800105_1_20250412230948.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-70歲男子胡開成早上離開位於葵涌梨木道的院舍後失蹤，院舍職員報案，警方呼籲市民提供消息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm)
-
----
-
-# 美伊首輪核問題間接談判結束　兩國代表團曾短暫交談
-
-![阿拉格齊（圖左）表示，美伊首輪核問題間接談判正面和有建設性。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800103_1_20250412225723.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-伊朗外長阿拉格齊表示，伊朗和美國在阿曼首都馬斯喀特舉行的首輪核問題間接談判結束，會談正面、具建設性，下星期會再與美國間接談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm)
 
 ---

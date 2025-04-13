@@ -1,3 +1,51 @@
+# 美國豁免手提電話及電腦等電子產品徵收對等關稅
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800173_1_20250413182149.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國政府將大約20類電子產品，包括手提電話、平板電腦及半導體元件等，列入對貿易夥伴徵收對等關稅的豁免清單，措施適用於本月5日後進入美國的產品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800173-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800173-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800173-20250413.htm)
+
+---
+
+# 韓正出席消博會啟動儀式　商務部：擴大內需為任務之首
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800171_1_20250413181851.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+國家副主席韓正到海南省出席第五屆中國國際消費品博覽會活動啟動儀式。商務部指，全方位擴大國內需求是今年各項工作重點任務之首，亦會打造國際友好消費環境、擴大開放政策紅利。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800171-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800171-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800171-20250413.htm)
+
+---
+
 # 烏克蘭稱俄羅斯導彈擊中蘇梅市中心逾20人死
 
 ![消防員在導彈襲擊現場撲救大火。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800168_1_20250413174055.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799946-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799946-20250411.htm)
-
----
-
-# 外交部指習近平訪東南亞三國將為世界和平穩定注入新動能
-
-![外交部表示習近平外訪對推動中國與相關國家，以及東盟關係發展具有重大意義。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799936_1_20250411150809.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-中共中央總書記、國家主席習近平，下星期一起國事訪問越南、馬來西亞和柬埔寨。外交部發言人林劍表示，周邊是中國外交的優先方向，習近平今年首次出訪就訪問這三個國家，對推動中國與相關國家，以及東盟關係發展具有重大意義，也將為地區乃至世界的和平穩定注入新動能。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799936-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799936-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799936-20250411.htm)
-
----
-
-# 回應美國對華加徵關稅　外交部稱不願打關稅戰但也不怕打
-
-![林劍表示關稅戰、貿易戰沒有贏家，中方不願打，但也不怕打。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799935_1_20250411145114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-在北京，外交部回應美國對華產品加徵145%關稅。發言人林劍表示，關稅戰、貿易戰沒有贏家，中方不願打，但也不怕打。他說如果美方真的想通過對話談判解決問題，就應該停止極限施壓、胡作非為，任何對話都必須建立在平等、尊重、互惠的基礎上。如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm)
 
 ---
