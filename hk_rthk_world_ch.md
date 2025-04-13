@@ -24,6 +24,7 @@
 
 # 美當局指日前紐約墜河直升機上設備均無記錄有助於調查信息
 
+![日前紐約市一架觀光直升機在曼哈頓島以西的哈德遜河墜毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800205_1_20250414032120.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
   
 
 美國國家運輸安全委員會表示，日前在紐約市哈德遜河墜毀的直升機，缺少飛行記錄儀，機上任何設備都無記錄有助於調查的信息。
@@ -47,6 +48,7 @@
 
 # 莫斯科指責烏克蘭兩度襲擊俄方能源設施　違反俄美之間協議
 
+![佩斯科夫表示越來越多國家和政客已注意到基輔政權的問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800204_1_20250414032300.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 俄羅斯國防部在通報中指出，烏軍在過去的星期五及星期六，兩度襲擊別爾哥羅德州的俄方能源設施，違反自3月18日起停止襲擊能源設施30日的俄美之間協議。
