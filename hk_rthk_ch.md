@@ -1,3 +1,26 @@
+# 英超利物浦主場2:1擊敗韋斯咸　曼聯作客1:4不敵紐卡素
+
+  
+
+英格蘭超級足球聯賽，利物浦主場2:1險勝韋斯咸，接近在聯賽封王。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800212-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800212-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800212-20250414.htm)
+
+---
+
 # 美國賓夕法尼亞州州長官邸疑被縱火　疑犯已被警方扣查
 
 ![夏皮羅表示他與家人在凌晨2時左右，被趕到現場的警方敲門叫醒。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800211_1_20250414063744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800144-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800144-20250413.htm)
-
----
-
-# 陳茂波：本港要保持開放　確保自由港地位
-
-![陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800142_2_20250413131536.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-財政司司長陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位，自由貿易政策不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800142-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800142-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800142-20250413.htm)
 
 ---
