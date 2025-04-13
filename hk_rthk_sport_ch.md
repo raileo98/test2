@@ -1,5 +1,7 @@
 # 陳雨菲羽毛球亞錦賽女單奪冠　劉聖書/譚寧女雙摘金
 
+![陳雨菲在頒獎儀式上手捧獎盃。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800194_1_20250413223239.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![劉聖書（左）/譚寧在比賽中慶祝得分。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800194_2_20250413223556.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 在寧波舉行的亞洲羽毛球錦標賽，國家隊選手陳雨菲奪得女單冠軍，劉聖書/譚寧獲得女雙冠軍。

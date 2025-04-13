@@ -1,5 +1,54 @@
+# 警隊於日內瓦國際發明展贏得5個國際獎項
+
+  
+
+香港警務處網絡安全及科技罪案調查科及警察機動部隊總部團隊，於本月9日至13日在瑞士舉辦的「第50屆日內瓦國際發明展」中，4項發明項目共贏得5個國際獎項，當中包括「國際傳媒大獎」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800195-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800195-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800195-20250413.htm)
+
+---
+
+# 陳雨菲羽毛球亞錦賽女單奪冠　劉聖書/譚寧女雙摘金
+
+![陳雨菲在頒獎儀式上手捧獎盃。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800194_1_20250413223239.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![劉聖書（左）/譚寧在比賽中慶祝得分。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800194_2_20250413223556.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+在寧波舉行的亞洲羽毛球錦標賽，國家隊選手陳雨菲奪得女單冠軍，劉聖書/譚寧獲得女雙冠軍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800194-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800194-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800194-20250413.htm)
+
+---
+
 # 劉光源：香港科技創新之光正加速綻放
 
+![劉光源說，中國始終以人類命運共同體理念引領國際科技合作，選擇中國就是選擇未來。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800193_1_20250413223629.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
 第二屆香港世界青年科學大會開幕式在會展舉行。中聯辦副主任劉光源致辭指，去年國家科技創新大步前行，為全球科技進步、世界經濟發展注入了強勁動力。他又說，中國始終以人類命運共同體理念引領國際科技合作。選擇中國就是選擇未來，投資中國就是投資明天，與中國同行就是與機遇同行。

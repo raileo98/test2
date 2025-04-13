@@ -1,3 +1,26 @@
+# 警隊於日內瓦國際發明展贏得5個國際獎項
+
+  
+
+香港警務處網絡安全及科技罪案調查科及警察機動部隊總部團隊，於本月9日至13日在瑞士舉辦的「第50屆日內瓦國際發明展」中，4項發明項目共贏得5個國際獎項，當中包括「國際傳媒大獎」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800195-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800195-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800195-20250413.htm)
+
+---
+
 # 世界互聯網大會亞太峰會明天開幕　李家超：展示創科領域最新發展
 
 ![李家超說，香港一直是國際自由港以及國家與世界之間的商業橋樑。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800190_1_20250413210317.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799969-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799969-20250411.htm)
-
----
-
-# 尹錫悅搬離龍山總統官邸　稱重新以國民身份為國為民尋求新道路
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799957_1_20250411165432.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-南韓前總統尹錫悅下午從首爾龍山區總統官邸搬走，返回位於瑞草區的私人住宅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799957-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799957-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799957-20250411.htm)
 
 ---
