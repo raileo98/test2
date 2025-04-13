@@ -1,3 +1,26 @@
+# 12人躋身搶包山決賽　下月角逐「包山王」及「包山后」
+
+  
+
+康文署表示，12名健兒成功躋身下月5日晚舉行的「搶包山決賽」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800181-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800181-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800181-20250413.htm)
+
+---
+
 # 今早相對濕度創1984年以來4月最低紀錄　沙塵氣流或持續兩天
 
   
@@ -68,7 +91,7 @@
 
 ---
 
-# 郭毅可料7月推聊天機械人供市民使用　並連接「智方便」系統
+# 郭毅可料7月可推聊天機械人供市民使用　並連接「智方便」系統
 
   
 
@@ -93,6 +116,7 @@
 
 # 陳茂波：本港要保持開放　黃偉綸：推動成低空經濟全球領導者
 
+![陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800178_1_20250413183729.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 創新科技及工業局舉辦的「國際創科營商周」開幕。財政司司長陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位，自由貿易政策不變。
