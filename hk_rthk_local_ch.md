@@ -1,5 +1,30 @@
+# 警務處舉辦全民國家安全教育日暨警隊博物館開放日
+
+![警務處今日舉辦「全民國家安全教育日暨警隊博物館開放日」。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800175_1_20250413180742.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+為響應4月15日的「全民國家安全教育日」，警務處今日舉辦「全民國家安全教育日暨警隊博物館開放日」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800175-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800175-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800175-20250413.htm)
+
+---
+
 # 數字辦與上海數據局在港簽署《滬港數字經濟合作備忘錄》
 
+![數字辦與上海市數據局在香港簽署《滬港數字經濟合作備忘錄》，共同推進滬港兩地深化合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800170_1_20250413180657.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 數字辦與上海市數據局在香港簽署《滬港數字經濟合作備忘錄》，共同推進滬港兩地圍繞數字經濟、數字化轉型、數據要素發展等領域深化合作。
@@ -23,6 +48,7 @@
 
 # 民主黨特別會員大會絕大多數票數通過授權中委會跟進解散
 
+![民主黨召開特別會員大會，超過9成會員通過授權中央委員會進一步跟進解散事宜。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800169_1_20250413180223.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 民主黨召開特別會員大會，過百名會員出席，超過9成通過授權中央委員會進一步跟進解散事宜。主席羅健熙在記者會說，將開始處理財務和行政安排，但未有召開處理解散的會員大會時間表，將按部就班處理，形容「好難特別快，亦不會特別拖慢」。
@@ -1413,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800040-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800040-20250412.htm)
-
----
-
-# 冷鋒相關驟雨及強烈狂風雷暴日間影響珠江口一帶　氣溫將顯著下降
-
-![冷鋒相關驟雨及強烈狂風雷暴日間影響珠江口一帶　氣溫將顯著下降](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800025_1_20250412054358.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-天文台表示，位於華中的一道低壓槽會在今日逐漸發展為一道冷鋒，隨著冷鋒向南移動，預料相關的驟雨及強烈狂風雷暴會在日間影響珠江口一帶，部分地區雨勢較大，亦有猛烈陣風。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800025-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800025-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800025-20250412.htm)
 
 ---

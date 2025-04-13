@@ -1,3 +1,27 @@
+# Top officials urge HK businesses to seize chance ahead
+
+![Paul Chan said the SAR government will maintain vigilance and be well-prepared amid the global uncertainties. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800160_1_20250413162047.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+The financial secretary on Sunday said he believes the Hong Kong market is stable and attractive, especially against the backdrop of global uncertainties.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800160-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800160-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800160-20250413.htm)
+
+---
+
 # Jordan Tang, Tse Ying-suet clinch maiden Asian title
 
 ![The title in Ningbo is the first for Jordan Tang and Tse Ying-suet since the Super 300 German Open last year. Photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800156_2_20250413165114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1412,29 +1436,5 @@ Nurturing talent is the "cornerstone" in innovation and technology (I&T) develop
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799279-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799279-20250407.htm)
-
----
-
-# 'DC members shouldn't speak just for the sake of it'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799254_1_20250407154426.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Home affairs minister Alice Mak on Monday defended some district councillors who reportedly have not spoken during meetings for an entire year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799254-20250407.htm)
 
 ---

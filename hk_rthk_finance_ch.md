@@ -1,5 +1,6 @@
 # 數字辦與上海數據局在港簽署《滬港數字經濟合作備忘錄》
 
+![數字辦與上海市數據局在香港簽署《滬港數字經濟合作備忘錄》，共同推進滬港兩地深化合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800170_1_20250413180657.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 數字辦與上海市數據局在香港簽署《滬港數字經濟合作備忘錄》，共同推進滬港兩地圍繞數字經濟、數字化轉型、數據要素發展等領域深化合作。
