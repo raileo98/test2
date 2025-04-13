@@ -1,3 +1,26 @@
+# 天文台料周中沙塵天氣情況會逐漸緩解
+
+  
+
+受一股東北季候風相關的沙塵氣流影響，本港空氣質素欠佳。天文台表示，是次東北季候風的強度在4月較為罕見，除了為中國多個城市帶來大風天氣外，亦將北方的沙塵往南輸送。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800191-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800191-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800191-20250413.htm)
+
+---
+
 # 世界互聯網大會亞太峰會明天開幕　李家超：展示創科領域最新發展
 
 ![李家超說，香港一直是國際自由港以及國家與世界之間的商業橋樑。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800190_1_20250413210317.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
