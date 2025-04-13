@@ -1,3 +1,27 @@
+# 美方豁免部分商品對等關稅　商務部：修正錯誤做法一小步
+
+![商務部敦促美方在糾錯方面邁出一大步，徹底取消對等關稅的錯誤做法。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800184_1_20250413192442.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
+  
+
+美方豁免電腦、智能手機、半導體製造設備、積體電路等部分產品的對等關稅，在北京，商務部說，這是美方修正單邊對等關稅錯誤做法的一小步，敦促美方正視國際社會和國內各方理性聲音，在糾錯方面邁出一大步，徹底取消對等關稅的錯誤做法，回到相互尊重，通過平等對話解決分歧的正確道路上來。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800184-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800184-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800184-20250413.htm)
+
+---
+
 # 烏方稱俄羅斯對蘇梅導彈襲擊增至逾30人死
 
 ![消防員在導彈襲擊現場撲救火勢。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800183_1_20250413191327.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)

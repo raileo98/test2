@@ -1,3 +1,27 @@
+# 美方豁免部分商品對等關稅　商務部：修正錯誤做法一小步
+
+![商務部敦促美方在糾錯方面邁出一大步，徹底取消對等關稅的錯誤做法。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800184_1_20250413192442.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
+  
+
+美方豁免電腦、智能手機、半導體製造設備、積體電路等部分產品的對等關稅，在北京，商務部說，這是美方修正單邊對等關稅錯誤做法的一小步，敦促美方正視國際社會和國內各方理性聲音，在糾錯方面邁出一大步，徹底取消對等關稅的錯誤做法，回到相互尊重，通過平等對話解決分歧的正確道路上來。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800184-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800184-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800184-20250413.htm)
+
+---
+
 # 韓正出席消博會啟動儀式　商務部：擴大內需為任務之首
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800171_1_20250413181851.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799879-20250411.htm)
-
----
-
-# 耿爽譴責以色列空襲敘利亞　促立即停止攻擊並盡快撤出敘國領土
-
-![耿爽敦促以色列立即停止攻擊行為，盡快撤出敘利亞領土。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799851_1_20250411041609.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-中國常駐聯合國代表團臨時代辦耿爽譴責以色列上星期空襲敘利亞，敦促以色列立即停止攻擊行為，盡快撤出敘利亞領土。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799851-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799851-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799851-20250411.htm)
 
 ---
