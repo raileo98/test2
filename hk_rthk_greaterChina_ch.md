@@ -1,3 +1,27 @@
+# 央視「玉淵譚天」：決不允許拿中方利益當美國談判投名狀
+
+![「玉淵譚天」說，中方正與多國共同應對美國濫施關稅，決不允許拿中方利益當美國談判投名狀。（徵博截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800167_2_20250413172122.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+央視旗下「玉淵譚天」說，中方正與多國共同應對美國濫施關稅，決不允許拿中方利益當美國談判投名狀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800167-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800167-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800167-20250413.htm)
+
+---
+
 # 陳國基稱今年將推出不同宣傳推廣　在社會營造廣泛愛國氣氛
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799832-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799832-20250410.htm)
-
----
-
-# 王毅：要敢於善於鬥爭　堅決維護國家主權、安全和發展利益
-
-![王毅說，要敢於善於鬥爭，堅決維護國家主權、安全和發展利益。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799825_1_20250410203611.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-中共中央政治局委員、外交部長王毅在北京出席外交部駐外使節工作會議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799825-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799825-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799825-20250410.htm)
 
 ---
