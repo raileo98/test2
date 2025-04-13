@@ -1,5 +1,29 @@
+# 民主黨特別會員大會絕大多數票數通過授權中委會跟進解散
+
+  
+
+民主黨召開特別會員大會，過百名會員出席，超過9成通過授權中央委員會進一步跟進解散事宜。主席羅健熙在記者會說，將開始處理財務和行政安排，但未有召開處理解散的會員大會時間表，將按部就班處理，形容「好難特別快，亦不會特別拖慢」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800169-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800169-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800169-20250413.htm)
+
+---
+
 # 陳國基稱今年將推出不同宣傳推廣　在社會營造廣泛愛國氣氛
 
+![陳國基稱，今屆政府非常重視推展愛國主義教育的工作，致力在社會構建以愛國愛港為核心。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800166_1_20250413174554.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 政務司司長陳國基表示，今屆政府非常重視推展愛國主義教育的工作，致力在社會構建以愛國愛港為核心、與「一國兩制」方針相適應的主流價值觀，又認為要將愛國主義教育做好做強，必須找對方法，以軟性和打動人心的方式作推廣，硬銷較不可行。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800011-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800011-20250412.htm)
-
----
-
-# 強對流天氣影響　珠江客運明後日多個航班停航
-
-![珠江客運表示，受強對流天氣影響， 明天和後天多個航班將會停航。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800009_1_20250411230109.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-珠江客運表示，受強對流天氣影響， 明天和後天多個航班將會停航。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800009-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800009-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800009-20250411.htm)
 
 ---
