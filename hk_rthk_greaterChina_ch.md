@@ -1,3 +1,26 @@
+# 劉光源：香港科技創新之光正加速綻放
+
+  
+
+第二屆香港世界青年科學大會開幕式在會展舉行。中聯辦副主任劉光源致辭指，去年國家科技創新大步前行，為全球科技進步、世界經濟發展注入了強勁動力。他又說，中國始終以人類命運共同體理念引領國際科技合作。選擇中國就是選擇未來，投資中國就是投資明天，與中國同行就是與機遇同行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800193-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800193-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800193-20250413.htm)
+
+---
+
 # 習近平明天出訪越南　越外長：雙方將簽署涵蓋多個領域合作文件
 
 ![習近平明天起，對越南、馬來西亞及柬埔寨三國展開國事訪問。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800192_1_20250413214419.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799905-20250411.htm)
-
----
-
-# 王文濤就應對美國對等關稅分與南非貿工部長及沙特商務大臣交流
-
-![王文濤就應對美國對等關稅，分別與南非及沙特官員交流。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799897_1_20250411124037.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-在北京，商務部表示部長王文濤昨日與二十國集團輪值主席國、南非貿工部長帕克斯陶，進行視像通話，雙方圍繞應對美國加徵所謂對等關稅、加強中南經貿合作，發揮二十國集團、金磚國家等多邊平台作用等問題，進行交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799897-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799897-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799897-20250411.htm)
 
 ---

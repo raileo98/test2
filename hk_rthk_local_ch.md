@@ -1,3 +1,26 @@
+# 劉光源：香港科技創新之光正加速綻放
+
+  
+
+第二屆香港世界青年科學大會開幕式在會展舉行。中聯辦副主任劉光源致辭指，去年國家科技創新大步前行，為全球科技進步、世界經濟發展注入了強勁動力。他又說，中國始終以人類命運共同體理念引領國際科技合作。選擇中國就是選擇未來，投資中國就是投資明天，與中國同行就是與機遇同行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800193-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800193-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800193-20250413.htm)
+
+---
+
 # 天文台料周中沙塵天氣情況會逐漸緩解
 
 ![天文台說，華中至華南一帶的沙塵天氣報告可以觀測到沙塵天氣南下。（天文台網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800191_1_20250413213122.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800061-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800061-20250412.htm)
-
----
-
-# 周一鳴：公眾活動被騎劫風險不容忽視
-
-![周一鳴表示，會審視每宗遊行集會的申請，強調公眾活動被騎劫的風險不容忽視。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800060_1_20250412130111.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-警務處處長周一鳴表示，會審視每宗遊行集會的申請，強調公眾活動被騎劫的風險不容忽視。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800060-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800060-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800060-20250412.htm)
 
 ---

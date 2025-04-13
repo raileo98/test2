@@ -649,7 +649,7 @@ English Premier League giants Manchester United on Tuesday announced that they'l
 
 # Florida wins 3rd NCAA title, denies Houston its 1st
 
-![The Florida Gators react after defeating the Houston Cougars in the national championship game of the Final Four of the 2025 NCAA Tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799390_1_20250408115243.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![The Florida Gators react after defeating the Houston Cougars in the national championship game of the Final Four of the 2025 NCAA Tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799390_1_20250408115243.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
   
 
 Florida and Walter Clayton somehow overcame Houston’s tough defence on Monday night to carve out a 65-63 victory in an NCAA title-game thriller which was not decided until Clayton’s own D stopped the Cougars from taking a game-winning shot at the buzzer.
