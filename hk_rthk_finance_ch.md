@@ -1,3 +1,51 @@
+# 地產代理：二手買家趁市況未明壓價
+
+![地產代理表示，關稅戰下市況不明朗，二手買家趁機壓價。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800214_1_20250414073358.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+地產代理表示，關稅戰下市況不明朗，二手買家趁機壓價。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800214-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800214-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800214-20250414.htm)
+
+---
+
+# 官媒：宏觀政策仍有空間和餘力　根據形勢需要和外部影響動態調整
+
+![人民銀行主管媒體金融時報發文指，中國宏觀政策仍有空間和餘力，將根據形勢需要和外部影響動態調整，加強逆周期調節。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800213_1_20250414071754.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+內地3月新增貸款和社融增量均高過預期，人民銀行主管媒體金融時報周日發文指，當前世界政經濟格局正在經歷深刻變化，不確定性影響加大；中國宏觀政策仍有空間和餘力，將根據形勢需要和外部影響動態調整，加強逆周期調節。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800213-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800213-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800213-20250414.htm)
+
+---
+
 # 內地3月新增貸款和社融增量均高過預期
 
 ![人民銀行公布，首季人民幣新增貸款9.78萬億元，據路透計算，3月新增貸款3.64萬億元，高過市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800210_1_20250414060725.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799921-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799921-20250411.htm)
-
----
-
-# 黃志光專訪稱當局會透過世界互聯網大會亞太峰會尋合作並招商引資
-
-![黃志光說，因應全球地緣政治局勢，本港更要發揮好內聯外通角色。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799918_1_20250411124920.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-世界互聯網大會亞太峰會下周在會展舉行。數字政策專員黃志光接受本台專訪，表示因應全球地緣政治局勢，本港更要發揮好內聯外通角色，當局會透過今次峰會探索合作機會，招商引資，吸引人才。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799918-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799918-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799918-20250411.htm)
-
----
-
-# 陳茂波︰特區政府與中央緊密協作構築抵禦風險屏障
-
-![陳茂波表示政府會令香港在全力拚經濟、謀發展的同時，做好金融安全工作。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799916_1_20250411124143.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-財政司司長陳茂波表示，特區政府會從監察風險、化解風險、做大做強自身實力三方面構建金融防護網，令香港在全力拚經濟、謀發展的同時，做好金融安全工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799916-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799916-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799916-20250411.htm)
 
 ---

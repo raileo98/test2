@@ -1,3 +1,29 @@
+# 消委會與金管局推VR遊戲提升防騙意識
+
+![玩家頭戴VR設備及手持控制器，按語音或圖像指示，在預設情境中作出選擇。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_1_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![校長沈立平表示，遊戲有助學生加深記憶。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_2_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![黃鳳嫺表示，現時電子支付盛行，應該透過不同方法，盡早教授長者及學生正確使用信用卡的知識。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_3_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+消委會聯同金管局推出一系列虛擬實境VR角色體驗遊戲，對象包括長者及特殊需要人士，讓玩家建立正確的信用卡消費觀念，提升他們的防騙意識。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800215-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800215-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800215-20250414.htm)
+
+---
+
 # 警隊於日內瓦國際發明展贏得5個國際獎項
 
 ![團隊在瑞士舉辦的「第50屆日內瓦國際發明展」中贏得5個國際獎項。（警方社交網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800195_1_20250413224050.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1415,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm)
-
----
-
-# 林定國稱若做好愛國主義教育　相信國家安全教育定能事半功倍
-
-![林定國表示，十分認同將國家安全教育與愛國主義教育掛勾。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800062_1_20250412125414.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-律政司司長林定國表示，十分認同將國家安全教育與愛國主義教育掛勾，形容兩者是形影不離的「孖生兄弟」。他說國家安全教育不單是傳授有關維護國家安全，包括國家安全法律的相關知識，更重要是培養對維護國家安全，以及遵守國家安全法律的自覺性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800062-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800062-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800062-20250412.htm)
 
 ---

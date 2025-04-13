@@ -1,3 +1,27 @@
+# 官媒：宏觀政策仍有空間和餘力　根據形勢需要和外部影響動態調整
+
+![人民銀行主管媒體金融時報發文指，中國宏觀政策仍有空間和餘力，將根據形勢需要和外部影響動態調整，加強逆周期調節。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800213_1_20250414071754.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+內地3月新增貸款和社融增量均高過預期，人民銀行主管媒體金融時報周日發文指，當前世界政經濟格局正在經歷深刻變化，不確定性影響加大；中國宏觀政策仍有空間和餘力，將根據形勢需要和外部影響動態調整，加強逆周期調節。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800213-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800213-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800213-20250414.htm)
+
+---
+
 # 內地3月新增貸款和社融增量均高過預期
 
 ![人民銀行公布，首季人民幣新增貸款9.78萬億元，據路透計算，3月新增貸款3.64萬億元，高過市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800210_1_20250414060725.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799936-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799936-20250411.htm)
-
----
-
-# 回應美國對華加徵關稅　外交部稱不願打關稅戰但也不怕打
-
-![林劍表示關稅戰、貿易戰沒有贏家，中方不願打，但也不怕打。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799935_1_20250411145114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-在北京，外交部回應美國對華產品加徵145%關稅。發言人林劍表示，關稅戰、貿易戰沒有贏家，中方不願打，但也不怕打。他說如果美方真的想通過對話談判解決問題，就應該停止極限施壓、胡作非為，任何對話都必須建立在平等、尊重、互惠的基礎上。如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm)
 
 ---

@@ -1,3 +1,77 @@
+# 消委會與金管局推VR遊戲提升防騙意識
+
+![玩家頭戴VR設備及手持控制器，按語音或圖像指示，在預設情境中作出選擇。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_1_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![校長沈立平表示，遊戲有助學生加深記憶。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_2_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![黃鳳嫺表示，現時電子支付盛行，應該透過不同方法，盡早教授長者及學生正確使用信用卡的知識。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_3_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+消委會聯同金管局推出一系列虛擬實境VR角色體驗遊戲，對象包括長者及特殊需要人士，讓玩家建立正確的信用卡消費觀念，提升他們的防騙意識。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800215-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800215-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800215-20250414.htm)
+
+---
+
+# 地產代理：二手買家趁市況未明壓價
+
+![地產代理表示，關稅戰下市況不明朗，二手買家趁機壓價。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800214_1_20250414073358.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+地產代理表示，關稅戰下市況不明朗，二手買家趁機壓價。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800214-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800214-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800214-20250414.htm)
+
+---
+
+# 官媒：宏觀政策仍有空間和餘力　根據形勢需要和外部影響動態調整
+
+![人民銀行主管媒體金融時報發文指，中國宏觀政策仍有空間和餘力，將根據形勢需要和外部影響動態調整，加強逆周期調節。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800213_1_20250414071754.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+內地3月新增貸款和社融增量均高過預期，人民銀行主管媒體金融時報周日發文指，當前世界政經濟格局正在經歷深刻變化，不確定性影響加大；中國宏觀政策仍有空間和餘力，將根據形勢需要和外部影響動態調整，加強逆周期調節。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800213-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800213-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800213-20250414.htm)
+
+---
+
 # 英超利物浦主場2:1擊敗韋斯咸　曼聯作客1:4不敵紐卡素
 
 ![雲迪克攻入致勝入球。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800212_1_20250414072202.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1365,77 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800148-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800148-20250413.htm)
-
----
-
-# 盧寵茂：器官名冊近40萬人登記　冀有更多市民支持
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800147_1_20250413145946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-香港醫學會舉辦推廣器官捐贈步行活動。醫務衞生局局長盧寵茂表示，中央器官捐贈登記名冊至今有近40萬人登記，數字值得鼓舞。他說，3年的新冠疫情對器官捐贈造成很大阻力，亦有一段時間出現阻力，試圖干擾登記名冊，他對這些行為予以譴責。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800147-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800147-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800147-20250413.htm)
-
----
-
-# 西九戶外演唱會　警方接4宗遺失手機報案
-
-![西九文化區竹翠公園昨晚舉行戶外演唱會，警方接獲4人報案在該處失手機。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800145_1_20250413124224.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-西九文化區竹翠公園昨晚舉行戶外演唱會，警方回覆查詢時表示，油麻地警區由昨晚至今日凌晨，接獲4人報案指，在竹翠公園遺失手提電話，向警方備案，警方暫列作遺失財物案件處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800145-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800145-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800145-20250413.htm)
-
----
-
-# 控煙酒辦在旺角一酒吧向非法吸食水煙者共發4張定額罰款通知書
-
-![控煙酒辦公室在旺角一間酒吧巡查和執法。（衞生署圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800144_1_20250413124234.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-控煙酒辦公室昨晚派員到旺角進行代號「菸滅」的行動，在旺角一間酒吧巡查和執法，向非法吸食水煙的人士，發出共4張定額罰款通知書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800144-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800144-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800144-20250413.htm)
 
 ---
