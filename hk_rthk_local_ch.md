@@ -71,7 +71,7 @@
 
 # 陳茂波：本港要保持開放　確保自由港地位
 
-![陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800142_1_20250413123336.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800142_2_20250413131536.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
   
 
 財政司司長陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位，自由貿易政策不變。
@@ -167,6 +167,7 @@
 
 # 陳茂波：香港在動盪時期會保持開放　願意建立新聯繫和新夥伴關係
 
+![陳茂波早上出席國際創科營商周開幕禮時表示，本港是創科發展的理想戰略地點。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800137_1_20250413130954.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
   
 
 財政司司長陳茂波表示，因貿易戰及科技碎片化的關係，全球格局正出現變化，正重塑產業鏈、供應鏈和夥伴關係等，很多企業在新常態下要尋求新合作夥伴，探索新市場，並要採用更靈活的商業模式。他說，香港在動盪時期會保持開放，歡迎世界各地的企業和人才，本港願意建立新聯繫和新夥伴關係，強調本港會確保自由港地位，保持自由貿易政策不變，會堅定保持資金、貨物、資訊和人才的自由流動。

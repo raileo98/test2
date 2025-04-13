@@ -1,3 +1,26 @@
+# 埃及和印尼國家領導人：巴勒斯坦建國是實現地區持久和平唯一途徑
+
+  
+
+埃及和印尼國家領導人表示，巴勒斯坦建國是實現地區持久和平、安全與穩定的唯一途徑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800148-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800148-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800148-20250413.htm)
+
+---
+
 # 盧寵茂：器官名冊近40萬人登記　冀有更多市民支持
 
   
@@ -71,7 +94,7 @@
 
 # 陳茂波：本港要保持開放　確保自由港地位
 
-![陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800142_1_20250413123336.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800142_2_20250413131536.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
   
 
 財政司司長陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位，自由貿易政策不變。
@@ -191,6 +214,7 @@
 
 # 陳茂波：香港在動盪時期會保持開放　願意建立新聯繫和新夥伴關係
 
+![陳茂波早上出席國際創科營商周開幕禮時表示，本港是創科發展的理想戰略地點。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800137_1_20250413130954.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
   
 
 財政司司長陳茂波表示，因貿易戰及科技碎片化的關係，全球格局正出現變化，正重塑產業鏈、供應鏈和夥伴關係等，很多企業在新常態下要尋求新合作夥伴，探索新市場，並要採用更靈活的商業模式。他說，香港在動盪時期會保持開放，歡迎世界各地的企業和人才，本港願意建立新聯繫和新夥伴關係，強調本港會確保自由港地位，保持自由貿易政策不變，會堅定保持資金、貨物、資訊和人才的自由流動。
@@ -285,7 +309,7 @@
 
 # 東盟秘書長高金洪：致力深化對華全面戰略伙伴關係　倡導多邊主義
 
-![東盟秘書長高金洪：致力深化對華全面戰略伙伴關係　倡導多邊主義](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800130_1_20250413110604.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![高金洪表示，東盟致力於深化對華全面戰略伙伴關係。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800130_2_20250413130957.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
   
 
 東盟秘書長高金洪表示，東盟致力於深化對華全面戰略伙伴關係，同時倡導多邊主義，以應對共同挑戰。
@@ -1079,7 +1103,7 @@
 
 # 北京遭大風天氣影響部分交通停運　市內兩大機場共取消逾7百航班
 
-![北京市有樹木被強風吹倒。(路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800094_1_20250412204344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=1)
+![北京市有樹木被強風吹倒。(路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800094_1_20250412204344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=40)
   
 
 一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。今日截至傍晚6時，北京首都機場和大興機場共取消超過700個航班。
@@ -1410,30 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800076-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800076-20250412.htm)
-
----
-
-# 九龍城潑水活動暫停有小童續射水嬉戲　檔主稱氣氛與人流不錯
-
-![有攤檔負責人表示，下雨有少少影響，但氣氛與人流都不錯。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800075_2_20250412184629.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=55)
-![麥美娟說，特區政府會努力深化與泰國的合作交流。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800075_3_20250412184629.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=60)
-  
-
-一年一度的九龍城潑水節活動在賈炳達道公園舉行，下午開始落雨，「電音X潑水」體驗活動因雷暴警告而要暫停，劃定為潑水區的籃球場關閉，正參與潑水活動的市民要離開潑水區，待雷暴警告取消後才可繼續。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm)
 
 ---

@@ -192,7 +192,7 @@
 
 # 洛杉磯奧運將新增22個小項　將增設乒乓混合團體賽
 
-![國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799712_1_20250410093619.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=1)
+![國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799712_1_20250410093619.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=75)
   
 
 國際奧委會執委會批准2028年洛杉磯奧運比賽項目和運動員配額，共設351個小項，較巴黎奧運會的329個小項增加22項，其中乒乓混合團體賽將作為新增小項登上洛杉磯奧運會舞台。
@@ -1158,7 +1158,7 @@
 
 # 諾定咸森林憑互射12碼淘汰白禮頓　34年來首次晉級英足盃4強
 
-![諾定咸森林自1991年以來首次殺入足總盃4強。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798079_1_20250330072655.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=1)
+![諾定咸森林自1991年以來首次殺入足總盃4強。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798079_1_20250330072655.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
   
 
 英格蘭足總盃，諾定咸森林作客同白禮頓踢到加時，結果森林在憑互射12碼勝出，34年來首次晉級4強。

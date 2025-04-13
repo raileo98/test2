@@ -119,7 +119,7 @@
 
 # 北京遭大風天氣影響部分交通停運　市內兩大機場共取消逾7百航班
 
-![北京市有樹木被強風吹倒。(路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800094_1_20250412204344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=1)
+![北京市有樹木被強風吹倒。(路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800094_1_20250412204344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=40)
   
 
 一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。今日截至傍晚6時，北京首都機場和大興機場共取消超過700個航班。
@@ -839,7 +839,7 @@
 
 # 中方批評日本夥同北約挑動對立對抗　將自食惡果
 
-![林劍表示日本夥同北約無理干涉中國內政，渲染地區緊張局勢，中方對此堅決反對。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799939_1_20250411152812.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=1)
+![林劍表示日本夥同北約無理干涉中國內政，渲染地區緊張局勢，中方對此堅決反對。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799939_1_20250411152812.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
   
 
 日本首相石破茂早前與北約秘書長呂特會面時，談到東海、南海、台海局勢等。
@@ -1079,7 +1079,7 @@
 
 # 人民日報文章指美國關稅訛詐　切斷全球產供鏈干擾各國經濟發展
 
-![文章指中美經貿合作促進美國產業升級，為美國消費者帶來好處。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799902_1_20250411123655.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=1)
+![文章指中美經貿合作促進美國產業升級，為美國消費者帶來好處。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799902_1_20250411123655.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=70)
   
 
 《人民日報》發表文章，批評美國的「關稅訛詐」，嚴重擾亂全球產業鏈、供應鏈穩定，扭曲全球市場資源配置，損人不利己，重申中美作為全球前兩大經濟體，尤其需要視對方的發展為機遇而非挑戰，把對方當作夥伴，而非對手。

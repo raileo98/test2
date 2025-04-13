@@ -984,7 +984,7 @@ Visitor numbers to the Tibet region reached 63 million last year, its highest ev
 
 # Warning shots fired at Chinese Red Cross convoy
 
-![A Chinese Red Cross team looks for survivors among the ruins of a residential building in Mandalay on Sunday. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798650_1_20250402174414.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=1)
+![A Chinese Red Cross team looks for survivors among the ruins of a residential building in Mandalay on Sunday. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798650_1_20250402174414.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=55)
   
 
 China strongly urges all parties in Myanmar to ensure the safety of earthquake relief workers and supplies from China and other countries, a Foreign Ministry spokesman said on Wednesday.

@@ -1,3 +1,26 @@
+# 埃及和印尼國家領導人：巴勒斯坦建國是實現地區持久和平唯一途徑
+
+  
+
+埃及和印尼國家領導人表示，巴勒斯坦建國是實現地區持久和平、安全與穩定的唯一途徑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800148-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800148-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800148-20250413.htm)
+
+---
+
 # 緬甸發生5.6級地震
 
 ![緬甸發生5.6級地震](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800138_1_20250413114914.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
@@ -24,7 +47,7 @@
 
 # 東盟秘書長高金洪：致力深化對華全面戰略伙伴關係　倡導多邊主義
 
-![東盟秘書長高金洪：致力深化對華全面戰略伙伴關係　倡導多邊主義](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800130_1_20250413110604.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
+![高金洪表示，東盟致力於深化對華全面戰略伙伴關係。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800130_2_20250413130957.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=80)
   
 
 東盟秘書長高金洪表示，東盟致力於深化對華全面戰略伙伴關係，同時倡導多邊主義，以應對共同挑戰。
@@ -624,7 +647,7 @@
 
 # 美國移民法官裁定巴勒斯坦學生哈利勒可被驅逐出境
 
-![哈利勒去年在哥大校園聲援巴勒斯坦示威活動中，發揮重要作用。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800042_1_20250412092037.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=1)
+![哈利勒去年在哥大校園聲援巴勒斯坦示威活動中，發揮重要作用。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800042_1_20250412092037.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=90)
   
 
 美國一名移民法官裁定，被政府拘留的巴勒斯坦學生示威者哈利勒可以被驅逐出境。
@@ -768,7 +791,7 @@
 
 # 也門胡塞武裝稱襲擊美國杜魯門號航母編隊
 
-![也門首都薩那星期五有大批民眾上街，抗議美軍空襲當地。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800019_1_20250412043157.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=1)
+![也門首都薩那星期五有大批民眾上街，抗議美軍空襲當地。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800019_1_20250412043157.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=40)
   
 
 也門胡塞武裝表示，組織星期五襲擊了部署在紅海北部的美國航母編隊。
@@ -816,7 +839,7 @@
 
 # 特朗普：關稅政策非常好　白宮不評論是否等待中方首先行動
 
-![白宮發言人萊維特強調，特朗普對貿易協議取得進展持樂觀態度。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800016_1_20250412031324.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=1)
+![白宮發言人萊維特強調，特朗普對貿易協議取得進展持樂觀態度。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800016_1_20250412031324.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=85)
   
 
 中國今日起對美國進口商品加徵的關稅稅率提高至125%，又表明如果美方繼續關稅數字遊戲，中方將不予理會。
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799897-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799897-20250411.htm)
-
----
-
-# 人民日報文章指美國關稅訛詐　切斷全球產供鏈干擾各國經濟發展
-
-![文章指中美經貿合作促進美國產業升級，為美國消費者帶來好處。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799902_1_20250411123655.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D720&q=1)
-  
-
-《人民日報》發表文章，批評美國的「關稅訛詐」，嚴重擾亂全球產業鏈、供應鏈穩定，扭曲全球市場資源配置，損人不利己，重申中美作為全球前兩大經濟體，尤其需要視對方的發展為機遇而非挑戰，把對方當作夥伴，而非對手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm)
 
 ---
