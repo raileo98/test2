@@ -1,5 +1,147 @@
+# 孫東：面對更複雜形勢　本港要堅持自由開放聯通全球
+
+  
+
+國際創科營商周開幕，創新科技及工業局局長孫東表示，創科營商周可向世界展示香港改革開放、充滿創新的機遇，現時面對更複雜形勢，尤其貿易戰及關稅戰，本港要堅持成功精髓，即是自由開放，聯通全球，以及協同創新，只要堅持走下去，就可把道路愈走愈寬、愈走愈廣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800140-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800140-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800140-20250413.htm)
+
+---
+
+# 甯漢豪：東江水現佔全港食水用量達七至八成是穩定可靠主要水源
+
+  
+
+發展局局長甯漢豪表示，香港的雨水收集不足以應付全港淡水使用需求，因此主要依賴東江水供港，現時東江水佔全港食水用量達七至八成，是穩定可靠的主要水源。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm)
+
+---
+
+# 陳茂波：香港在動盪時期會保持開放　願意建立新聯繫和新夥伴關係
+
+  
+
+財政司司長陳茂波表示，因貿易戰及科技碎片化的關係，全球格局正出現變化，正重塑產業鏈、供應鏈和夥伴關係等，很多企業在新常態下要尋求新合作夥伴，探索新市場，並要採用更靈活的商業模式。他說，香港在動盪時期會保持開放，歡迎世界各地的企業和人才，本港願意建立新聯繫和新夥伴關係，強調本港會確保自由港地位，保持自由貿易政策不變，會堅定保持資金、貨物、資訊和人才的自由流動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm)
+
+---
+
+# 陳國基：消防處在維護國家安全方面擔當舉足輕重角色
+
+![陳國基指出，消防處在維護國家安全方面擔當舉足輕重的角色。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800136_1_20250413115417.jpg&q=90)
+  
+
+消防處響應「全民國家安全教育日」，在將軍澳消防及救護學院舉行開放日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm)
+
+---
+
+# 陳茂波：香港在當前環球市場前景不明朗下顯得更穩定和具吸引力
+
+![陳茂波日前會同財經事務及庫務局局長、商務及經濟發展局局長和金融監管機構代表會見傳媒。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800134_1_20250413111019.jpg&q=75)
+  
+
+財政司司長陳茂波表示，自美國公布向全球貿易伙伴施加所謂「對等關稅」後，國際金融市場出現大幅波動，美國國庫債券價格急跌、孳息急升；上周開始至今，港匯持續偏強，港元兌美元仍處於強方水平，顯示資金仍留在本港市場，港股經過上周一跌勢後大致穩定，上周五恒生指數收市，仍略高於今年一月初的水平，上周的平均每日成交額增至4276億港元，比前周增加約68%，反映過去一周市場整體繼續暢順有序運作，認為香港在當前環球市場前景不明朗的情況下，顯得更加穩定和具吸引力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm)
+
+---
+
+# 為應對復活節假期求診需要　醫管局明起啓動高峰期特別措施
+
+![醫管局明日起啓動服務需求高峰期特別措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800132_1_20250413104410.jpg&q=90)
+  
+
+醫管局公布，為應對市民在復活節假期的求診需要及減輕急症室的服務壓力，明日起啓動服務需求高峰期特別措施。復活節假期期間，即4月18日至21日將有18間普通科門診診所提供公眾假期普通科門診服務。求診人士可透過電話預約系統或「HA Go」流動應用程式內的「預約普通科門診」功能作出預約。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm)
+
+---
+
 # 本港今早相對濕度降至21% 　1984年以來4月份最低紀錄
 
+![天文台的相對濕度曾下降至21%，是天文台總部自1984年設置自動氣象站以來4月份的最低紀錄。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800129_1_20250413100044.jpg&q=90)
   
 
 天文台表示，今早多處地區的相對濕度下降至30%或以下，而截至上午9時40分，天文台的相對濕度曾下降至21%，是天文台總部自1984年設置自動氣象站以來4月份的最低紀錄。
@@ -23,6 +165,7 @@
 
 # 許正宇：本港金融系統久經歷練　有信心香港可立於不敗之地
 
+![許正宇表示，即使宏觀環境複雜，最重要是「人亂我不亂」。（商台直播截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800127_2_20250413104711.jpg&q=85)
   
 
 財經事務及庫務局局長許正宇表示，美國實施關稅政策，對全球經濟百害而無一利，但香港股票市場穩健，交易結算有序，反映即使宏觀環境複雜，最重要是「人亂我不亂」。他認為，本港金融系統久經歷練，監管系統能夠抵禦和察覺風險，整體市場運作有序，現時需持續鞏固本港市場的安全、穩定和可預見性，有信心香港可立於不敗之地。
@@ -1292,149 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799964-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799964-20250411.htm)
-
----
-
-# 政府稱路旁水浸監測器體積如手機　可監測10毫米至5米水深
-
-![試點路段設有最低點的水位監測設備內澇監測器。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799962_1_20250411173645.jpg&q=85)
-  
-
-政府將於5個水浸風險較高的低窪行車路段，推行涉水綫系統試驗計劃，以實時監察水浸，有助各部門內部協調，及早處理水浸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799962-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799962-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799962-20250411.htm)
-
----
-
-# 李耀培稱實時監察路面水浸　各部門可更快到場處理
-
-![李耀培建議如果在試行後效果良好，可以推行至各區都採用。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799961_2_20250411173927.jpg&q=90)
-  
-
-政府將於五個水浸風險較高的低窪行車路段推行涉水綫系統試驗計劃，實時監察水浸情況。中國香港汽車會永遠榮譽會長李耀培表示，歡迎當局用系統監測路面情況，認為可以讓駕駛者知道前面路況，一旦出現水浸就不要再前行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799961-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799961-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799961-20250411.htm)
-
----
-
-# 本港二手樓價按周微升　中原料今季樓價或再跌近3%
-
-![中原地產指貿易衝突升級，環球股市大幅波動，本港二手樓成交轉慢，今季樓價或再跌2.85%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799947_1_20250411161932.jpg&q=40)
-  
-
-反映本港二手樓價走勢的中原城市領先指數（CCL）最新報136.9，按周微升0.06%，但仍處於超過8年半以來低位。本周中美互相加徵關稅，全球股市大跌對樓市的影響將於5月上旬的樓價反映。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799947-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799947-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799947-20250411.htm)
-
----
-
-# 港股高收逾1%　連升4個交易日　恒指本周累跌近8.5%
-
-![恒指收市報20914點，升幅1.13%，連升4個交易日，全星期累計跌近8.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799952_1_20250411163948.jpg&q=20)
-  
-
-港股先跌後回升，恒指初段最多跌近240點，其後轉升，下午曾升近450點，高見21127點，但未能企穩21000點關口，收市報20914點，升232點，升幅1.13%，連升4個交易日，主板成交額減少至約2764億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799952-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799952-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799952-20250411.htm)
-
----
-
-# 投資推廣署稱香港是中東企業拓展亞太及內地市場策略門戶
-
-![吳國才（右）說，憑藉香港的營商優勢，與中東企業可以在金融、科技、可持續發展等加強合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799956_1_20250411165957.jpg&q=65)
-  
-
-投資推廣署助理署長吳國才結束在中東的訪問，出訪利雅得、吉達和迪拜，宣傳香港是中東企業拓展亞太地區及內地市場的策略性門戶。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799956-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799956-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799956-20250411.htm)
-
----
-
-# 屯門公路往九龍方向有跑車起火　女司機無受傷
-
-![屯門公路往九龍方向有跑車起火。（網上圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799955_1_20250411165741.jpg&q=75)
-  
-
-屯門公路往九龍方向近珠海學院有跑車起火，女司機及時離開車廂，沒有受傷，現場交通受影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799955-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799955-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799955-20250411.htm)
 
 ---

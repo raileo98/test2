@@ -1,3 +1,27 @@
+# Air pollution to reach "serious" level in parts of HK
+
+![The Air Quality Health Index at Central and Western district reached the "very high" category as of 10am Sunday. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800131_1_20250413104146.jpg&q=60)
+  
+
+Officials warned on Sunday that air pollution in certain areas of Hong Kong will reach "serious" levels, and urged vulnerable groups of people to reduce outdoor exposure.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800131-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800131-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800131-20250413.htm)
+
+---
+
 # HK to boost scrutiny of talent pass applications
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800073_1_20250412160554.jpg&q=90)
@@ -1411,29 +1435,5 @@ The Airport Authority Hong Kong board has appointed Vivian Cheung as its chief e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799220-20250407.htm)
-
----
-
-# National security education 'an everyday process'
-
-![Secretary for Justice Paul Lam says national security risks might still exist despite Hong Kong being very stable. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799215_1_20250407114227.jpg&q=90)
-  
-
-Hong Kong's justice chief has stressed that educating the public on national security is an ongoing effort, calling on people to stay vigilant against possible threats.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799215-20250407.htm)
 
 ---

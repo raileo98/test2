@@ -1,3 +1,27 @@
+# Air pollution to reach "serious" level in parts of HK
+
+![The Air Quality Health Index at Central and Western district reached the "very high" category as of 10am Sunday. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800131_1_20250413104146.jpg&q=60)
+  
+
+Officials warned on Sunday that air pollution in certain areas of Hong Kong will reach "serious" levels, and urged vulnerable groups of people to reduce outdoor exposure.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800131-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800131-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800131-20250413.htm)
+
+---
+
 # McIlroy puts in blistering third round to lead Masters
 
 ![Rory McIlroy reacts after holing his putt on the 18th green. Photo Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800122_1_20250413072334.jpg&q=85)
@@ -1411,29 +1435,5 @@ Stocks rocketed on Thursday as a relief rally spread through markets after Donal
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799800-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799800-20250410.htm)
-
----
-
-# Govt mulls fishing rules relaxation to boost tourism
-
-![Rosanna Law says the government will consider increasing the number of yacht docking spaces in Victoria Harbour. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799779_1_20250410161655.jpg&q=85)
-  
-
-Authorities have said they will make it easier for people to cook freshly caught fish on boats, as part of a push to promote island hopping tourism.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799779-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799779-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799779-20250410.htm)
 
 ---

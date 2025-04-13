@@ -1,5 +1,78 @@
+# 緬甸發生5.6級地震
+
+![緬甸發生5.6級地震](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800138_1_20250413114914.jpg&q=80)
+  
+
+緬甸發生5.6級地震，震源深度為35公里。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800138-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800138-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800138-20250413.htm)
+
+---
+
+# 東盟秘書長高金洪：致力深化對華全面戰略伙伴關係　倡導多邊主義
+
+![東盟秘書長高金洪：致力深化對華全面戰略伙伴關係　倡導多邊主義](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800130_1_20250413110604.jpg&q=90)
+  
+
+東盟秘書長高金洪表示，東盟致力於深化對華全面戰略伙伴關係，同時倡導多邊主義，以應對共同挑戰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800130-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800130-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800130-20250413.htm)
+
+---
+
+# 尹錫悅首次刑事審判明天舉行　倘領導叛亂罪成可能囚終身或死刑
+
+![尹錫悅被指領導叛亂的首次刑事審判明天舉行。圖為他日前返回私人住宅途中向傳媒揮手。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800133_1_20250413104522.jpg&q=80)
+  
+
+南韓前總統尹錫悅被指領導叛亂的首次刑事審判定於明天舉行，他作為被告，必須出席庭審。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800133-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800133-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800133-20250413.htm)
+
+---
+
 # 美國將對俄羅斯的部份制裁措施延長一年
 
+![據美國聯邦公報網站，特朗普簽署行政命令，繼續執行行政命令宣布的國家緊急狀態一年。（網上截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800128_1_20250413101033.jpg&q=85)
   
 
 美國將對俄羅斯的部份制裁措施延長一年。
@@ -50,7 +123,7 @@
 ![分析指蘋果（圖）、英偉達及微軟等科技巨頭可以暫時鬆一口氣。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800123_1_20250413073234.jpg&q=90)
   
 
-美國政府將智能手機、電腦、晶片等產品，排除在所謂的對等關稅之外，措施適用於本月5日以後進入美國的電子產品，已經支付的對等關稅可以尋求退款。
+美國政府將智能手機、電腦、晶片等產品，排除在對等關稅之外，措施適用於本月5日以後進入美國的電子產品，已經支付的對等關稅可以尋求退款。
 
   
 
@@ -1362,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799902-20250411.htm)
-
----
-
-# 習近平將國事訪問越南與馬來西亞及柬埔寨
-
-![習近平將先後國事訪問越南、馬來西亞及柬埔寨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799900_1_20250411102900.jpg&q=90)
-  
-
-中共中央總書記、國家主席習近平應越南共產黨中央委員會總書記蘇林、越南社會主義共和國主席梁強邀請，將於本月14日至15日對越南進行國事訪問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799900-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799900-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799900-20250411.htm)
-
----
-
-# 陳美寶稱五大策略應對關稅戰致物流及航運不穩定不明朗情況
-
-![陳美寶強調香港不能漠視今次這一浪有多大、有多高，當前急務是如何應對全球貨量交易減少。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799894_1_20250411110231.jpg&q=90)
-  
-
-運輸及物流局長陳美寶接受《明報》訪問，表示關稅戰對本港物流、航運及航空界帶來持續的不穩定不明朗因素，當局將有五大策略應對，包括修例便利轉口、加強與大灣區港口協作「拉貨」、將探討藉減省報關手續提升轉口效率吸引轉口貨、深化與國際港口及船舶之間交流合作，擴大航運網絡、以及維持樞紐地位需升級轉型，提供多元化服務，令本港的能力和服務均能配合市場轉型。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799894-20250411.htm)
-
----
-
-# 丘應樺透露行政長官下月聯同內地企業出訪中東
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799891_1_20250411102116.jpg&q=75)
-  
-
-立法會財委會特別會議繼續舉行。全國人大常委、民建聯議員李慧琼說，貿易戰有不確定性，關注政府如何深化國際交流，以減少對美國市場的依賴。商務及經濟發展局局長丘應樺表示，一直擴展與其他國家的接觸，並與內地各省市「拼船出海」，透露下月行政長官將與內地企業一同出訪中東，在地緣發展緊張的情況下，謀求發展中東新市場和東盟市場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799891-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799891-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799891-20250411.htm)
 
 ---

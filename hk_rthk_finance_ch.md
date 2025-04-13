@@ -1,5 +1,53 @@
+# 陳茂波：香港在動盪時期會保持開放　願意建立新聯繫和新夥伴關係
+
+  
+
+財政司司長陳茂波表示，因貿易戰及科技碎片化的關係，全球格局正出現變化，正重塑產業鏈、供應鏈和夥伴關係等，很多企業在新常態下要尋求新合作夥伴，探索新市場，並要採用更靈活的商業模式。他說，香港在動盪時期會保持開放，歡迎世界各地的企業和人才，本港願意建立新聯繫和新夥伴關係，強調本港會確保自由港地位，保持自由貿易政策不變，會堅定保持資金、貨物、資訊和人才的自由流動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm)
+
+---
+
+# 陳茂波：香港在當前環球市場前景不明朗下顯得更穩定和具吸引力
+
+![陳茂波日前會同財經事務及庫務局局長、商務及經濟發展局局長和金融監管機構代表會見傳媒。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800134_1_20250413111019.jpg&q=75)
+  
+
+財政司司長陳茂波表示，自美國公布向全球貿易伙伴施加所謂「對等關稅」後，國際金融市場出現大幅波動，美國國庫債券價格急跌、孳息急升；上周開始至今，港匯持續偏強，港元兌美元仍處於強方水平，顯示資金仍留在本港市場，港股經過上周一跌勢後大致穩定，上周五恒生指數收市，仍略高於今年一月初的水平，上周的平均每日成交額增至4276億港元，比前周增加約68%，反映過去一周市場整體繼續暢順有序運作，認為香港在當前環球市場前景不明朗的情況下，顯得更加穩定和具吸引力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm)
+
+---
+
 # 美國將對俄羅斯的部份制裁措施延長一年
 
+![據美國聯邦公報網站，特朗普簽署行政命令，繼續執行行政命令宣布的國家緊急狀態一年。（網上截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800128_1_20250413101033.jpg&q=85)
   
 
 美國將對俄羅斯的部份制裁措施延長一年。
@@ -23,6 +71,7 @@
 
 # 許正宇：本港金融系統久經歷練　有信心香港可立於不敗之地
 
+![許正宇表示，即使宏觀環境複雜，最重要是「人亂我不亂」。（商台直播截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800127_2_20250413104711.jpg&q=85)
   
 
 財經事務及庫務局局長許正宇表示，美國實施關稅政策，對全球經濟百害而無一利，但香港股票市場穩健，交易結算有序，反映即使宏觀環境複雜，最重要是「人亂我不亂」。他認為，本港金融系統久經歷練，監管系統能夠抵禦和察覺風險，整體市場運作有序，現時需持續鞏固本港市場的安全、穩定和可預見性，有信心香港可立於不敗之地。
@@ -1386,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799900-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799900-20250411.htm)
-
----
-
-# 人行逆回購操作量降至285億元人民幣
-
-![人行逆回購操作降至285億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799898_1_20250411094617.jpg&q=40)
-  
-
-人民銀行公開市場7日期逆回購操作降至285億元人民幣，利率維持1.5厘，今日無逆回購到期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799898-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799898-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799898-20250411.htm)
-
----
-
-# 陳茂波稱針對不同情境制定預案　確保金融安全風險處置及時有效
-
-![陳茂波鼓勵機構邀請國家安全領域專家深入企業，針對高層管理人員與中層員工進行分層培訓。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799899_1_20250411112826.jpg&q=80)
-  
-
-財政司司長陳茂波接受報章訪問時表示，特區政府會從監察風險、化解風險、做大做強自身實力三方面構建金融防護網，令香港在全力拚經濟、謀發展的同時，做好金融安全工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799899-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799899-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799899-20250411.htm)
 
 ---

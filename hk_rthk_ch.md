@@ -1,5 +1,266 @@
+# 孫東：面對更複雜形勢　本港要堅持自由開放聯通全球
+
+  
+
+國際創科營商周開幕，創新科技及工業局局長孫東表示，創科營商周可向世界展示香港改革開放、充滿創新的機遇，現時面對更複雜形勢，尤其貿易戰及關稅戰，本港要堅持成功精髓，即是自由開放，聯通全球，以及協同創新，只要堅持走下去，就可把道路愈走愈寬、愈走愈廣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800140-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800140-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800140-20250413.htm)
+
+---
+
+# 緬甸發生5.6級地震
+
+![緬甸發生5.6級地震](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800138_1_20250413114914.jpg&q=80)
+  
+
+緬甸發生5.6級地震，震源深度為35公里。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800138-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800138-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800138-20250413.htm)
+
+---
+
+# 甯漢豪：東江水現佔全港食水用量達七至八成是穩定可靠主要水源
+
+  
+
+發展局局長甯漢豪表示，香港的雨水收集不足以應付全港淡水使用需求，因此主要依賴東江水供港，現時東江水佔全港食水用量達七至八成，是穩定可靠的主要水源。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm)
+
+---
+
+# 陳茂波：香港在動盪時期會保持開放　願意建立新聯繫和新夥伴關係
+
+  
+
+財政司司長陳茂波表示，因貿易戰及科技碎片化的關係，全球格局正出現變化，正重塑產業鏈、供應鏈和夥伴關係等，很多企業在新常態下要尋求新合作夥伴，探索新市場，並要採用更靈活的商業模式。他說，香港在動盪時期會保持開放，歡迎世界各地的企業和人才，本港願意建立新聯繫和新夥伴關係，強調本港會確保自由港地位，保持自由貿易政策不變，會堅定保持資金、貨物、資訊和人才的自由流動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm)
+
+---
+
+# 陳國基：消防處在維護國家安全方面擔當舉足輕重角色
+
+![陳國基指出，消防處在維護國家安全方面擔當舉足輕重的角色。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800136_1_20250413115417.jpg&q=90)
+  
+
+消防處響應「全民國家安全教育日」，在將軍澳消防及救護學院舉行開放日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm)
+
+---
+
+# 中國國際消費品博覽會今起舉行　韓正宣布系列活動正式啟動
+
+  
+
+第五屆中國國際消費品博覽會今日起一連6日在海南海口舉行，國家副主席韓正出席啟動儀式，並宣布系列活動正式啟動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800135-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800135-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800135-20250413.htm)
+
+---
+
+# 陳茂波：香港在當前環球市場前景不明朗下顯得更穩定和具吸引力
+
+![陳茂波日前會同財經事務及庫務局局長、商務及經濟發展局局長和金融監管機構代表會見傳媒。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800134_1_20250413111019.jpg&q=75)
+  
+
+財政司司長陳茂波表示，自美國公布向全球貿易伙伴施加所謂「對等關稅」後，國際金融市場出現大幅波動，美國國庫債券價格急跌、孳息急升；上周開始至今，港匯持續偏強，港元兌美元仍處於強方水平，顯示資金仍留在本港市場，港股經過上周一跌勢後大致穩定，上周五恒生指數收市，仍略高於今年一月初的水平，上周的平均每日成交額增至4276億港元，比前周增加約68%，反映過去一周市場整體繼續暢順有序運作，認為香港在當前環球市場前景不明朗的情況下，顯得更加穩定和具吸引力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm)
+
+---
+
+# 東盟秘書長高金洪：致力深化對華全面戰略伙伴關係　倡導多邊主義
+
+![東盟秘書長高金洪：致力深化對華全面戰略伙伴關係　倡導多邊主義](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800130_1_20250413110604.jpg&q=90)
+  
+
+東盟秘書長高金洪表示，東盟致力於深化對華全面戰略伙伴關係，同時倡導多邊主義，以應對共同挑戰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800130-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800130-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800130-20250413.htm)
+
+---
+
+# 尹錫悅首次刑事審判明天舉行　倘領導叛亂罪成可能囚終身或死刑
+
+![尹錫悅被指領導叛亂的首次刑事審判明天舉行。圖為他日前返回私人住宅途中向傳媒揮手。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800133_1_20250413104522.jpg&q=80)
+  
+
+南韓前總統尹錫悅被指領導叛亂的首次刑事審判定於明天舉行，他作為被告，必須出席庭審。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800133-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800133-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800133-20250413.htm)
+
+---
+
+# 為應對復活節假期求診需要　醫管局明起啓動高峰期特別措施
+
+![醫管局明日起啓動服務需求高峰期特別措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800132_1_20250413104410.jpg&q=90)
+  
+
+醫管局公布，為應對市民在復活節假期的求診需要及減輕急症室的服務壓力，明日起啓動服務需求高峰期特別措施。復活節假期期間，即4月18日至21日將有18間普通科門診診所提供公眾假期普通科門診服務。求診人士可透過電話預約系統或「HA Go」流動應用程式內的「預約普通科門診」功能作出預約。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm)
+
+---
+
+# 本港今早相對濕度降至21% 　1984年以來4月份最低紀錄
+
+![天文台的相對濕度曾下降至21%，是天文台總部自1984年設置自動氣象站以來4月份的最低紀錄。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800129_1_20250413100044.jpg&q=90)
+  
+
+天文台表示，今早多處地區的相對濕度下降至30%或以下，而截至上午9時40分，天文台的相對濕度曾下降至21%，是天文台總部自1984年設置自動氣象站以來4月份的最低紀錄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm)
+
+---
+
 # 美國將對俄羅斯的部份制裁措施延長一年
 
+![據美國聯邦公報網站，特朗普簽署行政命令，繼續執行行政命令宣布的國家緊急狀態一年。（網上截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800128_1_20250413101033.jpg&q=85)
   
 
 美國將對俄羅斯的部份制裁措施延長一年。
@@ -23,6 +284,7 @@
 
 # 許正宇：本港金融系統久經歷練　有信心香港可立於不敗之地
 
+![許正宇表示，即使宏觀環境複雜，最重要是「人亂我不亂」。（商台直播截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800127_2_20250413104711.jpg&q=85)
   
 
 財經事務及庫務局局長許正宇表示，美國實施關稅政策，對全球經濟百害而無一利，但香港股票市場穩健，交易結算有序，反映即使宏觀環境複雜，最重要是「人亂我不亂」。他認為，本港金融系統久經歷練，監管系統能夠抵禦和察覺風險，整體市場運作有序，現時需持續鞏固本港市場的安全、穩定和可預見性，有信心香港可立於不敗之地。
@@ -121,7 +383,7 @@
 ![分析指蘋果（圖）、英偉達及微軟等科技巨頭可以暫時鬆一口氣。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800123_1_20250413073234.jpg&q=90)
   
 
-美國政府將智能手機、電腦、晶片等產品，排除在所謂的對等關稅之外，措施適用於本月5日以後進入美國的電子產品，已經支付的對等關稅可以尋求退款。
+美國政府將智能手機、電腦、晶片等產品，排除在對等關稅之外，措施適用於本月5日以後進入美國的電子產品，已經支付的對等關稅可以尋求退款。
 
   
 
@@ -1172,269 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800068-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800068-20250412.htm)
-
----
-
-# 強風將影響全國半數以上省份　北京逾280棵樹倒塌
-
-![一場範圍廣、強度高的大風天氣正影響全國多地。（央視新聞截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800067_1_20250412143401.jpg&q=90)
-  
-
-一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800067-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800067-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800067-20250412.htm)
-
----
-
-# 郭俊峯料年中屬高才通續簽高峰期　將靈活調配人手核實申請人學歷
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800066_1_20250412142901.jpg&q=90)
-  
-
-入境處處長郭俊峯預計，高才通續簽的高峰期會在年中，入境處將會靈活調配人手處理並核實申請人學歷，如果之前未經核實，續簽時會進行核實程序。他提醒申請人不要誤信黑中介的服務，提交假學歷，一旦被發現使用偽造文件，最高可被判入獄14年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm)
-
----
-
-# 王文濤：美對等關稅為發展中國家特別是最不發達國家帶來巨大傷害
-
-![王文濤強調，中方採取果斷措施予以反制，既是維護自身合法權益，更是維護國際社會的公平正義。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800065_1_20250412141154.jpg&q=25)
-  
-
-商務部部長王文濤昨天與世貿組織總幹事伊維拉視像通話，王文濤表示，美國不斷出台關稅措施，為全球帶來巨大的不確定性和不穩定性，引發國際社會和美國國內的混亂局面。美方憑空炮製對等關稅，是典型的單邊霸凌做法。美國的對等關稅為發展中國家特別是最不發達國家帶來巨大傷害，甚至引發人道主義危機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm)
-
----
-
-# 中國駐美使館：中國永不會向美國極限施壓屈服
-
-![中方強調，如果美方繼續關稅數字遊戲，中方將不予理會。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800064_1_20250412132433.jpg&q=85)
-  
-
-中國今日起向原產於美國的進口商品，加徵關稅稅率上調至125%。中方指出，在目前關稅水平，美國輸華商品無市場接受可能性，如果美方繼續關稅數字遊戲，中方將不予理會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800064-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800064-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800064-20250412.htm)
-
----
-
-# 金磚成員呼籲共同反對單邊主義和貿易保護主義
-
-![中方在會議上指出，美方的對等關稅政策，對世界經濟造成持續衝擊。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800063_1_20250412130953.jpg&q=75)
-  
-
-2025年金磚國家經貿聯絡組第二次會議周四至周五以視像形式舉行，金磚成員就美國對等關稅政策深入交換意見，對相關措施引發的貿易緊張局勢表示嚴正關切，並呼籲共同反對單邊主義和貿易保護主義。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800063-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800063-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800063-20250412.htm)
-
----
-
-# 民安隊辦徵文比賽推廣國家安全　培養學生國民身份認同
-
-![民安隊在短片中介紹徵文比賽，認為有助培養學生的國民身份認同。（保安局社交網頁)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800057_1_20250412124848.jpg&q=90)
-  
-
-本月15日是全民國家安全教育日，保安局在社交平台繼續介紹不同部門與國家安全有關物品，今日由民眾安全服務隊介紹其徵文比賽，認為有助培養學生的國民身份認同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800057-20250412.htm)
-
----
-
-# 林定國稱若做好愛國主義教育　相信國家安全教育定能事半功倍
-
-![林定國表示，十分認同將國家安全教育與愛國主義教育掛勾。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800062_1_20250412125414.jpg&q=85)
-  
-
-律政司司長林定國表示，十分認同將國家安全教育與愛國主義教育掛勾，形容兩者是形影不離的「孖生兄弟」。他說國家安全教育不單是傳授有關維護國家安全，包括國家安全法律的相關知識，更重要是培養對維護國家安全，以及遵守國家安全法律的自覺性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800062-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800062-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800062-20250412.htm)
-
----
-
-# 甯漢豪冀放寬商場公共空間使用限制可搞活經濟
-
-![甯漢豪說，或會考慮採取雙信封制方式招標，亦有信心片區能成功招標。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800061_1_20250412130149.jpg&q=65)
-  
-
-發展局推出試行計劃，放寛商場或其他商業項目使用室內和戶外公共空間的限制，精簡審批程序，發展局局長甯漢豪形容「拆牆鬆綁」是希望「搞活」經濟，用好商場的公共空間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800061-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800061-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800061-20250412.htm)
-
----
-
-# 周一鳴：公眾活動被騎劫風險不容忽視
-
-![周一鳴表示，會審視每宗遊行集會的申請，強調公眾活動被騎劫的風險不容忽視。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800060_1_20250412130111.jpg&q=85)
-  
-
-警務處處長周一鳴表示，會審視每宗遊行集會的申請，強調公眾活動被騎劫的風險不容忽視。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800060-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800060-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800060-20250412.htm)
-
----
-
-# 天文台：下午稍後至黃昏前後部分地區雨勢較大　或有猛烈陣風
-
-![天文台表示，今日下午稍後至黃昏前後部分地區雨勢較大，亦可能有猛烈陣風。（天文台網頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800059_1_20250412121639.jpg&q=80)
-  
-
-天文台表示，今日下午稍後至黃昏前後部分地區雨勢較大，亦可能有猛烈陣風。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800059-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800059-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800059-20250412.htm)
-
----
-
-# 搶包山選拔賽明午長洲舉行　成績最佳12選手晉身下月5日決賽
-
-![搶包山選拔賽明日下午在長洲北帝廟遊樂場足球場舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800058_1_20250412121822.jpg&q=90)
-  
-
-搶包山選拔賽明日下午在長洲北帝廟遊樂場足球場舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800058-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800058-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800058-20250412.htm)
 
 ---

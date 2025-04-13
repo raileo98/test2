@@ -1,9 +1,32 @@
+# 中國國際消費品博覽會今起舉行　韓正宣布系列活動正式啟動
+
+  
+
+第五屆中國國際消費品博覽會今日起一連6日在海南海口舉行，國家副主席韓正出席啟動儀式，並宣布系列活動正式啟動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800135-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800135-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800135-20250413.htm)
+
+---
+
 # 美國將手機等產品排除對等關稅外　新華社文章強調貿易戰無贏家
 
 ![分析指蘋果（圖）、英偉達及微軟等科技巨頭可以暫時鬆一口氣。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800123_1_20250413073234.jpg&q=90)
   
 
-美國政府將智能手機、電腦、晶片等產品，排除在所謂的對等關稅之外，措施適用於本月5日以後進入美國的電子產品，已經支付的對等關稅可以尋求退款。
+美國政府將智能手機、電腦、晶片等產品，排除在對等關稅之外，措施適用於本月5日以後進入美國的電子產品，已經支付的對等關稅可以尋求退款。
 
   
 
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799794-20250410.htm)
-
----
-
-# 盧金榮支持國家堅定立場維護自身合法權益
-
-![盧金榮表示，美國總統特朗普再加關稅已經沒有意義。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799786_1_20250410172051.jpg&q=75)
-  
-
-廠商會會長盧金榮說，對於美國進一步向中國產品加徵累計125%關稅，企圖令中國屈服而談判，對此強烈反對，並支持國家堅定立場，沉著應對，維護自身合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799786-20250410.htm)
 
 ---
