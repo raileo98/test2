@@ -1,5 +1,6 @@
 # 南韓共同民主黨前議員金慶洙宣布參選總統　提出重組行政區域
 
+![尹錫悅被彈劾下台，觸發南韓須舉行總統選舉。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800199_1_20250414004630.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 南韓共同民主黨前議員、慶尚南道前知事金慶洙宣布參加總統選舉。
