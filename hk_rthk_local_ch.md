@@ -1,5 +1,6 @@
 # 海關機場偵破兩宗毒品案件檢獲約1190萬元懷疑毒品
 
+![海關檢獲共約12公斤懷疑氯胺酮及約7公斤懷疑可卡因。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800185_1_20250413194937.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 海關昨日在機場破獲兩宗涉及旅客販運毒品的案件，檢獲共約12公斤懷疑氯胺酮及約7公斤懷疑可卡因，估計市值共約1190萬元。
