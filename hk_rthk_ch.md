@@ -1,3 +1,26 @@
+# 數字辦與上海數據局在港簽署《滬港數字經濟合作備忘錄》
+
+  
+
+數字辦與上海市數據局在香港簽署《滬港數字經濟合作備忘錄》，共同推進滬港兩地圍繞數字經濟、數字化轉型、數據要素發展等領域深化合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm)
+
+---
+
 # 民主黨特別會員大會絕大多數票數通過授權中委會跟進解散
 
   
@@ -1412,30 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800102-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800102-20250412.htm)
-
----
-
-# 啟德體育園演唱會散場人流高峰　運輸署籲觀眾乘搭港鐵
-
-![運輸署提醒觀眾留意場地廣播及「離場易」平台實時資訊。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800101_2_20250412233744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-![觀眾離場時分別前往港鐵站或巴士站。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800101_3_20250412233744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-運輸署表示，現時為啟德體育園演唱會散場人流高峰時段，宋皇臺道的士上落客區現時輪候人數較多，輪候時間會較長，呼籲觀眾選擇乘搭港鐵離開啟德體育園。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800101-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800101-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800101-20250412.htm)
 
 ---

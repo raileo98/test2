@@ -1,3 +1,26 @@
+# 數字辦與上海數據局在港簽署《滬港數字經濟合作備忘錄》
+
+  
+
+數字辦與上海市數據局在香港簽署《滬港數字經濟合作備忘錄》，共同推進滬港兩地圍繞數字經濟、數字化轉型、數據要素發展等領域深化合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm)
+
+---
+
 # 央視「玉淵譚天」：決不允許拿中方利益當美國談判投名狀
 
 ![「玉淵譚天」說，中方正與多國共同應對美國濫施關稅，決不允許拿中方利益當美國談判投名狀。（徵博截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800167_2_20250413172122.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799835-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799835-20250410.htm)
-
----
-
-# 深圳市口岸辦：Coldplay香港演唱會引發跨境返程高峰
-
-![Coldplay 在啟德體育園舉行演唱會，吸引大批樂迷來港。(Live station HK 社交平台圖片)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799832_2_20250410223526.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
-  
-
-深圳市政府口岸辦公室發布，4月8日至9日的英國樂隊Coldplay香港演唱會，引發跨境返程高峰，近1萬2千名内地樂迷深夜經皇崗口岸返回深圳。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799832-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799832-20250410.htm](https://news.rthk.hk/rthk/ch/component/k2/1799832-20250410.htm)
 
 ---

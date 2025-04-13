@@ -1,3 +1,26 @@
+# 數字辦與上海數據局在港簽署《滬港數字經濟合作備忘錄》
+
+  
+
+數字辦與上海市數據局在香港簽署《滬港數字經濟合作備忘錄》，共同推進滬港兩地圍繞數字經濟、數字化轉型、數據要素發展等領域深化合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm)
+
+---
+
 # 民主黨特別會員大會絕大多數票數通過授權中委會跟進解散
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800025-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800025-20250412.htm)
-
----
-
-# 天文台料冷鋒相關驟雨及強烈狂風雷暴日間影響珠江口一帶
-
-![天文台料冷鋒相關驟雨及強烈狂風雷暴日間影響珠江口一帶](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800011_1_20250412002738.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-天文台表示，現時位於華中的一道低壓槽會在今日發展為一道冷鋒，隨著冷鋒向南移動，預料相關的驟雨及強烈狂風雷暴會在日間影響珠江口一帶，部分地區雨勢較大，亦有猛烈陣風。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800011-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800011-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800011-20250412.htm)
 
 ---
