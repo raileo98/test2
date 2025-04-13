@@ -1,3 +1,50 @@
+# 南韓共同民主黨前議員金慶洙宣布參選總統　提出重組行政區域
+
+  
+
+南韓共同民主黨前議員、慶尚南道前知事金慶洙宣布參加總統選舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800199-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800199-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800199-20250414.htm)
+
+---
+
+# 日媒民調指石破茂支持率略升　逾八成四人認為美關稅措施影響生活
+
+![石破茂（右）內閣支持率為32.6%，較上次調查略有上升。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800198_1_20250414002820.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本共同社進行的民調顯示，首相石破茂內閣支持率為32.6%，較上次調查略有上升；不支持率就是53.8%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800198-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800198-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800198-20250414.htm)
+
+---
+
 # 白宮醫生指特朗普認知及健康極好　完成適合履行國家元首職務
 
 ![特朗普進行第二個總統任期的首次年度身體檢查。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800197_1_20250414001348.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800133-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800133-20250413.htm)
-
----
-
-# 為應對復活節假期求診需要　醫管局明起啓動高峰期特別措施
-
-![醫管局明日起啓動服務需求高峰期特別措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800132_1_20250413104410.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-醫管局公布，為應對市民在復活節假期的求診需要及減輕急症室的服務壓力，明日起啓動服務需求高峰期特別措施。復活節假期期間，即4月18日至21日將有18間普通科門診診所提供公眾假期普通科門診服務。求診人士可透過電話預約系統或「HA Go」流動應用程式內的「預約普通科門診」功能作出預約。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm)
-
----
-
-# 本港今早相對濕度降至21% 　1984年以來4月份最低紀錄
-
-![天文台的相對濕度曾下降至21%，是天文台總部自1984年設置自動氣象站以來4月份的最低紀錄。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800129_1_20250413100044.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-天文台表示，今早多處地區的相對濕度下降至30%或以下，而截至上午9時40分，天文台的相對濕度曾下降至21%，是天文台總部自1984年設置自動氣象站以來4月份的最低紀錄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm)
 
 ---

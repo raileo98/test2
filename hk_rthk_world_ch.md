@@ -1,3 +1,50 @@
+# 南韓共同民主黨前議員金慶洙宣布參選總統　提出重組行政區域
+
+  
+
+南韓共同民主黨前議員、慶尚南道前知事金慶洙宣布參加總統選舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800199-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800199-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800199-20250414.htm)
+
+---
+
+# 日媒民調指石破茂支持率略升　逾八成四人認為美關稅措施影響生活
+
+![石破茂（右）內閣支持率為32.6%，較上次調查略有上升。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800198_1_20250414002820.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本共同社進行的民調顯示，首相石破茂內閣支持率為32.6%，較上次調查略有上升；不支持率就是53.8%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800198-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800198-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800198-20250414.htm)
+
+---
+
 # 白宮醫生指特朗普認知及健康極好　完成適合履行國家元首職務
 
 ![特朗普進行第二個總統任期的首次年度身體檢查。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800197_1_20250414001348.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm)
-
----
-
-# 習近平強調關稅戰無贏家　中方不畏懼任何無理打壓
-
-![習近平會見訪華的西班牙首相桑切斯，期間談及關稅議題。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799977_1_20250411193050.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-國家主席習近平在北京，會見訪華的西班牙首相桑切斯，期間談及關稅議題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799977-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799977-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799977-20250411.htm)
-
----
-
-# 習近平︰打關稅戰沒有贏家　中國不畏懼任何無理打壓
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799972_1_20250411183030.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-國家主席習近平在北京會見訪華的西班牙首相桑切斯。習近平強調，打關稅戰沒有贏家，同世界作對將孤立自己。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm)
 
 ---
