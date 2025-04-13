@@ -1,3 +1,27 @@
+# 內地3月新增貸款和社融增量均高過預期
+
+![人民銀行公布，首季人民幣新增貸款9.78萬億元，據路透計算，3月新增貸款3.64萬億元，高過市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800210_1_20250414060725.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+人民銀行周日發布數據顯示，首季人民幣新增貸款9.78萬億元，據路透計算，3月新增貸款3.64萬億元，高過市場預期中值的3萬億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800210-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800210-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800210-20250414.htm)
+
+---
+
 # 習近平稱中越要密切多邊協作促亞洲繁榮　指保護主義無出路
 
 ![習近平說中越要密切多邊協作，促進亞洲繁榮振興。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800206_1_20250414031419.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm)
-
----
-
-# 習近平晤桑切斯談及關稅戰指無贏家　與世界作對將孤立自己
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799932_1_20250411150400.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-國家主席習近平在北京釣魚台國賓館，會見訪華的西班牙首相桑切斯，期間談及關稅議題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799932-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799932-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799932-20250411.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 內地3月新增貸款和社融增量均高過預期
+
+![人民銀行公布，首季人民幣新增貸款9.78萬億元，據路透計算，3月新增貸款3.64萬億元，高過市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800210_1_20250414060725.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+人民銀行周日發布數據顯示，首季人民幣新增貸款9.78萬億元，據路透計算，3月新增貸款3.64萬億元，高過市場預期中值的3萬億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800210-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800210-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800210-20250414.htm)
+
+---
+
+# 美股本周焦點在於關稅進展　鮑威爾講話及業績等
+
+![美股本星期只有4日市，市場繼續留意關稅情況，並關注聯儲局主席鮑威爾講話，企業業績及債息走勢等。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800209_1_20250414055221.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+美股本星期只有4日市，將於周五耶穌受難日休市。美股3大指數上星期顯著波動，道瓊斯指數升近5%，標準普爾500指數升近6%，納斯達克指數升逾7%。本周市場繼續留意關稅情況，並關注聯儲局主席鮑威爾講話，企業業績及債息走勢等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800209-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800209-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800209-20250414.htm)
+
+---
+
 # 陳茂波指示證監會準備　倘海外上市中概股回流香港須成首選上市地
 
 ![陳茂波表示，已指示證監會和港交所做好準備。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800177_1_20250413184123.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799916-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799916-20250411.htm)
-
----
-
-# 丘應樺︰特首下月訪中東謀發展新市場　陳美寶︰有策略應對關稅戰
-
-![丘應樺表示，行政長官下月將與內地企業一同出訪中東。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799915_1_20250411123930.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-商務及經濟發展局局長丘應樺表示，行政長官下月將與內地企業一同出訪中東，在地緣發展緊張的情況下，謀求發展中東新市場和東盟市場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799915-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799915-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799915-20250411.htm)
-
----
-
-# 港股臨近中午收市轉升　恒指半日升116點
-
-![恒指半日收報20798點，升116點，升幅0.56%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799914_1_20250411121246.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-港股先跌後回升，恒指最多跌近240點，臨近中午收市轉升，並以近半日高位收市，報20798點，升116點，升幅0.56%，主板成交額縮至約1279億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799914-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799914-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799914-20250411.htm)
 
 ---

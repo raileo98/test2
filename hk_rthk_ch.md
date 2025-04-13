@@ -1,3 +1,51 @@
+# 內地3月新增貸款和社融增量均高過預期
+
+![人民銀行公布，首季人民幣新增貸款9.78萬億元，據路透計算，3月新增貸款3.64萬億元，高過市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800210_1_20250414060725.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+人民銀行周日發布數據顯示，首季人民幣新增貸款9.78萬億元，據路透計算，3月新增貸款3.64萬億元，高過市場預期中值的3萬億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800210-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800210-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800210-20250414.htm)
+
+---
+
+# 美股本周焦點在於關稅進展　鮑威爾講話及業績等
+
+![美股本星期只有4日市，市場繼續留意關稅情況，並關注聯儲局主席鮑威爾講話，企業業績及債息走勢等。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800209_1_20250414055221.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+美股本星期只有4日市，將於周五耶穌受難日休市。美股3大指數上星期顯著波動，道瓊斯指數升近5%，標準普爾500指數升近6%，納斯達克指數升逾7%。本周市場繼續留意關稅情況，並關注聯儲局主席鮑威爾講話，企業業績及債息走勢等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800209-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800209-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800209-20250414.htm)
+
+---
+
 # 加沙城最後功能齊全醫院被炸　以軍指院內有哈馬斯指揮中心
 
 ![被炸醫院部分建築被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800207_1_20250414045608.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800141-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800141-20250413.htm)
-
----
-
-# 孫東：面對更複雜形勢　本港要堅持自由開放聯通全球
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800140_1_20250413123420.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-國際創科營商周開幕，創新科技及工業局局長孫東表示，創科營商周可向世界展示香港改革開放、充滿創新的機遇，現時面對更複雜形勢，尤其貿易戰及關稅戰，本港要堅持成功精髓，即是自由開放，聯通全球，以及協同創新，只要堅持走下去，就可把道路愈走愈寬、愈走愈廣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800140-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800140-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800140-20250413.htm)
-
----
-
-# 緬甸發生5.6級地震
-
-![緬甸發生5.6級地震](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800138_1_20250413114914.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-緬甸發生5.6級地震，震源深度為35公里。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800138-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800138-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800138-20250413.htm)
 
 ---
