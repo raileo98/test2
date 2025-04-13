@@ -1,3 +1,27 @@
+# 習近平明天出訪越南　越外長：雙方將簽署涵蓋多個領域合作文件
+
+![習近平明天起，對越南、馬來西亞及柬埔寨三國展開國事訪問。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800192_1_20250413214419.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+國家主席習近平明天起對越南、馬來西亞及柬埔寨三國展開國事訪問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800192-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800192-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800192-20250413.htm)
+
+---
+
 # 天文台料周中沙塵天氣情況會逐漸緩解
 
 ![天文台說，華中至華南一帶的沙塵天氣報告可以觀測到沙塵天氣南下。（天文台網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800191_1_20250413213122.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
