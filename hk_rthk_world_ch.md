@@ -1,3 +1,26 @@
+# 美國賓夕法尼亞州州長官邸疑被縱火　疑犯已被警方扣查
+
+  
+
+美國賓夕法尼亞州州長夏皮羅官邸懷疑被人縱火，疑犯已被警方扣查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800211-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800211-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800211-20250414.htm)
+
+---
+
 # 加沙城最後功能齊全醫院被炸　以軍指院內有哈馬斯指揮中心
 
 ![被炸醫院部分建築被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800207_1_20250414045608.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800013-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800013-20250412.htm)
-
----
-
-# 烏克蘭盟友承諾新一輪軍援　澤連斯基冀提供10套愛國者系統
-
-![英國、德國和烏克蘭防長出席記者會。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800012_1_20250412005240.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-烏克蘭防務問題國際聯絡小組會議在比利時布魯塞爾舉行，美國、英國、德國等大約50個國家的代表出席，承諾向基輔提供210億歐元的新一輪軍事援助。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800012-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800012-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800012-20250412.htm)
 
 ---

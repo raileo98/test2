@@ -1,3 +1,26 @@
+# 美國賓夕法尼亞州州長官邸疑被縱火　疑犯已被警方扣查
+
+  
+
+美國賓夕法尼亞州州長夏皮羅官邸懷疑被人縱火，疑犯已被警方扣查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800211-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800211-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800211-20250414.htm)
+
+---
+
 # 內地3月新增貸款和社融增量均高過預期
 
 ![人民銀行公布，首季人民幣新增貸款9.78萬億元，據路透計算，3月新增貸款3.64萬億元，高過市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800210_1_20250414060725.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800142-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800142-20250413.htm)
-
----
-
-# 許正宇：面對美國關稅措施但本港市場維持運作有序
-
-![許正宇表示，面對美國的關稅措施，本港市場維持運作有序，有信心香港可立於不敗之地。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800141_1_20250413121946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-財經事務及庫務局局長許正宇表示，面對美國的關稅措施，環球經濟受影響，但本港市場維持運作有序，有信心香港可立於不敗之地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800141-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800141-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800141-20250413.htm)
 
 ---
