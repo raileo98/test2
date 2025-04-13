@@ -1,3 +1,27 @@
+# 加沙城最後功能齊全醫院被炸　以軍指院內有哈馬斯指揮中心
+
+![被炸醫院部分建築被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800207_1_20250414045608.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
+  
+
+以色列空襲加沙城最後一所功能齊全的醫院，醫院部分設施被摧毀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800207-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800207-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800207-20250414.htm)
+
+---
+
 # 習近平稱中越要密切多邊協作促亞洲繁榮　指保護主義無出路
 
 ![習近平說中越要密切多邊協作，促進亞洲繁榮振興。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800206_1_20250414031419.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800012-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800012-20250412.htm)
-
----
-
-# Tesla中國暫停接受兩款進口型號汽車新訂單
-
-![Tesla中國官網已暫停接受Model S和Model X兩個型號汽車的新訂單，僅保留「查看現車」選項。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799999_1_20250411214432.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-貿易戰下，美國電動車生產商Tesla的中國官網，已暫停接受Model S和Model X兩個型號汽車的新訂單，僅保留「查看現車」選項，意味消費者只能選購現有庫存車輛。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799999-20250411.htm)
 
 ---

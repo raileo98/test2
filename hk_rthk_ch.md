@@ -1,3 +1,27 @@
+# 加沙城最後功能齊全醫院被炸　以軍指院內有哈馬斯指揮中心
+
+![被炸醫院部分建築被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800207_1_20250414045608.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
+  
+
+以色列空襲加沙城最後一所功能齊全的醫院，醫院部分設施被摧毀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800207-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800207-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800207-20250414.htm)
+
+---
+
 # 習近平稱中越要密切多邊協作促亞洲繁榮　指保護主義無出路
 
 ![習近平說中越要密切多邊協作，促進亞洲繁榮振興。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800206_1_20250414031419.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800138-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800138-20250413.htm)
-
----
-
-# 甯漢豪：東江水現佔全港食水用量達七至八成是穩定可靠主要水源
-
-![甯漢豪（右）表示，現時東江水佔全港食水用量達七至八成。黃恩諾（左）解釋，興建將軍澳海水化淡廠的主要目的在於應對氣候變化所帶來的影響，並非取代東江水作為主要水源。（發展局網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800139_1_20250413123754.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-發展局局長甯漢豪表示，香港的雨水收集不足以應付全港淡水使用需求，因此主要依賴東江水供港，現時東江水佔全港食水用量達七至八成，是穩定可靠的主要水源。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm)
 
 ---
