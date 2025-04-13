@@ -1,5 +1,6 @@
 # 加蓬內政部公布過渡總統恩圭馬於總統選舉中獲勝
 
+![內政部指恩圭馬（圖）得票率為90.35%，擊敗其他對手。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800200_1_20250414005748.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 根據加蓬內政部公布的初步點票結果，過渡總統恩圭馬在當地過去的周六舉行的總統選舉中獲勝。
