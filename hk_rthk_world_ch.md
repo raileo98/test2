@@ -1,3 +1,27 @@
+# 加沙衛生部門稱以軍行動一天內造成至少11人死亡
+
+![加沙衛生部門說，以軍要求在阿赫利阿拉伯醫院一座建築物內的工作人員和患者撤離，隨後轟炸這座建築。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800186_1_20250413194641.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
+  
+
+加沙地帶衛生部門周日說，過去24小時內，以色列軍隊在加沙地帶的軍事行動造成至少11人死亡、111人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800186-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800186-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800186-20250413.htm)
+
+---
+
 # 烏方稱俄羅斯對蘇梅導彈襲擊增至逾30人死
 
 ![消防員在導彈襲擊現場撲救火勢。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800183_1_20250413191327.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799949-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799949-20250411.htm)
-
----
-
-# 商務部嚴厲譴責美國提高對華關稅　指畸高關稅淪數字游戲及笑話
-
-![商務部新聞發言人表示，嚴厲譴責美方肆意的單邊關稅措施堅決反對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799948_1_20250411162016.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-中國再反制美國提高對華關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799948-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799948-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799948-20250411.htm)
 
 ---

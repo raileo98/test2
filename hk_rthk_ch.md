@@ -1,3 +1,50 @@
+# 加沙衛生部門稱以軍行動一天內造成至少11人死亡
+
+![加沙衛生部門說，以軍要求在阿赫利阿拉伯醫院一座建築物內的工作人員和患者撤離，隨後轟炸這座建築。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800186_1_20250413194641.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
+  
+
+加沙地帶衛生部門周日說，過去24小時內，以色列軍隊在加沙地帶的軍事行動造成至少11人死亡、111人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800186-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800186-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800186-20250413.htm)
+
+---
+
+# 海關機場偵破兩宗毒品案件檢獲約1190萬元懷疑毒品
+
+  
+
+海關昨日在機場破獲兩宗涉及旅客販運毒品的案件，檢獲共約12公斤懷疑氯胺酮及約7公斤懷疑可卡因，估計市值共約1190萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800185-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800185-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800185-20250413.htm)
+
+---
+
 # 美方豁免部分商品對等關稅　商務部：修正錯誤做法一小步
 
 ![商務部敦促美方在糾錯方面邁出一大步，徹底取消對等關稅的錯誤做法。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800184_1_20250413192442.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
