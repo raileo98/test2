@@ -1,3 +1,27 @@
+# 烏方稱俄羅斯對蘇梅導彈襲擊增至逾30人死
+
+![消防員在導彈襲擊現場撲救火勢。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800183_1_20250413191327.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+烏克蘭緊急部門說，俄羅斯對蘇梅市的導彈襲擊，增至31人死亡，包括兩名小童。另有84人受傷，其中10人是小童。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800183-20250413.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800183-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800183-20250413.htm)
+
+---
+
 # 12人躋身搶包山決賽　下月角逐「包山王」及「包山后」
 
 ![康文署表示，12名健兒成功躋身下月5日晚舉行的「搶包山決賽」。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800181_1_20250413184413.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
