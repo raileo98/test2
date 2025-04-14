@@ -119,7 +119,7 @@
 
 # 港大宣布汪揚將出任副校長負責大學拓展　８月履新
 
-![汪揚將出任港大副校長，負責大學拓展，8月履新。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800313_1_20250414163126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![汪揚將出任港大副校長，負責大學拓展，8月履新。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800313_1_20250414163126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 港大宣布，科大副校長汪揚將出任港大副校長，負責大學拓展，今年8月1日履新。

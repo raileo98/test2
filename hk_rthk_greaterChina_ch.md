@@ -165,12 +165,12 @@
 
 ---
 
-# 分析：中國對美國出口或跌逾20%　雙方貿易不會完全消失
+# 分析：內地或需進一步發債直接支持基建及消費應對貿易戰
 
-![吳卓殷料中美貿易戰內地對美國出口或下跌20-30%，但部分產品對華有依賴性，雙方貿易不會完全消失。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800286_1_20250414133323.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
+![吳卓殷指出上月內地出口仍錄得增長，可能反映企業因應關稅提早出貨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800286_1_20250414133323.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
   
 
-中國海關總署公布，以美元計價，內地3月出口按年增長12.4%，創5個月以來最快增速；進口下跌4.3%。
+內地3月以美元計價出口按年增長12.4%，創5個月以來最快增速；進口下跌4.3%。首季出口按年增長5.8%，進口下跌7%，貿易順差約2730億美元；期內對美國出口按年增長4.5%，自美國進口按年跌1.4%，期內中國對美國貿易順差766.5億美元。
 
   
 
