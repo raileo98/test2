@@ -70,7 +70,7 @@ World leaders condemned the latest Russian missile strike on Ukraine, one of the
 
 ---
 
-# Incumbent Noboa wins presential election in Ecuador
+# Incumbent Noboa wins presidential election in Ecuador
 
 ![Daniel Noboa talks to supporters as his wife Lavinia Valbonesi claps in Santa Elena province, Ecuador, at the weekend. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800277_1_20250414123914.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
