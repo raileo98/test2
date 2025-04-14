@@ -1,3 +1,27 @@
+# Trade war 'may jeopardize global tech development'
+
+![Paul Chan says more barriers are expected under the trade war, which could harm innovation and global technological development. Photo: GIS](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800336_1_20250414182206.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Financial Secretary Paul Chan said on Monday the global trade war could endanger global technology development.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800336-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800336-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800336-20250414.htm)
+
+---
+
 # 20 more response teams for extreme floods
 
 ![The Drainage Services Department says the increase in the number of emergency response teams will enable extreme flood events to be brought under control in one or two hours. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800328_1_20250414180657.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1413,29 +1437,5 @@ There was fanfare at the Kai Tak Stadium on Tuesday evening as Coldplay kicked o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799473-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799473-20250408.htm)
-
----
-
-# Tram fares to go up on May 12
-
-![Tram fares for those aged 12 and above will rise by 30 cents to HK$3.30. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799459_1_20250408181035.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Tram fares will go up by up to 15 percent starting from May 12.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799459-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799459-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799459-20250408.htm)
 
 ---
