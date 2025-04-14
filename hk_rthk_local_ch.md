@@ -1,3 +1,49 @@
+# 邵家輝：商場舉行不同活動或攤檔可吸引人流　增加商戶生意
+
+  
+
+發展局推出試行計劃，放寛商場或其他商業項目使用室內和戶外公共空間的限制，精簡審批程序。立法會批發及零售界議員邵家輝在本台節目《千禧年代》說，非常支持試驗計劃，認為商場舉行不同類型活動或擺設攤檔，可吸引人流，有助增加商戶生意，市民亦可有更多消費體驗。至於相關申請有效期為一年，亦方便商場全年安排不同大型活動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800261-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800261-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800261-20250414.htm)
+
+---
+
+# 鄭雁雄：香港定能為推動構建網絡空間命運共同體作出更大貢獻
+
+  
+
+世界互聯網大會亞太峰會早上在香港會展舉行，中聯辦主任鄭雁雄表示，香港是互聯網發展的先行地區，具有全球金融、航運、貿易中心的傳統優勢，亦有人工智能研發創科發展及人才等新優勢，更有制度創新、兩文三語、文化包容及內聯外通等獨特優勢，相信香港定能為推動構建網絡空間命運共同體作出新的更大貢獻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800260-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800260-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800260-20250414.htm)
+
+---
+
 # 李家超：香港永遠倡導自由貿易多邊主義　歡迎企業來港尋求發展
 
 ![李家超說今次峰會在香港主辦，充分證明香港作為國際創科中心的地位正在不斷上升。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800256_1_20250414110658.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1393,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800097-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800097-20250412.htm)
-
----
-
-# Coldplay尾場演出場外傘架爆滿　有長傘暫置草叢或石壆
-
-![有長傘被擺放於草叢及石壆位置。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800096_2_20250412211906.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-英國著名樂隊Coldplay在香港啟德體育園主場館舉行的四場演唱會，今晚上演最後一場。啟德下午一度下大雨，晚上入場時已經停雨，不少觀眾攜帶了不能帶進場的長雨傘，場外的雨傘架放滿長雨傘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800096-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800096-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800096-20250412.htm)
-
----
-
-# 屯門輕鐵車廠站附近有人遭輕鐵撞倒　一度被困車底及後救出
-
-![屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻。（網上圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800088_2_20250412192251.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-屯門輕鐵車廠站附近有途人遭輕鐵撞倒，一度被困車底，及後由消防員救出，附近輕鐵服務一度受阻，之後陸續恢復。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Tariffs violate international practice, Eric Chan says
+
+![Eric Chan says US tariffs have seriously affected the SAR's business environment.  File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800251_1_20250414105239.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Chief Secretary Eric Chan said Washington's move to impose tariffs on imports from around the world violates international practice.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800251-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800251-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800251-20250414.htm)
+
+---
+
 # Democratic Party moves towards disbandment
 
 ![Democratic Party chairman Lo Kin-hei met the press after a special meeting on Sunday. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800182_1_20250413191323.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1412,29 +1436,5 @@ Financial Secretary Paul Chan said the Hong Kong stock market and the local curr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799293-20250407.htm)
-
----
-
-# HK stocks slump has retail investors seeing red
-
-![Retail investors mostly saw red on the worst day for Hong Kong stocks in nearly three decades. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799281_2_20250407180508.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Small-time investors in Hong Kong were left reeling on Monday as US President Donald Trump's punishing tariffs and Beijing's retaliation saw the city's stock market suffer its worst day in almost three decades.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799281-20250407.htm)
 
 ---

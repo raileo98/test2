@@ -1,3 +1,27 @@
+# 內地3月出口以美元計價按年增長12.4%　創5個月最快增速
+
+![按美元計價，內地3月出口按年增長12.4%，創5個月以來最快增速；進口下跌4.3%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800258_1_20250414111140.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+中國海關總署公布，以美元計價，內地3月出口按年增長12.4%，創5個月以來最快增速；進口下跌4.3%，3月貿易順差1026.4億美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800258-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800258-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800258-20250414.htm)
+
+---
+
 # 王令浚：美國實施所謂對等關稅是典型關稅霸凌行為
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799977-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799977-20250411.htm)
-
----
-
-# 習近平︰打關稅戰沒有贏家　中國不畏懼任何無理打壓
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799972_1_20250411183030.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-國家主席習近平在北京會見訪華的西班牙首相桑切斯。習近平強調，打關稅戰沒有贏家，同世界作對將孤立自己。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm)
 
 ---

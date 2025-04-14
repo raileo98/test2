@@ -1,3 +1,27 @@
+# China will defend world trade system: expert
+
+![Victor Gao said the United States should take responsibility for the current turmoil in global trade. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800259_1_20250414111614.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
+  
+
+A leading commentator on Chinese affairs on Monday said the US trade war would prove costly for all concerned, including the United States.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800259-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800259-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800259-20250414.htm)
+
+---
+
 # Xi calls for greater cooperation with Vietnam
 
 ![President Xi starts a three-nation tour of Southeast Asia this week, beginning with Vietnam on Monday. File photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800223_1_20250414082321.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ President Xi Jinping on Friday urged a gathering of multinational CEOs to protec
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm)
-
----
-
-# Quake causes injuries and property damage in Ruili
-
-![Chinese residents flee as building debris shaken loose by the earthquake in Myanmar falls. Photo: taken from online](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797900_1_20250328181242.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-The earthquake in Myanmar was felt in China's Yunnan and Sichuan provinces and caused injuries and damage to houses in the city of Ruili on the border with northern Myanmar, according to Chinese media reports.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm)
 
 ---
