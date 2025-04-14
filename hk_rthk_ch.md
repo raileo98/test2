@@ -1,3 +1,27 @@
+# 特朗普稱伊朗拖延核談判進程
+
+![特朗普在白宮會見到訪的薩爾瓦多總統布克爾。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800372_1_20250415034613.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+美國總統特朗普說，伊朗正在拖延與美國的核問題談判進程，可能面臨美國的「嚴厲回應」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800372-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800372-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800372-20250415.htm)
+
+---
+
 # 全女班飛行　Katy Perry在內6人完成太空之旅
 
 ![Katy Perry完成太空之旅後步出太空艙。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800371_1_20250415033223.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800305-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800305-20250414.htm)
-
----
-
-# 「世越」號沉沒事故　南韓當局裁定舵機故障等船體內部原因引致
-
-![「世越」號沉沒事故　南韓當局裁定舵機故障等船體內部原因引致](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800304_1_20250414150909.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-南韓「世越」號客輪2014年沉沒事故，木浦地方海洋安全審判院表示，院方去年11月作出裁決，認定事故是由於舵機故障等船體內部原因所致，排除「世越」號因與潛艇相撞等外部原因傾覆的可能。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800304-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800304-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800304-20250414.htm)
 
 ---

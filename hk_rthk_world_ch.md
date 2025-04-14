@@ -1,3 +1,27 @@
+# 特朗普稱伊朗拖延核談判進程
+
+![特朗普在白宮會見到訪的薩爾瓦多總統布克爾。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800372_1_20250415034613.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+美國總統特朗普說，伊朗正在拖延與美國的核問題談判進程，可能面臨美國的「嚴厲回應」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800372-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800372-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800372-20250415.htm)
+
+---
+
 # 全女班飛行　Katy Perry在內6人完成太空之旅
 
 ![Katy Perry完成太空之旅後步出太空艙。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800371_1_20250415033223.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800114-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800114-20250413.htm)
-
----
-
-# 世糧署警告美國新一輪削援或惡化阿富汗饑餓狀況　籲捐助方增支持
-
-![圖為阿富汗民眾去年排隊，等候世界糧食計劃署派發口糧的情況。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800113_1_20250413015048.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-世界糧食計劃署警告，美國新一輪對糧食援助的削減，可能惡化阿富汗本來已十分普遍的饑餓狀況，署方只能支援當地一半貧困人口，而且亦只能提供一半口糧。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800113-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800113-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800113-20250413.htm)
 
 ---
