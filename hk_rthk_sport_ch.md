@@ -1,5 +1,6 @@
 # 英超般尼茅夫1:0富咸
 
+![般尼茅夫勝出後升上聯賽榜第8位。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800383_1_20250415072405.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 英格蘭超級足球聯賽，般尼茅夫主場1:0僅勝富咸。
