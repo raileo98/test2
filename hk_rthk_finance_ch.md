@@ -1,3 +1,26 @@
+# 陳茂波：關稅戰影響世界貿易秩序　香港聯動更多內地企業拼船出海
+
+  
+
+財政司司長陳茂波表示，美國單邊發動的關稅戰正在影響世界的貿易秩序，環球產業鏈、供應鏈正面臨巨大的割裂風險。在美國的霸凌極限施壓下，香港會用好「一國兩制」下「內聯外通」的獨特優勢，擔當好「超級聯繫人」和「超級增值人」的角色。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800291-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800291-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800291-20250414.htm)
+
+---
+
 # 分析：中國對美國出口或跌逾20%　雙方貿易不會完全消失
 
 ![吳卓殷料中美貿易戰內地對美國出口或下跌20-30%，但部分產品對華有依賴性，雙方貿易不會完全消失。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800286_1_20250414133323.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm)
-
----
-
-# 紫金礦業上季盈利按年升逾62%
-
-![紫金礦業今年首季盈利101.7億元人民幣，按年升逾62%，按季升32%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799996_1_20250411205208.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-紫金礦業公布，今年首季盈利101.7億元人民幣，按年升逾62%，按季升32%。扣除非經常性損益，盈利98.8億元，按年升近59%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799996-20250411.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 陳茂波：關稅戰影響世界貿易秩序　香港聯動更多內地企業拼船出海
+
+  
+
+財政司司長陳茂波表示，美國單邊發動的關稅戰正在影響世界的貿易秩序，環球產業鏈、供應鏈正面臨巨大的割裂風險。在美國的霸凌極限施壓下，香港會用好「一國兩制」下「內聯外通」的獨特優勢，擔當好「超級聯繫人」和「超級增值人」的角色。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800291-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800291-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800291-20250414.htm)
+
+---
+
 # 孫玉菡：有信心油尖旺區會有社區客廳　目前有待落實細節
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm)
-
----
-
-# 本港今早相對濕度降至21% 　1984年以來4月份最低紀錄
-
-![天文台的相對濕度曾下降至21%，是天文台總部自1984年設置自動氣象站以來4月份的最低紀錄。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800129_1_20250413100044.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-天文台表示，今早多處地區的相對濕度下降至30%或以下，而截至上午9時40分，天文台的相對濕度曾下降至21%，是天文台總部自1984年設置自動氣象站以來4月份的最低紀錄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm)
 
 ---

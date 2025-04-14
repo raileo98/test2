@@ -1,3 +1,27 @@
+# Tech businesses voice optimism amid trade tensions
+
+![Co-founder and CEO of Fano Labs Miles Wen says his company has yet to feel any impact from the US tariffs. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800290_1_20250414134245.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+Tech businesses attending the World Internet Conference Asia-Pacific Summit in Hong Kong on Monday expressed confidence in navigating escalating trade tensions between the United States and China.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800290-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800290-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800290-20250414.htm)
+
+---
+
 # HK ready to 'make a difference' for global firms
 
 ![Chief Executive John Lee says Hong Kong welcomes all global firms to expand here despite trade frictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800284_1_20250414130920.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1437,5 @@ The central government is well prepared and has a broad arsenal to respond to an
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799392-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799392-20250408.htm)
-
----
-
-# CE vows support for influencers after IShowSpeed visit
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799389_1_20250408114853.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Chief Executive John Lee said on Tuesday Hong Kong will seize every opportunity to help social media influencers show the city to the world.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm)
 
 ---
