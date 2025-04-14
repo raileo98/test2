@@ -191,7 +191,7 @@ The Immigration Department said on Monday that more than six million travellers 
 
 ---
 
-# Tariffs violate international practice, Eric Chan says
+# Tariffs not in conformity with world practices: Chan
 
 ![Eric Chan says US tariffs have seriously affected the SAR's business environment.  File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800251_1_20250414105239.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   

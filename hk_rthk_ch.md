@@ -1,3 +1,26 @@
+# 劉國勳建議將洪水橋新發展區土地整合　並改劃發展北都大學城
+
+  
+
+去年施政報告提到，政府已在北部都會區預留最少80公頃用地，發展「北都大學教育城」。民建聯立法會議員劉國勳建議將洪水橋新發展區內原本被劃為其他用途的土地，包括位於洪水橋南北面的部分政府、機構或社區用地、工業及物流用地，整合並改劃用作發展北都大學城，令區內發展「大學城」的土地由原本只有約5公頃，增加至24至48公頃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800309-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800309-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800309-20250414.htm)
+
+---
+
 # 渠務署將強化緊急控制事故中心能力　緊急應變隊伍增至180隊
 
   
@@ -70,6 +93,7 @@
 
 # 行會成員明早出席全民國家安全教育日開幕禮　行會不舉行會議
 
+![行政會議非官守議員出席明早的「全民國家安全教育日」開幕典禮暨主題講座，行政會議明日不舉行會議。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800306_1_20250414154525.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 行政會議非官守議員將應邀出席明早舉行的「全民國家安全教育日」開幕典禮暨主題講座，行政會議明日不舉行會議。
@@ -141,6 +165,7 @@
 
 # 有人工智能初創公司稱世界互聯網大會亞太峰會有助推廣香港品牌
 
+![溫豪夫表示，峰會對香港誕生的初創公司好有幫助，向世界推廣香港品牌，有助創科企業走出去。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800301_1_20250414154406.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 世界互聯網大會亞太峰會首次一連兩日在灣仔會展舉行，吸引約30個國家和地區約1000名商界領袖、政府官員、學者、協會領袖和其他知名人士參與。

@@ -1,3 +1,28 @@
+# China 'fully backs HK's ramping up digital transition'
+
+![Chinese People's Political Consultative Conference vice-chairman Wang Yong says digital transition is a driving force for industrial productivity. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800295_1_20250414142819.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![Zheng Yanxiong, the director of the central government's liaison office in Hong Kong, said that the SAR plays a critical role in driving the internet industry's development in the region. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800295_2_20250414142819.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Beijing will fully support Hong Kong in "riding the tide of global digital transition", according to a senior national political adviser.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800295-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800295-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800295-20250414.htm)
+
+---
+
 # President Xi arrives in Vietnam for state visit
 
 ![The plane carrying the president arrives at Noi Bai International Airport in Hanoi. Photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800302_1_20250414152705.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1436,5 @@ Chief Executive John Lee says the SAR government has earmarked HK$30 million fro
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm)
-
----
-
-# China launches communication technology test satellite
-
-![This launch was the 566th mission by a Long March carrier rocket. Photo: CCTV](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798072_1_20250330024518.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-China on Sunday sent a new communication test satellite into orbit from the Wenchang Space Launch Site in Hainan Province.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm)
 
 ---

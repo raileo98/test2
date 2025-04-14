@@ -48,6 +48,7 @@
 
 # 有人工智能初創公司稱世界互聯網大會亞太峰會有助推廣香港品牌
 
+![溫豪夫表示，峰會對香港誕生的初創公司好有幫助，向世界推廣香港品牌，有助創科企業走出去。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800301_1_20250414154406.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 世界互聯網大會亞太峰會首次一連兩日在灣仔會展舉行，吸引約30個國家和地區約1000名商界領袖、政府官員、學者、協會領袖和其他知名人士參與。
