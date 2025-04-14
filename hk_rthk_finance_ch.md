@@ -1,3 +1,27 @@
+# 植田和男：美國關稅影響日本物價及經濟　央行將採取適當貨幣政策
+
+![植田和男表示，美國關稅政策為日本經濟帶來下行壓力，亦可能影響物價。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800254_1_20250414105555.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本央行總裁植田和男表示，受美國關稅政策影響，全球和日本的經濟不確定性已經大幅提升，相關政策可能通過多種渠道給全球和日本經濟帶來下行壓力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800254-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800254-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800254-20250414.htm)
+
+---
+
 # 中國海關總署：首季中美雙邊貿易仍增長4%
 
 ![呂大良（右）稱中國始終堅持擴大高水平對外開放，中國進口增長空間巨大。（盧紫青攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800276_1_20250414124311.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799990-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799990-20250411.htm)
-
----
-
-# 摩根大通上季盈利按年升逾9%
-
-![摩根大通今年首季盈利146.4億美元，按年增長逾9%，按季升近5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799993_1_20250411203319.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-摩根大通公布，今年首季盈利146.4億美元，按年增長逾9%，按季升近5%。每股經調整盈利5.07美元，按年升14%，按季升逾5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm)
 
 ---

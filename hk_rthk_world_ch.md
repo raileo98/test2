@@ -1,3 +1,27 @@
+# 植田和男：美國關稅影響日本物價及經濟　央行將採取適當貨幣政策
+
+![植田和男表示，美國關稅政策為日本經濟帶來下行壓力，亦可能影響物價。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800254_1_20250414105555.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本央行總裁植田和男表示，受美國關稅政策影響，全球和日本的經濟不確定性已經大幅提升，相關政策可能通過多種渠道給全球和日本經濟帶來下行壓力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800254-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800254-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800254-20250414.htm)
+
+---
+
 # 南韓民調顯示李在明支持率48.8%　大幅領先其他總統人選
 
 ![民調結果顯示，在新一屆總統熱門人選中，李在明支持率排名第一。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800267_1_20250414115210.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800021-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800021-20250412.htm)
-
----
-
-# 也門胡塞武裝稱襲擊美國杜魯門號航母編隊
-
-![也門首都薩那星期五有大批民眾上街，抗議美軍空襲當地。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800019_1_20250412043157.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-也門胡塞武裝表示，組織星期五襲擊了部署在紅海北部的美國航母編隊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800019-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800019-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800019-20250412.htm)
 
 ---

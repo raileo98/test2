@@ -1,3 +1,27 @@
+# 植田和男：美國關稅影響日本物價及經濟　央行將採取適當貨幣政策
+
+![植田和男表示，美國關稅政策為日本經濟帶來下行壓力，亦可能影響物價。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800254_1_20250414105555.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本央行總裁植田和男表示，受美國關稅政策影響，全球和日本的經濟不確定性已經大幅提升，相關政策可能通過多種渠道給全球和日本經濟帶來下行壓力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800254-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800254-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800254-20250414.htm)
+
+---
+
 # 有議員關注優化醫療費用減免機制複雜　盧寵茂：會盡量解說
 
   
@@ -910,7 +934,7 @@
 
 # 台灣醫護流失量大　工會病人組織冀改善醫患比例提升薪酬待遇
 
-![台灣的衛生福利部門上月要求當地醫院加強落實區域聯防機制，希望紓緩急症爆滿問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800228_1_20250414091948.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+![台灣的衛生福利部門上月要求當地醫院加強落實區域聯防機制，希望紓緩急症爆滿問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800228_2_20250414130024.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 台灣的醫院急症室經常爆滿，當地醫護界早前形容已達到前所未有的嚴重程度。有病人家屬曾經在台北的醫院急症室等候兩天才有床位，形容急症室人滿為患，所有醫護人員都在忙。有家屬表示，台灣民眾凡身體有毛病，普遍都會選擇到醫院急症室求醫，覺得醫療質素較有保證。
