@@ -1,6 +1,6 @@
 # President Xi arrives in Vietnam for state visit
 
-![The president's plane arrives at Noi Bai International Airport in Hanoi. Photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800302_1_20250414152705.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![The plane carrying the president arrives at Noi Bai International Airport in Hanoi. Photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800302_1_20250414152705.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 President Xi Jinping arrived in Hanoi on Monday to start a state visit to Vietnam.
