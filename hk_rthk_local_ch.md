@@ -1,3 +1,74 @@
+# 今年第一季約1220萬訪港旅客人次按年增9%　疫情後季度新高
+
+![旅發局公布今年第一季共錄得約1220萬訪港旅客人次，按年增加9%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800315_1_20250414162057.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+旅發局公布今年第一季共錄得約1220萬訪港旅客人次，按年增加9%，是疫情後的季度新高。其中內地旅客佔925萬人次，非內地旅客人次為298萬，分別按年上升6%及18%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800315-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800315-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800315-20250414.htm)
+
+---
+
+# 外交部：特區政府有權依照相關法律及政策處理入境個案
+
+![林劍表示，香港特區政府有權依照相關的法律及政策，處理入境的個案。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800314_1_20250414160841.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+在北京，外交部回應一名英國國會議員被拒入境香港的事件，發言人林劍表示，香港特區政府已就此作出表態。他強調入境事務是一國主權範圍內的事，香港特區政府有權依照相關的法律及政策，處理入境的個案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm)
+
+---
+
+# 港大宣布汪揚將出任副校長負責大學拓展　８月履新
+
+  
+
+港大宣布，科大副校長汪揚將出任港大副校長，負責大學拓展，今年8月1日履新。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800313-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800313-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800313-20250414.htm)
+
+---
+
 # 陳茂波：致力將香港打造成全球AI交流樞紐
 
 ![陳茂波說，數碼時代的挑戰與機遇超越國界，認為需要更多對話、共享與合作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800311_1_20250414155123.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -24,7 +95,7 @@
 
 # 劉國勳建議將洪水橋新發展區土地整合　並改劃發展北都大學城
 
-![劉國勳建議發展「大學城」，配合北都其他科研創新園區，培育及培訓人才。（游樹榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800309_1_20250414155409.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800309_1_20250414155409.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 去年施政報告提到，政府已在北部都會區預留最少80公頃用地，發展「北都大學教育城」。民建聯立法會議員劉國勳建議將洪水橋新發展區內原本被劃為其他用途的土地，包括位於洪水橋南北面的部分政府、機構或社區用地、工業及物流用地，整合並改劃用作發展北都大學城，令區內發展「大學城」的土地由原本只有約5公頃，增加至24至48公頃。
@@ -1368,77 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800147-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800147-20250413.htm)
-
----
-
-# 西九戶外演唱會　警方接4宗遺失手機報案
-
-![西九文化區竹翠公園昨晚舉行戶外演唱會，警方接獲4人報案在該處失手機。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800145_1_20250413124224.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-西九文化區竹翠公園昨晚舉行戶外演唱會，警方回覆查詢時表示，油麻地警區由昨晚至今日凌晨，接獲4人報案指，在竹翠公園遺失手提電話，向警方備案，警方暫列作遺失財物案件處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800145-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800145-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800145-20250413.htm)
-
----
-
-# 控煙酒辦在旺角一酒吧向非法吸食水煙者共發4張定額罰款通知書
-
-![控煙酒辦公室在旺角一間酒吧巡查和執法。（衞生署圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800144_1_20250413124234.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-控煙酒辦公室昨晚派員到旺角進行代號「菸滅」的行動，在旺角一間酒吧巡查和執法，向非法吸食水煙的人士，發出共4張定額罰款通知書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800144-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800144-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800144-20250413.htm)
-
----
-
-# 陳茂波：本港要保持開放　確保自由港地位
-
-![陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800142_2_20250413131536.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-財政司司長陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位，自由貿易政策不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800142-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800142-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800142-20250413.htm)
 
 ---

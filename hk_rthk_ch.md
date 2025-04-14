@@ -1,3 +1,74 @@
+# 今年第一季約1220萬訪港旅客人次按年增9%　疫情後季度新高
+
+![旅發局公布今年第一季共錄得約1220萬訪港旅客人次，按年增加9%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800315_1_20250414162057.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+旅發局公布今年第一季共錄得約1220萬訪港旅客人次，按年增加9%，是疫情後的季度新高。其中內地旅客佔925萬人次，非內地旅客人次為298萬，分別按年上升6%及18%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800315-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800315-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800315-20250414.htm)
+
+---
+
+# 外交部：特區政府有權依照相關法律及政策處理入境個案
+
+![林劍表示，香港特區政府有權依照相關的法律及政策，處理入境的個案。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800314_1_20250414160841.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+在北京，外交部回應一名英國國會議員被拒入境香港的事件，發言人林劍表示，香港特區政府已就此作出表態。他強調入境事務是一國主權範圍內的事，香港特區政府有權依照相關的法律及政策，處理入境的個案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm)
+
+---
+
+# 港大宣布汪揚將出任副校長負責大學拓展　８月履新
+
+  
+
+港大宣布，科大副校長汪揚將出任港大副校長，負責大學拓展，今年8月1日履新。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800313-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800313-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800313-20250414.htm)
+
+---
+
 # 中方對在涉藏問題表現惡劣美方人員對等採取簽證限制措施
 
 ![外交部表示，中方決定對在涉藏問題上表現惡劣的美方人員，對等採取簽證限制措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800312_1_20250414155742.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -72,7 +143,7 @@
 
 # 劉國勳建議將洪水橋新發展區土地整合　並改劃發展北都大學城
 
-![劉國勳建議發展「大學城」，配合北都其他科研創新園區，培育及培訓人才。（游樹榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800309_1_20250414155409.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800309_1_20250414155409.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 去年施政報告提到，政府已在北部都會區預留最少80公頃用地，發展「北都大學教育城」。民建聯立法會議員劉國勳建議將洪水橋新發展區內原本被劃為其他用途的土地，包括位於洪水橋南北面的部分政府、機構或社區用地、工業及物流用地，整合並改劃用作發展北都大學城，令區內發展「大學城」的土地由原本只有約5公頃，增加至24至48公頃。

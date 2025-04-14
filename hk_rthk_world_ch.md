@@ -1,3 +1,27 @@
+# 外交部：特區政府有權依照相關法律及政策處理入境個案
+
+![林劍表示，香港特區政府有權依照相關的法律及政策，處理入境的個案。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800314_1_20250414160841.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+在北京，外交部回應一名英國國會議員被拒入境香港的事件，發言人林劍表示，香港特區政府已就此作出表態。他強調入境事務是一國主權範圍內的事，香港特區政府有權依照相關的法律及政策，處理入境的個案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm)
+
+---
+
 # 中方對在涉藏問題表現惡劣美方人員對等採取簽證限制措施
 
 ![外交部表示，中方決定對在涉藏問題上表現惡劣的美方人員，對等採取簽證限制措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800312_1_20250414155742.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800050-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800050-20250412.htm)
-
----
-
-# 美國移民法官裁定巴勒斯坦學生哈利勒可被驅逐出境
-
-![哈利勒去年在哥大校園聲援巴勒斯坦示威活動中，發揮重要作用。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800042_1_20250412092037.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-美國一名移民法官裁定，被政府拘留的巴勒斯坦學生示威者哈利勒可以被驅逐出境。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800042-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800042-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800042-20250412.htm)
 
 ---
