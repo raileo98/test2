@@ -1,3 +1,75 @@
+# 韓股初段升逾1%
+
+![首爾綜合指數較早時報2462點，升29點，升幅1.22%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800222_1_20250414081003.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+南韓股市初段升逾1%，首爾綜合指數較早時報2462點，升29點，升幅1.22%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800222-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800222-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800222-20250414.htm)
+
+---
+
+# 日股初段升逾1%
+
+![日經平均指數較早時報34152點，升567點，升幅1.69%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800221_1_20250414080800.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+  
+
+日本股市在開市初段升逾1%，日經平均指數較早時報34152點，升567點，升幅1.69%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800221-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800221-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800221-20250414.htm)
+
+---
+
+# 人保料首季盈利按年至少升三成　財險料盈利最少升約八成
+
+![人保預計，上季盈利介乎116.52億元至134.45億元人民幣，按年增長30%至50%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800220_1_20250414075858.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
+  
+
+人保預計，上季盈利介乎116.52億元至134.45億元人民幣，按年增長30%至50%。扣除非經常損益後，預計盈利116.06億元至133.92億元，增幅30%至50%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800220-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800220-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800220-20250414.htm)
+
+---
+
 # 地產代理：二手買家趁市況未明壓價
 
 ![地產代理表示，關稅戰下市況不明朗，二手買家趁機壓價。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800214_1_20250414073358.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799866-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799866-20250411.htm)
-
----
-
-# 研究：特朗普汽車關稅或令美國車廠成本增加逾千億美元
-
-![研究發現汽車關稅將令美國汽車製造商成本增加。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799907_1_20250411113126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-美國汽車研究中心一項分析發現，美國總統特朗普4月初實施25%汽車關稅，將令美國汽車製造商今年成本增加約1080億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799907-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799907-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799907-20250411.htm)
-
----
-
-# 孫東稱利用本港科技優勢講究策略與方法　擴大人文交往及科技交流
-
-![孫東強調本港要發揮獨特作用，保持自由、開放及國際化，同時要加強出海平台的建設。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799922_1_20250411143014.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-中美貿易戰升溫，創新科技及工業局局長孫東在立法會財委會特別會議表示，就本港科技發展，本港要緊密對接國家發展大局，過程中亦要利用本港優勢，並講究策略和方法，按現有步驟繼續穩步向前，擴大人文交往及科技交流，會按創科藍圖指定方向，以及按過去3年的施政報告和財政預算案，提出措施向前推進。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799922-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799922-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799922-20250411.htm)
-
----
-
-# 美國貿易政策不確定　市場關注美元資產信心會否減弱
-
-![市場憂慮中美貿易衝突升級，資金持續流入避險資產。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799921_1_20250411125533.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-市場憂慮中美貿易衝突升級，資金持續流入避險資產。現貨金創新高，升穿每盎司3200美元。在亞洲時段，美元兌主要貨幣下跌，兌瑞士法郎創10年新低；兌日圓跌至143水平。1歐元兌1.134美元附近，美匯指數失守100大關，為2023年7月以來首次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799921-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799921-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799921-20250411.htm)
 
 ---

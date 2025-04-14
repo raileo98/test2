@@ -1,3 +1,99 @@
+# 特朗普稱對等關稅沒「豁免 」　只被轉移至另一類別關稅
+
+![特朗普說，將對半導體行業進行國家安全貿易調查。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800224_1_20250414083324.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國政府日前宣布，將智能手機、電腦、晶片等產品，排除在所謂的對等關稅之外，有關產品主要從中國進口。總統特朗普星期日強調，相關措施將是短暫的，又承諾將對半導體行業進行國家安全貿易調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800224-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800224-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800224-20250414.htm)
+
+---
+
+# 韓股初段升逾1%
+
+![首爾綜合指數較早時報2462點，升29點，升幅1.22%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800222_1_20250414081003.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+南韓股市初段升逾1%，首爾綜合指數較早時報2462點，升29點，升幅1.22%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800222-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800222-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800222-20250414.htm)
+
+---
+
+# 日股初段升逾1%
+
+![日經平均指數較早時報34152點，升567點，升幅1.69%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800221_1_20250414080800.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+  
+
+日本股市在開市初段升逾1%，日經平均指數較早時報34152點，升567點，升幅1.69%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800221-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800221-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800221-20250414.htm)
+
+---
+
+# 人保料首季盈利按年至少升三成　財險料盈利最少升約八成
+
+![人保預計，上季盈利介乎116.52億元至134.45億元人民幣，按年增長30%至50%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800220_1_20250414075858.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
+  
+
+人保預計，上季盈利介乎116.52億元至134.45億元人民幣，按年增長30%至50%。扣除非經常損益後，預計盈利116.06億元至133.92億元，增幅30%至50%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800220-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800220-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800220-20250414.htm)
+
+---
+
 # 港大研究揭部分胃癌患者早期突變　冀助預防及早期檢測
 
 ![研究結果揭示，胃癌形成前已出現的早期突變，為預防患病及早期檢測的策略，有重要意義。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800217_1_20250414074929.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1343,101 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm)
-
----
-
-# 習近平同普拉博沃互相致賀電　慶祝中國與印尼建交75周年
-
-![習近平同普拉博沃互相致賀電，慶祝中國與印尼建交75周年。 (新華社資料圖片)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800152_1_20250413142745.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-國家主席習近平同印尼總統普拉博沃互相致賀電，慶祝中國與印尼建交75周年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800152-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800152-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800152-20250413.htm)
-
----
-
-# 周一鳴：截至上月底安裝閉路電視成功協助偵破兇殺等200多宗案
-
-![周一鳴重申《維護國家安全條例》和《香港國安法》均為社會帶來保障，亦只有極少數人士受影響。(郭志強攝)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800151_1_20250413152318.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-警務處處長周一鳴表示，警方去年在全港安裝615組閉路電視，至年底成功協助短期內偵破122宗案件，包括兇殺和搶劫等嚴重罪案，至上月底更增加至近一倍至226宗，反映成效理想，目標本年度增至2000組，正審視明年的目標安裝數目，希望做到越多越好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm)
-
----
-
-# 環保署：沙塵氣流對香港的影響可能會持續一至兩天
-
-![環保署預計在下午近黃昏時間，部分空氣質素監測站的空氣質素健康指數健康風險級別可能會達至「嚴重」水平。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800150_1_20250413135306.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-環保署回應查詢時表示，受一股東北季候風相關的沙塵氣流影響，香港空氣中的粒子由昨日晚上10時起開始升高。今日上午的空氣質素健康指數健康風險級別為「高」至「甚高」，預計在下午近黃昏時間，部分空氣質素監測站的空氣質素健康指數健康風險級別可能會達至「嚴重」水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800150-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800150-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800150-20250413.htm)
-
----
-
-# 何永賢：公屋管理人員可善用物聯網技術監察公共地方
-
-![何永賢早前到屯門欣田邨視察，了解房屋署人員對屋邨物聯網系統應用的意見。（何永賢社交專頁影片截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800149_1_20250413141659.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-房屋局局長何永賢表示，現時公共屋邨管理人員可以善用物聯網技術，在保安室或透過電腦屏幕，利用儀表板監察屋邨不同公共地方，她早前到屯門欣田邨視察，了解房屋署人員對屋邨物聯網系統應用的意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm)
 
 ---

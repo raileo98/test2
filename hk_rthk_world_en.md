@@ -1,3 +1,51 @@
+# Xi calls for greater cooperation with Vietnam
+
+![President Xi starts a three-nation tour of Southeast Asia this week, beginning with Vietnam on Monday. File photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800223_1_20250414082321.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+President Xi Jinping called for stronger cooperation with Vietnam in industrial and supply chains and wider collaboration in emerging fields, the Ministry of Foreign Affairs said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800223-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800223-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800223-20250414.htm)
+
+---
+
+# Pennsylvania governor's residence set on fire
+
+![Governor Justin Shapiro and his family had to be evacuated. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800219_1_20250414081459.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+A 38-year-old man was in custody and will face attempted homicide and aggravated arson charges after setting a fire overnight at Pennsylvania Governor Josh Shapiro's residence, state authorities said at a press conference at the governor's mansion in Harrisburg on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800219-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800219-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800219-20250414.htm)
+
+---
+
 # Trump's doctor says US president in 'excellent health'
 
 ![Donald Trump told reporters on Friday he felt "in very good shape." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800196_1_20250413230158.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1387,53 +1435,5 @@ Impeached Philippine Vice President Sara Duterte has returned home after nearly 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm)
-
----
-
-# Seoul to set presidential election for June 3: Yonhap
-
-![People attended a rally to celebrate the expulsion of South Korean President Yoon Suk Yeol in Seoul on Saturday. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799191_1_20250407101114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-South Korea's cabinet is expected to finalise a June 3 date for a presidential election following the removal of Yoon Suk Yeol last week for his short-lived martial law declaration, Yonhap news said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799191-20250407.htm)
-
----
-
-# Three people die in helicopter crash off Japan
-
-![An ambulance carrying a person rescued from the medical evacuation helicopter accident arrives at Fukuoka Washiro Hospital in Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799178_1_20250407085759.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-A medical transport helicopter carrying a patient fell into the sea in southwestern Japan Sunday, leaving three of the six people aboard dead, the Japan coast guard said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799178-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799178-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799178-20250407.htm)
 
 ---

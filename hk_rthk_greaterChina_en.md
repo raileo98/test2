@@ -1,3 +1,27 @@
+# Xi calls for greater cooperation with Vietnam
+
+![President Xi starts a three-nation tour of Southeast Asia this week, beginning with Vietnam on Monday. File photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800223_1_20250414082321.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+President Xi Jinping called for stronger cooperation with Vietnam in industrial and supply chains and wider collaboration in emerging fields, the Ministry of Foreign Affairs said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800223-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800223-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800223-20250414.htm)
+
+---
+
 # Travel disruption as gales sweep northern China
 
 ![Scooters and bicycles were knocked over by the wind in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800091_1_20250412192121.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
@@ -1411,30 +1435,5 @@ The earthquake in Myanmar was felt in China's Yunnan and Sichuan provinces and c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm)
-
----
-
-# Myanmar hospital 'a mass casualty area' after tremors
-
-![Healthcare workers treat a earthquake survivor on a bed in the compound of the hospital in Naypyidaw. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797887_1_20250328165127.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-![A road in Naypyidaw is left virtually unpassable in the wake of the earthquake. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797887_2_20250328165127.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-A major hospital in the Myanmar capital Naypyidaw is a "mass casualty area" after the country was rocked by a huge earthquake, an official at the facility said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm)
 
 ---

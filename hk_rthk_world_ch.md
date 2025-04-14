@@ -1,3 +1,27 @@
+# 特朗普稱對等關稅沒「豁免 」　只被轉移至另一類別關稅
+
+![特朗普說，將對半導體行業進行國家安全貿易調查。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800224_1_20250414083324.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國政府日前宣布，將智能手機、電腦、晶片等產品，排除在所謂的對等關稅之外，有關產品主要從中國進口。總統特朗普星期日強調，相關措施將是短暫的，又承諾將對半導體行業進行國家安全貿易調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800224-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800224-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800224-20250414.htm)
+
+---
+
 # 美國賓夕法尼亞州州長官邸疑被縱火　疑犯已被警方扣查
 
 ![夏皮羅表示他與家人在凌晨2時左右，被趕到現場的警方敲門叫醒。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800211_1_20250414063744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800014-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800014-20250412.htm)
-
----
-
-# 普京晤美國特使　克宮稱俄美元首通電話理論上是可能
-
-![俄羅斯總統普京在聖彼得堡會見到訪的美國中東問題特使威特科夫。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800013_1_20250412012752.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-俄羅斯總統普京在聖彼得堡會見到訪的美國中東問題特使威特科夫，是兩人今年第三次會晤，討論烏克蘭局勢調解問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800013-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800013-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800013-20250412.htm)
 
 ---
