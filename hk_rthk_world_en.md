@@ -1,3 +1,27 @@
+# US announces probe on microchips, pharma
+
+![US authorities are investigating the national security effects of imports of pharmaceuticals and ingredients, as well as semiconductors and chip-making equipment. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800388_1_20250415075111.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+The United States has opened the door to potential tariffs targeting pharmaceuticals and semiconductor imports, according to government filings on Monday, shortly after US President Donald Trump warned recent tech exclusions would only be temporary.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800388-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800388-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800388-20250415.htm)
+
+---
+
 # EU grants US$1.8 billion in new aid for Palestinians
 
 ![Vice-President of the European Commission Kaja Kallas (L) shakes hands with Palestinian Prime Minister Mohammad Mustafa following their meeting in Ramallah. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800386_1_20250415074047.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ South Korea will hold a presidential election on June 3, the country's acting pr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799377-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799377-20250408.htm)
-
----
-
-# US aid cuts a 'death sentence' for millions: UN
-
-![The Trump administration has largely gutted USAID, the main US humanitarian assistance organisation. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799361_1_20250408093958.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-The United States has ended emergency food aid for 14 countries, endangering the lives of millions of hungry or starving people, a United Nations agency said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799361-20250408.htm)
 
 ---

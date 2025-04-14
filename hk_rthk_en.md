@@ -1,3 +1,27 @@
+# US announces probe on microchips, pharma
+
+![US authorities are investigating the national security effects of imports of pharmaceuticals and ingredients, as well as semiconductors and chip-making equipment. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800388_1_20250415075111.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+The United States has opened the door to potential tariffs targeting pharmaceuticals and semiconductor imports, according to government filings on Monday, shortly after US President Donald Trump warned recent tech exclusions would only be temporary.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800388-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800388-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800388-20250415.htm)
+
+---
+
 # EU grants US$1.8 billion in new aid for Palestinians
 
 ![Vice-President of the European Commission Kaja Kallas (L) shakes hands with Palestinian Prime Minister Mohammad Mustafa following their meeting in Ramallah. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800386_1_20250415074047.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1437,5 @@ Pan Yundong, deputy commissioner of the Office of the Commissioner of the Minist
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800056-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800056-20250412.htm)
-
----
-
-# Police ramp up cross-border cooperation to fight scams
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800054_1_20250412112128.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Newly appointed police commissioner Joe Chow on Saturday said officers will work more closely with police in other jurisdictions to combat cross-border scams.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800054-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800054-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800054-20250412.htm)
 
 ---
