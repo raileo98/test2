@@ -96,7 +96,7 @@ Chief Executive John Lee on Monday called on global firms to pursue their busine
 
 # Cyclist dies after being hit by minibus
 
-![Police arrest a 74-year-old bus driver for dangerous driving causing death. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800279_1_20250414124452.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+![Police arrest a 74-year-old minibus driver on suspicion of dangerous driving causing death. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800279_1_20250414124452.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 A man has died after being struck by a minibus on Monday morning.
