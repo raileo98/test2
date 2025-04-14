@@ -1,3 +1,26 @@
+# 日本多人進食受污染飯盒後染諾如病毒　當局籲市民外遊時注意衞生
+
+  
+
+衞生防護中心表示，鑑於日本近日錄得一宗因為進食受污染飯盒而感染諾如病毒的爆發個案，提醒市民外遊時應提高警覺，時刻注意個人、環境及食物衞生，以減低食物中毒的風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800353-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800353-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800353-20250414.htm)
+
+---
+
 # 蔡若蓮：協助香港高校探索創新辦學模式　推動大灣區內校園合作
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm)
-
----
-
-# 陳茂波：加速吸引境外資金人才來港　迎中概股回流
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800172_1_20250413182154.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-財政司司長陳茂波表示，面對貿易戰等影響，本港會維持開放，自由港地位及自由貿易政策亦不變，並將加速吸引境外資金、人才及企業來港發展，他已指示證監會和港交所做好準備，若在海外上市中概股希望回流，必須讓香港成為他們首選上市地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800172-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800172-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800172-20250413.htm)
 
 ---

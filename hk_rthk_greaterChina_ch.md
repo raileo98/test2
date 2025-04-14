@@ -1,3 +1,26 @@
+# 國務院港澳辦：施政報告充分展現澳門特區政府改革創新施政理念
+
+  
+
+國務院港澳辦表示，澳門行政長官岑浩輝發表上任後首份施政報告，深入貫徹國家主席習近平去年12月視察澳門系列重要講話精神，充分展現新一屆澳門特區政府改革創新、實幹擔當、銳意進取的施政理念，全力支援澳門特區政府和社會各界勇擔新時代「一國兩制」實踐的使命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm)
+
+---
+
 # 中方冀英國政府公平公正對待在英投資經營中資企業
 
 ![林劍說，希望英國政府公平公正對待在英投資經營的中資企業，保護其正當合法權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800339_1_20250414184838.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800068-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800068-20250412.htm)
-
----
-
-# 強風將影響全國半數以上省份　北京逾280棵樹倒塌
-
-![一場範圍廣、強度高的大風天氣正影響全國多地。（央視新聞截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800067_1_20250412143401.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800067-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800067-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800067-20250412.htm)
 
 ---

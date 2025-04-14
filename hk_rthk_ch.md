@@ -1,3 +1,49 @@
+# 國務院港澳辦：施政報告充分展現澳門特區政府改革創新施政理念
+
+  
+
+國務院港澳辦表示，澳門行政長官岑浩輝發表上任後首份施政報告，深入貫徹國家主席習近平去年12月視察澳門系列重要講話精神，充分展現新一屆澳門特區政府改革創新、實幹擔當、銳意進取的施政理念，全力支援澳門特區政府和社會各界勇擔新時代「一國兩制」實踐的使命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm)
+
+---
+
+# 日本多人進食受污染飯盒後染諾如病毒　當局籲市民外遊時注意衞生
+
+  
+
+衞生防護中心表示，鑑於日本近日錄得一宗因為進食受污染飯盒而感染諾如病毒的爆發個案，提醒市民外遊時應提高警覺，時刻注意個人、環境及食物衞生，以減低食物中毒的風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800353-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800353-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800353-20250414.htm)
+
+---
+
 # OPEC下調今年全球石油需求增長預測　受關稅影響
 
 ![OPEC下調今年全球石油需求增長預測，受到首季數據和美國關稅影響。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800351_1_20250414205809.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -24,7 +70,7 @@
 
 # 石破茂：日本不打算在對美貿易談判中作重大讓步　不急於達成協議
 
-![石破茂表示，日本不打算在談判中作出重大讓步，亦不急於達成協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800352_1_20250414211059.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![石破茂表示，日本不打算在談判中作出重大讓步，亦不急於達成協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800352_1_20250414211059.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 日本與美國將於星期四在華盛頓展開貿易談判，預計會涉及關稅、非關稅壁壘和匯率等議題。
