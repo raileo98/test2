@@ -1,3 +1,27 @@
+# 美股初段升近1%至2%
+
+![道瓊斯指數較早時報40587點，升375點，升幅0.93%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800355_1_20250414213842.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+  
+
+美股初段上升，投資者憧憬貿易戰有所緩和。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800355-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800355-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800355-20250414.htm)
+
+---
+
 # OPEC下調今年全球石油需求增長預測　受關稅影響
 
 ![OPEC下調今年全球石油需求增長預測，受到首季數據和美國關稅影響。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800351_1_20250414205809.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800221-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800221-20250414.htm)
-
----
-
-# 人保料首季盈利按年至少升三成　財險料盈利最少升約八成
-
-![人保預計，上季盈利介乎116.52億元至134.45億元人民幣，按年增長30%至50%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800220_1_20250414075858.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
-  
-
-人保預計，上季盈利介乎116.52億元至134.45億元人民幣，按年增長30%至50%。扣除非經常損益後，預計盈利116.06億元至133.92億元，增幅30%至50%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800220-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800220-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800220-20250414.htm)
 
 ---
