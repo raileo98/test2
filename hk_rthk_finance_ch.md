@@ -1,3 +1,50 @@
+# 特邀人士入境便利計劃推出近1個月　發出逾240個邀請
+
+  
+
+政府上月18日推出「特邀人士入境便利計劃」，相關政策局會主動邀請能為香港經濟發展帶來相當貢獻或來港出席重要活動的東盟人士，他們來港會享有入境便利。保安局局長鄧炳強表示，計劃推出接近1個月以來，當局發出超過240個邀請，涵蓋工業、投資、經貿、批發零售、金融、醫藥、航空、運輸及法律界等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800318-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800318-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800318-20250414.htm)
+
+---
+
+# 恒指升502點　連升5個交易日
+
+![恒指收報21417點，升502點，升幅2.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800316_1_20250414162425.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
+  
+
+市場憧憬關稅戰緩和，港股顯著上升，恒指一度升至21517點，升逾600點，其後反覆向好，收報21417點，升502點，升幅2.4%，連升5個交易日，成交額近2534億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800316-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800316-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800316-20250414.htm)
+
+---
+
 # 陳茂波：致力將香港打造成全球AI交流樞紐
 
 ![陳茂波說，數碼時代的挑戰與機遇超越國界，認為需要更多對話、共享與合作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800311_1_20250414155123.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800037-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800037-20250412.htm)
-
----
-
-# 聯儲局官員料關稅導致今年通脹率升到3.5%至4%
-
-![威廉姆斯表示，特朗普政府的貿易政策將導致今年通脹加速，料今年通脹率升至3.5%至4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800036_1_20250412074826.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
-  
-
-紐約聯儲銀行總裁威廉姆斯表示，特朗普政府的貿易政策將導致今年通脹加速，聯儲局要防止長期價格壓力預期脫離錨定的重要作用。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800036-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800036-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800036-20250412.htm)
-
----
-
-# 港股ADR較本港昨日收市價普遍上升
-
-![港股ADR普遍上升，港交所升近2%，騰訊靠穩。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800035_1_20250412073020.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-港股美國預託證券(ADR)普遍上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800035-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800035-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800035-20250412.htm)
 
 ---

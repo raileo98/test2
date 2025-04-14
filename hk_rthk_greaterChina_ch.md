@@ -1,3 +1,27 @@
+# 林劍：美方一再渲染中國威脅論　以此為藉口控制拉美國家不會得逞
+
+![林劍表示，中方與拉美和加勒比國家交往，始終秉持平等相待、互利共贏原則。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800317_1_20250414162604.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+在北京，外交部發言人林劍表示，中方與拉美和加勒比國家交往，始終秉持平等相待、互利共贏原則，從不尋求勢力範圍，亦不針對任何第三方。美方反覆抹黑攻擊中國，一再渲染中國威脅論，不過是想以此為藉口，控制拉美和加勒比，注定不會得逞。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm)
+
+---
+
 # 外交部：特區政府有權依照相關法律及政策處理入境個案
 
 ![林劍表示，香港特區政府有權依照相關的法律及政策，處理入境的個案。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800314_1_20250414160841.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800048-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800048-20250412.htm)
-
----
-
-# 廣東大部分地區將出現強對流天氣　北京風力增強多個景區關閉
-
-![廣東大部分地區將會出現強對流天氣，並有短時間強降雨。（中央氣象台網站圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800030_1_20250412064117.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-內地中央氣象台發布強對流天氣、大風、暴雪和沙塵暴預警。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800030-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800030-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800030-20250412.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 恒指升502點　連升5個交易日
+
+![恒指收報21417點，升502點，升幅2.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800316_1_20250414162425.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
+  
+
+市場憧憬關稅戰緩和，港股顯著上升，恒指一度升至21517點，升逾600點，其後反覆向好，收報21417點，升502點，升幅2.4%，連升5個交易日，成交額近2534億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800316-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800316-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800316-20250414.htm)
+
+---
+
+# 林劍：美方一再渲染中國威脅論　以此為藉口控制拉美國家不會得逞
+
+![林劍表示，中方與拉美和加勒比國家交往，始終秉持平等相待、互利共贏原則。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800317_1_20250414162604.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+在北京，外交部發言人林劍表示，中方與拉美和加勒比國家交往，始終秉持平等相待、互利共贏原則，從不尋求勢力範圍，亦不針對任何第三方。美方反覆抹黑攻擊中國，一再渲染中國威脅論，不過是想以此為藉口，控制拉美和加勒比，注定不會得逞。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm)
+
+---
+
 # 今年第一季約1220萬訪港旅客人次按年增9%　疫情後季度新高
 
 ![旅發局公布今年第一季共錄得約1220萬訪港旅客人次，按年增加9%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800315_1_20250414162057.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -48,6 +96,7 @@
 
 # 港大宣布汪揚將出任副校長負責大學拓展　８月履新
 
+![汪揚將出任港大副校長，負責大學拓展，8月履新。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800313_1_20250414163126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
   
 
 港大宣布，科大副校長汪揚將出任港大副校長，負責大學拓展，今年8月1日履新。

@@ -1,3 +1,50 @@
+# 特邀人士入境便利計劃推出近1個月　發出逾240個邀請
+
+  
+
+政府上月18日推出「特邀人士入境便利計劃」，相關政策局會主動邀請能為香港經濟發展帶來相當貢獻或來港出席重要活動的東盟人士，他們來港會享有入境便利。保安局局長鄧炳強表示，計劃推出接近1個月以來，當局發出超過240個邀請，涵蓋工業、投資、經貿、批發零售、金融、醫藥、航空、運輸及法律界等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800318-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800318-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800318-20250414.htm)
+
+---
+
+# 恒指升502點　連升5個交易日
+
+![恒指收報21417點，升502點，升幅2.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800316_1_20250414162425.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
+  
+
+市場憧憬關稅戰緩和，港股顯著上升，恒指一度升至21517點，升逾600點，其後反覆向好，收報21417點，升502點，升幅2.4%，連升5個交易日，成交額近2534億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800316-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800316-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800316-20250414.htm)
+
+---
+
 # 今年第一季約1220萬訪港旅客人次按年增9%　疫情後季度新高
 
 ![旅發局公布今年第一季共錄得約1220萬訪港旅客人次，按年增加9%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800315_1_20250414162057.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -48,6 +95,7 @@
 
 # 港大宣布汪揚將出任副校長負責大學拓展　８月履新
 
+![汪揚將出任港大副校長，負責大學拓展，8月履新。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800313_1_20250414163126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
   
 
 港大宣布，科大副校長汪揚將出任港大副校長，負責大學拓展，今年8月1日履新。
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800150-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800150-20250413.htm)
-
----
-
-# 何永賢：公屋管理人員可善用物聯網技術監察公共地方
-
-![何永賢早前到屯門欣田邨視察，了解房屋署人員對屋邨物聯網系統應用的意見。（何永賢社交專頁影片截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800149_1_20250413141659.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-房屋局局長何永賢表示，現時公共屋邨管理人員可以善用物聯網技術，在保安室或透過電腦屏幕，利用儀表板監察屋邨不同公共地方，她早前到屯門欣田邨視察，了解房屋署人員對屋邨物聯網系統應用的意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800149-20250413.htm)
-
----
-
-# 盧寵茂：器官名冊近40萬人登記　冀有更多市民支持
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800147_1_20250413145946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-香港醫學會舉辦推廣器官捐贈步行活動。醫務衞生局局長盧寵茂表示，中央器官捐贈登記名冊至今有近40萬人登記，數字值得鼓舞。他說，3年的新冠疫情對器官捐贈造成很大阻力，亦有一段時間出現阻力，試圖干擾登記名冊，他對這些行為予以譴責。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800147-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800147-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800147-20250413.htm)
 
 ---

@@ -96,7 +96,7 @@ Tech businesses attending the World Internet Conference Asia-Pacific Summit in H
 
 # HK ready to 'make a difference' for global firms
 
-![Chief Executive John Lee says Hong Kong welcomes all global firms to expand here despite trade frictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800284_1_20250414130920.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800284_1_20250414130920.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 Chief Executive John Lee on Monday called on global firms to pursue their business expansion in collaboration with the SAR at a time of spiralling global geopolitical and trade tensions.
