@@ -1,3 +1,27 @@
+# 20 more response teams for extreme floods
+
+![The Drainage Services Department says the increase in the number of emergency response teams will enable extreme flood events to be brought under control in one or two hours. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800328_1_20250414172646.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+The Drainage Services Department says the number of emergency response teams for extreme weather events will be increased this year from 160 to 180 for deployment in more than 30 operational stations.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800328-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800328-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800328-20250414.htm)
+
+---
+
 # 'Expats confident about doing business in Hong Kong'
 
 ![Path of Democracy co-convenor Ray Poon, right, says the government can hold more promotional events to communicate the SAR’s actual situation. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800325_1_20250414170630.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -265,7 +289,7 @@ Chief Secretary Eric Chan said Washington's move to impose tariffs on imports fr
 
 # Democratic Party moves towards disbandment
 
-![Democratic Party chairman Lo Kin-hei met the press after a special meeting on Sunday. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800182_1_20250413191323.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![Democratic Party chairman Lo Kin-hei, left, met the press after a special meeting on Sunday. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800182_1_20250413191323.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 The Democratic Party said on Sunday it will start sorting out financial and administrative matters, after about 110 members authorised its leadership in a special meeting to follow up on the group's disbandment.
@@ -289,7 +313,7 @@ The Democratic Party said on Sunday it will start sorting out financial and admi
 
 # Top officials urge HK businesses to seize chance ahead
 
-![Paul Chan said the SAR government will maintain vigilance and be well-prepared amid the global uncertainties. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800160_1_20250413162047.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+![Paul Chan, centre, said the SAR government will maintain vigilance and be well-prepared amid the global uncertainties. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800160_1_20250413162047.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 The financial secretary on Sunday said he believes the Hong Kong market is stable and attractive, especially against the backdrop of global uncertainties.
@@ -1413,29 +1437,5 @@ Tram fares will go up by up to 15 percent starting from May 12.
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799459-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799459-20250408.htm)
-
----
-
-# HK to target creative industry in strategic push
-
-![Financial Secretary Paul Chan, centre back row, says more than 80 strategic enterprises have set up in Hong Kong in the past two years. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799460_1_20250408181322.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Financial Secretary Paul Chan said on Tuesday the Office for Attracting Strategic Enterprises, OASES, will seek to attract cultural enterprises in the future in a way that combines innovation and technology with artistry.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799460-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799460-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799460-20250408.htm)
 
 ---

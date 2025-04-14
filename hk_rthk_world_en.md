@@ -94,30 +94,6 @@ Peruvian writer Mario Vargas Llosa, who enchanted readers with his intellectual 
 
 ---
 
-# Russian missile strike on Ukraine city
-
-![The aftermath of a Russian missile strike on the Ukrainian city of Sumy. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800225_1_20250414083201.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
-  
-
-Russian missiles struck the heart of the Ukrainian city of Sumy as people gathered to celebrate Palm Sunday, killing at least 34 people, officials said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800225-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800225-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800225-20250414.htm)
-
----
-
 # Israel intensifies strikes across Gaza
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800227_1_20250414084825.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=20)
@@ -1435,5 +1411,29 @@ US President Donald Trump said the United States was starting direct, high-level
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799344-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799344-20250408.htm)
+
+---
+
+# Supreme Court backs Trump over Alien Enemies Act
+
+![US President Donald Trump has used the law to deport alleged Venezuelan gang members. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799334_1_20250408075344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
+  
+
+The US Supreme Court handed Donald Trump a victory on Monday by letting him use a 1798 law that historically has been employed only in wartime to swiftly deport alleged Venezuelan gang members as part of the Republican president's hardline approach to immigration.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm)
 
 ---

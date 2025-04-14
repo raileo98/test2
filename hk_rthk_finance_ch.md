@@ -1,3 +1,27 @@
+# 在岸人民幣創近兩周新高　升逾220點子
+
+![在岸人民幣兌美元收報7.3021兌1美元，升224點子。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800326_1_20250414171457.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+  
+
+美元指數持續低迷，在岸人民幣創近兩周新高，兌美元收報7.3021兌1美元，升224點子，交投活躍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800326-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800326-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800326-20250414.htm)
+
+---
+
 # 孫東：政府正積極籌備成立香港人工智能研發院
 
 ![孫東表示，政府正積極籌備成立香港人工智能研發院，將專注於支持上游研發工作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800319_1_20250414163658.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -24,6 +48,7 @@
 
 # 特邀人士入境便利計劃推出近1個月　發出逾240個邀請
 
+![鄧炳強說「特邀人士入境便利計劃」推出接近1個月以來，發出超過240個邀請。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800318_1_20250414172205.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 政府上月18日推出「特邀人士入境便利計劃」，相關政策局會主動邀請能為香港經濟發展帶來相當貢獻或來港出席重要活動的東盟人士，他們來港會享有入境便利。保安局局長鄧炳強表示，計劃推出接近1個月以來，當局發出超過240個邀請，涵蓋工業、投資、經貿、批發零售、金融、醫藥、航空、運輸及法律界等。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm)
-
----
-
-# 美國將對俄羅斯的部份制裁措施延長一年
-
-![據美國聯邦公報網站，特朗普簽署行政命令，繼續執行行政命令宣布的國家緊急狀態一年。（網上截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800128_1_20250413101033.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-美國將對俄羅斯的部份制裁措施延長一年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800128-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800128-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800128-20250413.htm)
 
 ---

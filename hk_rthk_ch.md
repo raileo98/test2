@@ -1,3 +1,73 @@
+# 世界旅遊城市聯合會香山旅遊峰會首次在香港舉辦
+
+  
+
+世界旅遊城市聯合會香山旅遊峰會即日起至星期四首次在香港舉辦，吸引全球40多個國家及地區超過400名代表來港參與，參加人數破歷年紀錄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800329-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800329-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800329-20250414.htm)
+
+---
+
+# 在岸人民幣創近兩周新高　升逾220點子
+
+![在岸人民幣兌美元收報7.3021兌1美元，升224點子。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800326_1_20250414171457.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+  
+
+美元指數持續低迷，在岸人民幣創近兩周新高，兌美元收報7.3021兌1美元，升224點子，交投活躍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800326-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800326-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800326-20250414.htm)
+
+---
+
+# 屯門區下午４時空氣質素健康指數達10+　健康風險達嚴重水平
+
+  
+
+受乾燥的大陸氣流及沙塵天氣影響，本港空氣質素欠佳。根據環保署公布的空氣質素健康指數，在下午4時，屯門區空氣質素健康指數達到10+，健康風險級別達「嚴重」水平，其餘各區的指數亦達9或10，健康風險級別為「甚高」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800327-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800327-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800327-20250414.htm)
+
+---
+
 # 34歲男子感染侵入性腦膜炎雙球菌　情況穩定
 
 ![一名34歲男子感染侵入性腦膜炎雙球菌，現時情況穩定。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800324_1_20250414171721.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -96,6 +166,7 @@
 
 # 特邀人士入境便利計劃推出近1個月　發出逾240個邀請
 
+![鄧炳強說「特邀人士入境便利計劃」推出接近1個月以來，發出超過240個邀請。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800318_1_20250414172205.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 政府上月18日推出「特邀人士入境便利計劃」，相關政策局會主動邀請能為香港經濟發展帶來相當貢獻或來港出席重要活動的東盟人士，他們來港會享有入境便利。保安局局長鄧炳強表示，計劃推出接近1個月以來，當局發出超過240個邀請，涵蓋工業、投資、經貿、批發零售、金融、醫藥、航空、運輸及法律界等。
