@@ -1,6 +1,32 @@
+# 習近平：中越雙方要增強戰略定力　共同反對單邊霸凌行徑
+
+![習近平同越共中央總書記蘇林舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800373_1_20250415041846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![習近平與越南國會主席陳青敏會面。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800373_2_20250415041846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![習近平與越南總理范明政會面。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800373_3_20250415041846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+在越南國事訪問的中共中央總書記、國家主席習近平同越共中央總書記蘇林舉行會談。習近平強調，面對變亂交織的國際形勢，中越兩國堅持和平發展，深化友好合作，為世界帶來寶貴的穩定性和確定性。中越雙方要增強戰略定力，共同反對單邊霸凌行徑，維護全球自由貿易體制和產業鏈供應鏈穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800373-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800373-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800373-20250415.htm)
+
+---
+
 # 習近平晤范明政　強調要共同反對霸權主義、單邊主義
 
-![習近平與越南總理范明政會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800365_1_20250415001321.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![習近平與越南總理范明政會面。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800365_2_20250415041937.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 在越南國事訪問的國家主席習近平與越南總理范明政會面。
@@ -1411,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800082-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800082-20250412.htm)
-
----
-
-# 王毅：美國不能任意妄為　歷史車輪不能倒退
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800080_1_20250412181256.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-中共中央政治局委員、外長王毅周五在北京，會見國際原子能機構總幹事格羅西時指，當前國際局勢動蕩不安，亂象頻出，一個重要原因就是個別大國迷信實力至上、本國優先，大搞單邊霸凌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm)
 
 ---

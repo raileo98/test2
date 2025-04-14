@@ -145,7 +145,7 @@
 
 # 習近平晤范明政　強調要共同反對霸權主義、單邊主義
 
-![習近平與越南總理范明政會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800365_1_20250415001321.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![習近平與越南總理范明政會面。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800365_2_20250415041937.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 在越南國事訪問的國家主席習近平與越南總理范明政會面。
