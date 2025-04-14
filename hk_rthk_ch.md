@@ -1,3 +1,27 @@
+# 哈馬斯：收到新停火提議　將盡快回覆
+
+![以軍空襲加沙北部傑巴利耶，救援人員從瓦礫中抬出死者遺體。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800377_1_20250415054405.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+  
+
+巴勒斯坦武裝組織哈馬斯發表聲明說，從埃及方面收到新的加沙停火提議，將會進行研究，並將在完成必要的磋商後盡快回覆。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800377-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800377-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800377-20250415.htm)
+
+---
+
 # 英法德股市高收逾2%
 
 ![德國DAX指數收市報20954點，升580點，升幅約2.9%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800374_1_20250415051616.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800309-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800309-20250414.htm)
-
----
-
-# 渠務署將強化緊急控制事故中心能力　緊急應變隊伍增至180隊
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800308_1_20250414155505.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-渠務署署長莫永昌表示，近年愈趨頻繁的極端天氣，如特大暴雨和超強颱風等，為全球帶來前所未有的挑戰，署方會繼續實施「超前準備、加強預警、果斷應急、迅速復原」四大策略，做好防洪工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800308-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800308-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800308-20250414.htm)
 
 ---

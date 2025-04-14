@@ -1,3 +1,27 @@
+# 哈馬斯：收到新停火提議　將盡快回覆
+
+![以軍空襲加沙北部傑巴利耶，救援人員從瓦礫中抬出死者遺體。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800377_1_20250415054405.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+  
+
+巴勒斯坦武裝組織哈馬斯發表聲明說，從埃及方面收到新的加沙停火提議，將會進行研究，並將在完成必要的磋商後盡快回覆。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800377-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800377-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800377-20250415.htm)
+
+---
+
 # 薩爾瓦多總統：不會把被錯誤驅逐男子送回美國
 
 ![特朗普在白宮接待薩爾瓦多總統布克爾。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800375_1_20250415053138.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800117-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800117-20250413.htm)
-
----
-
-# 白宮稱美伊溝通朝著實現互利結果邁出一步　雙方同意再會面
-
-![阿拉格齊與阿曼外交大臣巴德爾會面。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800116_1_20250413044217.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-美國白宮表示，美國中東問題特使威特科夫在星期六與伊朗的溝通是朝著實現互利結果邁出的一步，雙方同意於本月19日再次會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800116-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800116-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800116-20250413.htm)
 
 ---
