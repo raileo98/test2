@@ -169,7 +169,7 @@ SF Express Hong Kong announced that it will stop sending SMS text messages to cu
 
 # Over six million to enter and leave HK during Easter
 
-![The Immigration Department says it will closely monitor the flow of people and vehicles making the crossings and adopt traffic diversion plans if necessary. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800264_1_20250414114444.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![The Immigration Department says it will closely monitor the flow of people and vehicles at the crossings and adopt traffic diversion plans if necessary. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800264_1_20250414114444.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 The Immigration Department said on Monday that more than six million travellers will use the city's border control points throughout the Easter holiday.

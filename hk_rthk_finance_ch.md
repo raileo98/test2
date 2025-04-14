@@ -1,5 +1,6 @@
 # 陳茂波：致力將香港打造成全球AI交流樞紐
 
+![陳茂波說，數碼時代的挑戰與機遇超越國界，認為需要更多對話、共享與合作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800311_1_20250414155123.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 財政司司長陳茂波表示，各國政府和監管機構面臨日益嚴峻的挑戰，涉及網絡安全、數據私隱及跨境監管等，但現時更迫切的問題是數碼碎片化，又提到美國發起的貿易戰或會超出關稅範疇，可以預見未來會出現更多隔閡、更大的疆界和更高的壁壘，或扼殺創新，危及環球科技發展。

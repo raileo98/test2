@@ -1,5 +1,30 @@
+# 中方對在涉藏問題表現惡劣美方人員對等採取簽證限制措施
+
+![外交部表示，中方決定對在涉藏問題上表現惡劣的美方人員，對等採取簽證限制措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800312_1_20250414155742.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+在北京，外交部發言人林劍表示，中方決定對在涉藏問題上表現惡劣的美方人員，對等採取簽證限制措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800312-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800312-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800312-20250414.htm)
+
+---
+
 # 陳茂波：致力將香港打造成全球AI交流樞紐
 
+![陳茂波說，數碼時代的挑戰與機遇超越國界，認為需要更多對話、共享與合作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800311_1_20250414155123.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 財政司司長陳茂波表示，各國政府和監管機構面臨日益嚴峻的挑戰，涉及網絡安全、數據私隱及跨境監管等，但現時更迫切的問題是數碼碎片化，又提到美國發起的貿易戰或會超出關稅範疇，可以預見未來會出現更多隔閡、更大的疆界和更高的壁壘，或扼殺創新，危及環球科技發展。
@@ -23,6 +48,7 @@
 
 # 美國關稅政策反復修改　中方促美方放棄極限施壓並對話解決問題
 
+![林劍說，中方敦促美方放棄極限施壓的錯誤做法，在平等、尊重、互惠的基礎上，通過對話解決問題。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800310_1_20250414155936.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 在北京，外交部再次批評美方將關稅作為極限施壓、謀取私利的武器，將一己私利凌駕於國際社會公利，是典型的單邊主義、保護主義、經濟霸凌行徑，嚴重損害包括中歐在內的世界各國利益。
@@ -46,6 +72,7 @@
 
 # 劉國勳建議將洪水橋新發展區土地整合　並改劃發展北都大學城
 
+![劉國勳建議發展「大學城」，配合北都其他科研創新園區，培育及培訓人才。（游樹榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800309_1_20250414155409.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 去年施政報告提到，政府已在北部都會區預留最少80公頃用地，發展「北都大學教育城」。民建聯立法會議員劉國勳建議將洪水橋新發展區內原本被劃為其他用途的土地，包括位於洪水橋南北面的部分政府、機構或社區用地、工業及物流用地，整合並改劃用作發展北都大學城，令區內發展「大學城」的土地由原本只有約5公頃，增加至24至48公頃。
@@ -69,6 +96,7 @@
 
 # 渠務署將強化緊急控制事故中心能力　緊急應變隊伍增至180隊
 
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800308_1_20250414155505.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 渠務署署長莫永昌表示，近年愈趨頻繁的極端天氣，如特大暴雨和超強颱風等，為全球帶來前所未有的挑戰，署方會繼續實施「超前準備、加強預警、果斷應急、迅速復原」四大策略，做好防洪工作。
@@ -92,6 +120,7 @@
 
 # 全運會沙灘排球測試賽本周末維園舉行　港燈與多個部門舉行演練
 
+![全運會沙灘排球項目測試賽本周末舉行，港燈與多個部門舉行緊急復電演練，模擬電力供應發生故障及緊急復修。（港燈提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800307_1_20250414155240.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
   
 
 第15屆全運會沙灘排球項目測試賽將在本月18至20日在維園舉行，港燈聯同全運會香港賽區統籌辦公室、康文署、機電署等政府部門，上星期三舉行跨部門緊急復電演練，模擬電力供應發生故障以及緊急復修。
@@ -836,7 +865,7 @@
 
 # 邵家輝：商場舉行不同活動或攤檔可吸引人流　增加商戶生意
 
-![邵家輝認為商場舉行不同類型活動或擺設攤檔，可吸引人流，有助增加商戶生意。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800261_1_20250414120349.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![邵家輝認為商場舉行不同類型活動或擺設攤檔，可吸引人流，有助增加商戶生意。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800261_2_20250414155612.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 發展局推出試行計劃，放寛商場或其他商業項目使用室內和戶外公共空間的限制，精簡審批程序。立法會批發及零售界議員邵家輝在本台節目《千禧年代》說，非常支持試驗計劃，認為商場舉行不同類型活動或擺設攤檔，可吸引人流，有助增加商戶生意，市民亦可有更多消費體驗。至於相關申請有效期為一年，亦方便商場全年安排不同大型活動。

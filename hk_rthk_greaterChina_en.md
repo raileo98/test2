@@ -1,4 +1,4 @@
-# China 'fully backs HK's ramping up digital transition'
+# China 'fully backs HK ramping up digital transition'
 
 ![Chinese People's Political Consultative Conference vice-chairman Wang Yong says digital transition is a driving force for industrial productivity. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800295_1_20250414142819.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
 ![Zheng Yanxiong, the director of the central government's liaison office in Hong Kong, said that the SAR plays a critical role in driving the internet industry's development in the region. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800295_2_20250414142819.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -44,6 +44,30 @@ President Xi Jinping arrived in Hanoi on Monday to start a state visit to Vietna
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800302-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800302-20250414.htm)
+
+---
+
+# Xia to speak on National Security Education Day
+
+![Xia Baolong will attend the opening ceremony of the National Security Education Day and deliver a keynote speech via video link. Photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800299_2_20250414152154.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Beijing's top official overseeing Hong Kong and Macau affairs, Xia Baolong, is scheduled to deliver a keynote speech via video link at the 10th National Security Education Day on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800299-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800299-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800299-20250414.htm)
 
 ---
 
@@ -1412,29 +1436,5 @@ The China National Offshore Oil Corporation (CNOOC) has discovered an oilfield i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798194-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798194-20250331.htm)
-
----
-
-# HK sets aside HK$30 million for Myanmar quake victims
-
-![A 51-member SAR rescue team has arrived in Yangon. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798095_1_20250330110807.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
-  
-
-Chief Executive John Lee says the SAR government has earmarked HK$30 million from the Disaster Relief Fund to help victims of the severe earthquake that struck central Myanmar on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm)
 
 ---

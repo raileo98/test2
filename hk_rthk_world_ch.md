@@ -1,5 +1,30 @@
+# 中方對在涉藏問題表現惡劣美方人員對等採取簽證限制措施
+
+![外交部表示，中方決定對在涉藏問題上表現惡劣的美方人員，對等採取簽證限制措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800312_1_20250414155742.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+在北京，外交部發言人林劍表示，中方決定對在涉藏問題上表現惡劣的美方人員，對等採取簽證限制措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800312-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800312-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800312-20250414.htm)
+
+---
+
 # 美國關稅政策反復修改　中方促美方放棄極限施壓並對話解決問題
 
+![林劍說，中方敦促美方放棄極限施壓的錯誤做法，在平等、尊重、互惠的基礎上，通過對話解決問題。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800310_1_20250414155936.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 在北京，外交部再次批評美方將關稅作為極限施壓、謀取私利的武器，將一己私利凌駕於國際社會公利，是典型的單邊主義、保護主義、經濟霸凌行徑，嚴重損害包括中歐在內的世界各國利益。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800042-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800042-20250412.htm)
-
----
-
-# 美伊今天在阿曼談判　特朗普：伊朗不能擁有核武器
-
-![特朗普在「空軍一號」專機上會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800038_1_20250412082346.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-美國與伊朗將於今天在阿曼就核問題談判。美國總統特朗普在談判前重申，伊朗不能擁有核武器。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800038-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800038-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800038-20250412.htm)
 
 ---
