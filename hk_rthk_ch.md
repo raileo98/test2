@@ -1,3 +1,27 @@
+# 哈馬斯官員：解除武裝不容討論
+
+![巴勒斯坦武裝組織哈馬斯一名高級官員稱，討論解除武裝對哈馬斯而言是不可接受。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800370_1_20250415025530.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+巴勒斯坦武裝組織哈馬斯一名高級官員稱，討論解除武裝對哈馬斯而言是不可接受，保留武裝是巴勒斯坦人民的基本權利，不容討論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800370-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800370-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800370-20250415.htm)
+
+---
+
 # 俄國防部稱使用導彈攻擊蘇梅市烏軍指揮人員
 
 ![俄軍導彈襲擊蘇梅市，造成過百人死傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800369_1_20250415013413.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=20)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800301-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800301-20250414.htm)
-
----
-
-# 韓股高收近1%
-
-![首爾綜合指數收報2455點，升23點，升幅0.95%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800298_1_20250414145400.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-南韓股市升近1%收市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800298-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800298-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800298-20250414.htm)
 
 ---

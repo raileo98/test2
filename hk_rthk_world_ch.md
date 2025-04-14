@@ -1,3 +1,27 @@
+# 哈馬斯官員：解除武裝不容討論
+
+![巴勒斯坦武裝組織哈馬斯一名高級官員稱，討論解除武裝對哈馬斯而言是不可接受。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800370_1_20250415025530.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+巴勒斯坦武裝組織哈馬斯一名高級官員稱，討論解除武裝對哈馬斯而言是不可接受，保留武裝是巴勒斯坦人民的基本權利，不容討論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800370-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800370-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800370-20250415.htm)
+
+---
+
 # 俄國防部稱使用導彈攻擊蘇梅市烏軍指揮人員
 
 ![俄軍導彈襲擊蘇梅市，造成過百人死傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800369_1_20250415013413.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=20)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800112-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800112-20250413.htm)
-
----
-
-# 英國會通過緊急法案維持英國鋼鐵運作　分析指收歸國有或不可避免
-
-![英國首相施紀賢會見當地鋼鐵工人。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800111_1_20250413011641.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-英國國會經辯論後通過緊急法案，以維持英國鋼鐵集團的運作。法案已獲御准，代表正式成為法例。分析指將中資控制的英國鋼鐵收歸英國國有，似乎是不可避免的下一步。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800111-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800111-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800111-20250413.htm)
 
 ---
