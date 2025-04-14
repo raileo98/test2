@@ -1,3 +1,29 @@
+# 習近平：中越雙方要增強戰略定力　共同反對單邊霸凌行徑
+
+![習近平同越共中央總書記蘇林舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800373_1_20250415041846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![習近平與越南國會主席陳青敏會面。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800373_2_20250415041846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![習近平與越南總理范明政會面。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800373_3_20250415041846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+在越南國事訪問的中共中央總書記、國家主席習近平同越共中央總書記蘇林舉行會談。習近平強調，面對變亂交織的國際形勢，中越兩國堅持和平發展，深化友好合作，為世界帶來寶貴的穩定性和確定性。中越雙方要增強戰略定力，共同反對單邊霸凌行徑，維護全球自由貿易體制和產業鏈供應鏈穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800373-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800373-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800373-20250415.htm)
+
+---
+
 # 特朗普稱伊朗拖延核談判進程
 
 ![特朗普在白宮會見到訪的薩爾瓦多總統布克爾。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800372_1_20250415034613.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1412,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800306-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800306-20250414.htm)
-
----
-
-# 滬深股市升幅有限　滬股全日升近1%
-
-![內地股市收市升幅有限。上證指數收市報3262點，升24點，升幅0.76%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800305_1_20250414151116.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-內地股市收市升幅有限。海南概念股、體育概念股及貴金屬股造好；白酒及非金屬材料股沽壓較大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800305-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800305-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800305-20250414.htm)
 
 ---
