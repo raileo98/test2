@@ -1,5 +1,6 @@
 # 多區空氣質素健康指數達10+　健康風險級別為嚴重
 
+![環保署一般監測站錄得健康風險級別為甚高至嚴重。（環保署網頁截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800334_1_20250414180927.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 受乾燥的大陸氣流及沙塵天氣影響，本港空氣質素傍晚欠佳。截至下午5時，屯門、大埔及北區的一般監測站、銅鑼灣的路邊監測站，空氣質素健康指數為10+，代表健康風險為嚴重。
@@ -2066,6 +2067,7 @@
 
 # 消委會與金管局推VR遊戲提升防騙意識
 
+![玩家頭戴VR設備及手持控制器，按語音或圖像指示，在預設情境中作出選擇。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_1_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
 ![校長沈立平表示，遊戲有助學生加深記憶。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_2_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
 ![黃鳳嫺表示，現時電子支付盛行，應該透過不同方法，盡早教授長者及學生正確使用信用卡的知識。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_3_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   

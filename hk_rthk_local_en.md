@@ -1,6 +1,6 @@
 # 20 more response teams for extreme floods
 
-![The Drainage Services Department says the increase in the number of emergency response teams will enable extreme flood events to be brought under control in one or two hours. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800328_1_20250414172646.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![The Drainage Services Department says the increase in the number of emergency response teams will enable extreme flood events to be brought under control in one or two hours. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800328_1_20250414180657.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 The Drainage Services Department says the number of emergency response teams for extreme weather events will be increased this year from 160 to 180 for deployment in more than 30 operational stations.
