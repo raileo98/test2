@@ -1,3 +1,27 @@
+# 港股下午初段維持逾2%升幅
+
+![恒生指數較早時報21394點，升479點，升幅2.29%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800282_1_20250414130757.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+  
+
+港股下午初段維持逾2%升幅。恒生指數較早時報21394點，升479點，升幅2.29%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800282-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800282-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800282-20250414.htm)
+
+---
+
 # 植田和男：美國關稅影響日本物價及經濟　央行將採取適當貨幣政策
 
 ![植田和男表示，美國關稅政策為日本經濟帶來下行壓力，亦可能影響物價。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800254_1_20250414105555.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799994-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799994-20250411.htm)
-
----
-
-# 多家內地企業助外貿企業出口轉內銷　京東擬採購至少2千億元產品
-
-![京東表示，未來一年內將大規模採購不少於2000億元人民幣的出口轉內銷商品，幫助中國的外貿企業快速開拓國內市場。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799990_1_20250411201204.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-多家內地零售企業啟動扶持計劃，幫助中國外貿企業開拓國內市場，包括京東、盒馬鮮生、聯華超市等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799990-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799990-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799990-20250411.htm)
 
 ---

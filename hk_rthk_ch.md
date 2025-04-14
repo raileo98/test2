@@ -1,3 +1,50 @@
+# 港股下午初段維持逾2%升幅
+
+![恒生指數較早時報21394點，升479點，升幅2.29%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800282_1_20250414130757.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+  
+
+港股下午初段維持逾2%升幅。恒生指數較早時報21394點，升479點，升幅2.29%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800282-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800282-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800282-20250414.htm)
+
+---
+
+# 明日全民國家安全教育日　夏寶龍將以視頻出席開幕禮發表主旨講話
+
+  
+
+明日是第十個「全民國家安全教育日」，香港特區維護國家安全委員會明早將於灣仔會展舉辦「全民國家安全教育日」開幕典禮暨主題講座。中央港澳工作辦公室主任、國務院港澳事務辦公室主任夏寶龍將以視頻方式出席開幕禮，並發表主旨講話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800281-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800281-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800281-20250414.htm)
+
+---
+
 # 植田和男：美國關稅影響日本物價及經濟　央行將採取適當貨幣政策
 
 ![植田和男表示，美國關稅政策為日本經濟帶來下行壓力，亦可能影響物價。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800254_1_20250414105555.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -94,6 +141,7 @@
 
 # 62歲男子九龍城騎單車疑遭小巴撞倒送院不治　司機被捕
 
+![九龍城致命交通意外，62歲男子騎單車期間疑遭小巴撞倒，送院不治。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800275_1_20250414130937.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 九龍城發生致命交通意外，一名62歲男子在騎單車期間懷疑遭小巴撞倒，送院不治。74歲小巴司機涉嫌危險駕駛引致他人死亡被捕，正被扣留調查。
@@ -115,7 +163,7 @@
 
 ---
 
-# 有學校辦活動讓學生認識國家　以量入為出原則使用教育局津貼
+# 明日「全民國家安全教育日」　學校舉辦活動讓學生認識國家
 
   
 
