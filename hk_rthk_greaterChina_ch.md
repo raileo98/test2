@@ -161,6 +161,30 @@
 
 ---
 
+# 莊榮文：人工智能等發展不斷突破　經濟發展等產生重大深遠影響
+
+![莊榮文形容人工智能等新技術為一把雙刃劍，建議應加強網絡安全等。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800255_1_20250414124505.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+世界互聯網大會首次在香港舉辦亞太峰會。國家互聯網信息辦公室主任、世界互聯網大會理事長莊榮文致辭表示，當前人工智能等新技術發展不斷突破，正為經濟發展、社會進步、國際政治經濟格局等方面產生重大而深遠影響。中國科研機構和科技企業不斷推出人工智能大模型等創新成果，為中國、亞太地區和全球發展帶來強勁動力，亦為推動構建網絡空間命運共同體提供機遇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm)
+
+---
+
 # 特朗普稱對等關稅沒「豁免 」　中方啟動「購在中國」系列活動
 
 ![特朗普說將智能手機和電腦等產品，排除在對等關稅之外的措施是短暫的，強調沒有「豁免 」。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800253_1_20250414110923.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1406,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799998-20250411.htm)
-
----
-
-# 劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰
-
-![劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799992_1_20250411213700.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-中共中央總書記、國家主席習近平在北京與西班牙首相桑切斯會面時，首次就近日的關稅議題發聲，強調「打關稅戰」沒有贏家，同世界作對將孤立自己，重申中方不畏懼任何無理打壓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm)
 
 ---
