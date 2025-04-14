@@ -118,6 +118,30 @@
 
 ---
 
+# 鄭雁雄：香港定能為推動構建網絡空間命運共同體作出更大貢獻
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800260_1_20250414120056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+世界互聯網大會亞太峰會早上在香港會展舉行，中聯辦主任鄭雁雄表示，香港是互聯網發展的先行地區，具有全球金融、航運、貿易中心的傳統優勢，亦有人工智能研發創科發展及人才等新優勢，更有制度創新、兩文三語、文化包容及內聯外通等獨特優勢，相信香港定能為推動構建網絡空間命運共同體作出新的更大貢獻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800260-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800260-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800260-20250414.htm)
+
+---
+
 # 王令浚：美國實施所謂對等關稅是典型關稅霸凌行為
 
 ![王令浚敦促美方立即糾正錯誤做法，按照相互尊重原則，通過平等對話解決貿易分歧。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800257_1_20250414124822.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -211,6 +235,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm)
+
+---
+
+# 有餐飲業稱復活假期訂座情況不理想　憂市民外遊影響生意
+
+![黃家和說根據過往經驗，在市民外遊影響下，對餐飲業生意有頗嚴重打擊。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800249_1_20250414110835.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+本周五起一連四日為復活節假期，香港餐飲聯業協會會長黃家和在本台節目《千禧年代》表示，目前訂座情況不理想，根據過往這幾年經驗，在市民外遊影響下，對餐飲業生意有頗嚴重打擊，餐飲業於去年復活節的生意比平日下跌逾3成，有些甚至是下跌一半以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800249-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800249-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800249-20250414.htm)
 
 ---
 
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm)
-
----
-
-# 中方指美方對華關稅稅率異常高淪數字遊戲　如再加將不予理會
-
-![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字遊戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799980_1_20250411195622.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
-  
-
-中國再度反制美國，向原產於美國的進口商品，加徵關稅稅率上調至125%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm)
-
----
-
-# 代理：本周末二手屋苑預約睇樓減少　關稅戰令觀望氣氛明顯轉濃
-
-![地產代理預料本周末十大屋苑成交宗數未必能達雙位數。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799978_1_20250411183339.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-中原地產數字顯示，本周末十大屋苑預約睇樓有401組，按周跌約13.6%，創近5星期新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799978-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799978-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799978-20250411.htm)
 
 ---
