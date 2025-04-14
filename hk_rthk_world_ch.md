@@ -1,3 +1,27 @@
+# 「世越」號沉沒事故　南韓當局裁定舵機故障等船體內部原因引致
+
+![「世越」號沉沒事故　南韓當局裁定舵機故障等船體內部原因引致](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800304_1_20250414150909.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+南韓「世越」號客輪2014年沉沒事故，木浦地方海洋安全審判院表示，院方去年11月作出裁決，認定事故是由於舵機故障等船體內部原因所致，排除「世越」號因與潛艇相撞等外部原因傾覆的可能。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800304-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800304-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800304-20250414.htm)
+
+---
+
 # 日本栃木縣72人進食同一供應商飯盒後疑食物中毒　其中1人死亡
 
 ![日本栃木縣72人進食同一供應商飯盒後疑食物中毒　其中1人死亡](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800294_1_20250414142750.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800033-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800033-20250412.htm)
-
----
-
-# 路透：為俄軍作戰的中國公民屬僱傭兵　似乎與中國政府沒直接聯繫
-
-![一名被烏軍俘虜的男子在鏡頭前稱自己是中國人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800029_1_20250412062455.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-路透社引述美國官員和西方前情報人員報道，大約200名在烏克蘭為俄羅斯軍隊作戰的中國公民都是僱傭兵，似乎與中國政府沒有直接聯繫，但有中國軍官在北京批准下，在俄羅斯戰線後方戰區，並從中汲取戰術經驗。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800029-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800029-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800029-20250412.htm)
 
 ---

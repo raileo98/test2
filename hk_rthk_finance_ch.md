@@ -1,3 +1,27 @@
+# 滬深股市升幅有限　滬股全日升近1%
+
+![內地股市收市升幅有限。上證指數收市報3262點，升24點，升幅0.76%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800305_1_20250414151116.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+內地股市收市升幅有限。海南概念股、體育概念股及貴金屬股造好；白酒及非金屬材料股沽壓較大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800305-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800305-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800305-20250414.htm)
+
+---
+
 # 有人工智能初創公司稱世界互聯網大會亞太峰會有助推廣香港品牌
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm)
-
----
-
-# 美元兌瑞郎跌至10年新低　美匯失守100
-
-![衡量美元兌一籃子貨幣的美元指數失守100大關，較早時報99.786，跌0.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800028_1_20250412060238.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-美元兌主要貨幣下跌，衡量美元兌一籃子貨幣的美元指數失守100大關，較早時報99.786，跌0.73%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800028-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800028-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800028-20250412.htm)
 
 ---

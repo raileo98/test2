@@ -1,3 +1,27 @@
+# 「世越」號沉沒事故　南韓當局裁定舵機故障等船體內部原因引致
+
+![「世越」號沉沒事故　南韓當局裁定舵機故障等船體內部原因引致](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800304_1_20250414150909.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+南韓「世越」號客輪2014年沉沒事故，木浦地方海洋安全審判院表示，院方去年11月作出裁決，認定事故是由於舵機故障等船體內部原因所致，排除「世越」號因與潛艇相撞等外部原因傾覆的可能。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800304-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800304-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800304-20250414.htm)
+
+---
+
 # 有人工智能初創公司稱世界互聯網大會亞太峰會有助推廣香港品牌
 
   
@@ -117,7 +141,7 @@
 
 ---
 
-# 轉數快星期日凌晨1時至上午11時進行系統提升
+# 轉數快擬周日凌晨1時至上午11時進行系統提升
 
 ![轉數快擬周日凌晨1時至上午11時系統提升，金管局已要求銀行及儲值支付工具營運商預早通知客戶。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800293_1_20250414142332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
@@ -552,7 +576,7 @@
 
 # 本港今日空氣質素仍欠佳　多區空氣質素健康指數風險為高至甚高
 
-![環保署在今早11時錄得多區的空氣質素健康指數風險為高至甚高。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800268_1_20250414121930.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800268_1_20250414121930.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 受乾燥的大陸氣流及沙塵天氣影響，廣東部分地區能見度較低，本港今日空氣質素仍然欠佳，環保署在今早11時錄得多區的空氣質素健康指數風險為高至甚高；一般及路邊監測站下午的健康風險預測均為中至嚴重。
