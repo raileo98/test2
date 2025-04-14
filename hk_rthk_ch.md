@@ -1,5 +1,6 @@
 # 34歲男子感染侵入性腦膜炎雙球菌　情況穩定
 
+![一名34歲男子感染侵入性腦膜炎雙球菌，現時情況穩定。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800324_1_20250414171721.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 一名34歲男子感染侵入性腦膜炎雙球菌，現時情況穩定。
