@@ -1,3 +1,49 @@
+# 62歲男子九龍城騎單車疑遭小巴撞倒送院不治　小巴司機被捕
+
+  
+
+九龍城發生致命交通意外，一名62歲男子在騎單車期間懷疑遭小巴撞倒，送院不治。74歲小巴司機涉嫌危險駕駛引致他人死亡被捕，正被扣留調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800275-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800275-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800275-20250414.htm)
+
+---
+
+# 有學校辦活動讓學生認識國家　以量入為出原則使用教育局津貼
+
+  
+
+明日是第十個「全民國家安全教育日」。有學校經常舉辦活動，讓學生認識國家，包括設立升旗隊、舉辦問答比賽等，亦設立「校史室暨國民教育資料館」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800274-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800274-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800274-20250414.htm)
+
+---
+
 # 全國政協副主席王勇提出要促進共同發展繁榮　堅持真正多邊主義
 
   
@@ -1389,54 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm)
-
----
-
-# Coldplay完成4場演出約20萬人入場　體育園稱運作暢順
-
-![啟德體育園稱Coldplay演唱會首次在啟德體育園成功完滿舉行。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_1_20250412233056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-![體育園有信心繼續為香港帶來更多精彩盛事。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_2_20250412233056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-英國樂隊Coldplay完成在本港的4場演出，啟德體育園表示，共吸引約20萬名來自海外、內地及香港的觀眾入場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800106-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800106-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800106-20250412.htm)
-
----
-
-# 70歲男子胡開成離開梨木道院舍後失蹤　警方呼籲提供消息
-
-![失蹤男子身高約1.65米，體重約72公斤，中等身材。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800105_1_20250412230948.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-70歲男子胡開成早上離開位於葵涌梨木道的院舍後失蹤，院舍職員報案，警方呼籲市民提供消息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm)
 
 ---

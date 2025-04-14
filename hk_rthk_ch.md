@@ -1,3 +1,49 @@
+# 62歲男子九龍城騎單車疑遭小巴撞倒送院不治　小巴司機被捕
+
+  
+
+九龍城發生致命交通意外，一名62歲男子在騎單車期間懷疑遭小巴撞倒，送院不治。74歲小巴司機涉嫌危險駕駛引致他人死亡被捕，正被扣留調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800275-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800275-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800275-20250414.htm)
+
+---
+
+# 有學校辦活動讓學生認識國家　以量入為出原則使用教育局津貼
+
+  
+
+明日是第十個「全民國家安全教育日」。有學校經常舉辦活動，讓學生認識國家，包括設立升旗隊、舉辦問答比賽等，亦設立「校史室暨國民教育資料館」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800274-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800274-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800274-20250414.htm)
+
+---
+
 # 全國政協副主席王勇提出要促進共同發展繁榮　堅持真正多邊主義
 
   
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800194-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800194-20250413.htm)
-
----
-
-# 劉光源：香港科技創新之光正加速綻放
-
-![劉光源說，中國始終以人類命運共同體理念引領國際科技合作，選擇中國就是選擇未來。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800193_1_20250413223629.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-第二屆香港世界青年科學大會開幕式在會展舉行。中聯辦副主任劉光源致辭指，去年國家科技創新大步前行，為全球科技進步、世界經濟發展注入了強勁動力。他又說，中國始終以人類命運共同體理念引領國際科技合作。選擇中國就是選擇未來，投資中國就是投資明天，與中國同行就是與機遇同行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800193-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800193-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800193-20250413.htm)
-
----
-
-# 習近平明天出訪越南　越外長：雙方將簽署涵蓋多個領域合作文件
-
-![習近平明天起，對越南、馬來西亞及柬埔寨三國展開國事訪問。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800192_1_20250413214419.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-國家主席習近平明天起對越南、馬來西亞及柬埔寨三國展開國事訪問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800192-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800192-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800192-20250413.htm)
 
 ---
