@@ -1,3 +1,27 @@
+# Trump hosts 'coolest dictator' Bukele
+
+![US President Donald Trump meets with El Salvador's President Nayib Bukele in the Oval Office at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800367_1_20250415005442.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+US President Donald Trump on Monday hosted El Salvador's President Nayib Bukele, who is now the US leader's key ally in a controversial push to deport illegal migrants to a notorious Salvadoran prison.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800367-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800367-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800367-20250415.htm)
+
+---
+
 # Ex-Malaysian PM Abdullah Badawi dies
 
 ![Abdullah Badawi was prime minister of Malaysia from 2003 to 2009. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800359_1_20250414223012.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ Tokyo's Nikkei index jumped nearly six percent in early trade on Tuesday after p
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799360-20250408.htm)
-
----
-
-# Philippines volcano sends ash into the air
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799343_1_20250408083655.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-A volcano in the central Philippines erupted early on Tuesday morning, sending a plume of ash 4,000 metres into the sky and prompting calls for local school cancellations.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799343-20250408.htm)
 
 ---

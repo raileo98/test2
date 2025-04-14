@@ -1,3 +1,27 @@
+# Trump hosts 'coolest dictator' Bukele
+
+![US President Donald Trump meets with El Salvador's President Nayib Bukele in the Oval Office at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800367_1_20250415005442.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+US President Donald Trump on Monday hosted El Salvador's President Nayib Bukele, who is now the US leader's key ally in a controversial push to deport illegal migrants to a notorious Salvadoran prison.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800367-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800367-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800367-20250415.htm)
+
+---
+
 # Ex-Malaysian PM Abdullah Badawi dies
 
 ![Abdullah Badawi was prime minister of Malaysia from 2003 to 2009. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800359_1_20250414223012.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1437,5 @@ Argentina dismantled key parts of its years-long currency controls and loosened 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800047-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800047-20250412.htm)
-
----
-
-# South Carolina executes second convict by firing squad
-
-![Mikal Mahdi (pictured) was executed for the 2004 murder of 56-year-old James Myers. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800044_1_20250412094035.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-A man facing the death penalty for committing two murders was executed by firing squad on Friday, the second such execution in the US state of South Carolina this year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800044-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800044-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800044-20250412.htm)
 
 ---
