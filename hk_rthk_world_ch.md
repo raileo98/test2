@@ -1,3 +1,27 @@
+# 石破茂：日本不打算在對美貿易談判中作重大讓步　不急於達成協議
+
+![石破茂表示，日本不打算在談判中作出重大讓步，亦不急於達成協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800352_1_20250414211059.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+日本與美國將於星期四在華盛頓展開貿易談判，預計會涉及關稅、非關稅壁壘和匯率等議題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm)
+
+---
+
 # 伊朗外交部：周六與美國舉行次輪間接會談　外長將先訪俄羅斯
 
 ![在美伊首輪間接會談，伊朗外長阿拉格齊（左）透過阿曼外交大臣巴德爾（右）向美方傳遞政府立場。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800346_1_20250414202212.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800077-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800077-20250412.htm)
-
----
-
-# 中國駐緬甸大使館：大地震導致8名中國公民死亡
-
-![中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800089_1_20250412184342.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-新華社報道，中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm)
 
 ---

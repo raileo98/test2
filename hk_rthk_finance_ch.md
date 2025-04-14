@@ -1,3 +1,27 @@
+# OPEC下調今年全球石油需求增長預測　受關稅影響
+
+![OPEC下調今年全球石油需求增長預測，受到首季數據和美國關稅影響。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800351_1_20250414205809.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+石油輸出國組織(OPEC)下調今年全球石油需求增長預測，受到首季數據和美國關稅影響，OPEC亦下調今明兩年全球經濟增長預測。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800351-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800351-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800351-20250414.htm)
+
+---
+
 # 高盛首季收入升6%　勝預期
 
 ![高盛上季收入升6%至150.6億美元，高於預期。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800349_1_20250414203344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800220-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800220-20250414.htm)
-
----
-
-# 地產代理：二手買家趁市況未明壓價
-
-![地產代理表示，關稅戰下市況不明朗，二手買家趁機壓價。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800214_1_20250414073358.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-地產代理表示，關稅戰下市況不明朗，二手買家趁機壓價。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800214-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800214-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800214-20250414.htm)
 
 ---
