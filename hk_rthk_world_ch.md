@@ -1,6 +1,29 @@
+# 特朗普稱對等關稅沒「豁免 」　中方啟動「購在中國」系列活動
+
+  
+
+美國總統特朗普說，將智能手機和電腦等產品，排除在對等關稅之外的措施將是短暫的，強調措施根本沒有「豁免 」，這些電子產品只是被轉移到另一關稅類別，仍會面臨關稅。他又說，會對半導體行業進行國家安全關稅調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm)
+
+---
+
 # 尹錫悅出席涉嫌內亂罪刑事審判首場公審　 兩名關鍵證人將出庭
 
-![在首爾中央地方法院外，有示威者到場支持尹錫悅，並一度與警員發生推撞。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800237_1_20250414100458.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![在首爾中央地方法院外，有示威者到場支持尹錫悅，並一度與警員發生推撞。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800237_1_20250414100458.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 南韓前總統尹錫悅涉嫌發動內亂案的刑事審判首場公審今日舉行，是他被罷免總統職務後接受的首場公審，他亦是第五位受到刑事審判的前總統。
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800018-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800018-20250412.htm)
-
----
-
-# 特朗普：關稅政策非常好　白宮不評論是否等待中方首先行動
-
-![白宮發言人萊維特強調，特朗普對貿易協議取得進展持樂觀態度。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800016_1_20250412031324.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-中國今日起對美國進口商品加徵的關稅稅率提高至125%，又表明如果美方繼續關稅數字遊戲，中方將不予理會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800016-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800016-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800016-20250412.htm)
 
 ---

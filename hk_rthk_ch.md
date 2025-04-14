@@ -1,5 +1,264 @@
+# 李家超：香港永遠倡導自由貿易多邊主義　歡迎企業來港尋求發展
+
+  
+
+世界互聯網大會亞太峰會早上在香港會展舉行，行政長官李家超致辭時表示，在當下充滿挑戰的時期，地緣政治和貿易關係緊張，因此合作非常重要，香港永遠倡導自由貿易、多邊主義，亦願意提供一系列優惠措施給投資者，香港歡迎所有志同道合的企業來港，尋求商業發展，共同建設更美好的未來。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800256-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800256-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800256-20250414.htm)
+
+---
+
+# 莊榮文：人工智能等發展不斷突破　經濟發展等產生重大深遠影響
+
+  
+
+世界互聯網大會首次在香港舉辦亞太峰會。國家互聯網信息辦公室主任、世界互聯網大會理事長莊榮文致辭表示，當前人工智能等新技術發展不斷突破，正為經濟發展、社會進步、國際政治經濟格局等方面產生重大而深遠影響。中國科研機構和科技企業不斷推出人工智能大模型等創新成果，為中國、亞太地區和全球發展帶來強勁動力，亦為推動構建網絡空間命運共同體提供機遇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm)
+
+---
+
+# 特朗普稱對等關稅沒「豁免 」　中方啟動「購在中國」系列活動
+
+  
+
+美國總統特朗普說，將智能手機和電腦等產品，排除在對等關稅之外的措施將是短暫的，強調措施根本沒有「豁免 」，這些電子產品只是被轉移到另一關稅類別，仍會面臨關稅。他又說，會對半導體行業進行國家安全關稅調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm)
+
+---
+
+# 全國政協副主席王勇：將全力支持香港深度融入全球數字化發展
+
+  
+
+世界互聯網大會首次舉辦亞太峰會，今日起一連兩日在灣仔會展舉行。全國政協副主席王勇表示，中國政府將全力支持香港深度融入全球數字化發展的時代洪流，充分把握數字經濟蓬勃興起的黃金機遇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm)
+
+---
+
+# 有餐飲業稱復活假期訂座情況不理想　憂市民外遊影響生意
+
+  
+
+本周五起一連四日為復活節假期，香港餐飲聯業協會會長黃家和在本台節目《千禧年代》表示，目前訂座情況不理想，根據過往這幾年經驗，在市民外遊影響下，對餐飲業生意有頗嚴重打擊，餐飲業於去年復活節的生意比平日下跌逾3成，有些甚至是下跌一半以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800249-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800249-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800249-20250414.htm)
+
+---
+
+# 中國海關總署：中國將堅持真正多邊主義
+
+![王令浚重申中國將同各方一道堅持真正多邊主義，共同維護以世界貿易組織為核心的多邊貿易體制。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800247_1_20250414104005.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+中國海關總署副署長王令浚表示，近期美國政府在全球範圍濫施關稅，逆潮流而動，不僅遭到相關國家普遍反對，亦遭到國際組織批評和反對。中國第一時間發表聲明，認為美國的做法將對全球貿易和經濟增長前景產生重大影響，導致全球商品貿易量萎縮。世貿組織呼籲成員國團結一致，通過世貿組織平台進行建設性對話，尋求合作解決方案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800247-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800247-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800247-20250414.htm)
+
+---
+
+# 入境處料復活節假期604萬人次進出香港　本周五陸路出境較繁忙
+
+  
+
+入境處預計今年復活節假期期間，即4月17日至4月21日，約有604萬人次包括香港居民及訪客，經各海、陸、空管制站進出香港。經入境處與深圳出入境邊防檢查總站等內地部門協商後，預計約有505萬人次會經各陸路邊境管制站進出香港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800248-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800248-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800248-20250414.htm)
+
+---
+
+# 現貨金再創新高
+
+![現貨金再創新高，一度高見每盎司3245.42美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800246_1_20250414103932.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
+  
+
+現貨金再創新高，一度高見每盎司3245.42美元，較早時報3233.85美元，跌幅近0.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800246-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800246-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800246-20250414.htm)
+
+---
+
+# 日股半日升逾1%
+
+![日經平均指數上午收市報34115點，升529點，升幅1.58%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800245_1_20250414103513.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本股市半日升逾1%。日經平均指數上午收市報34115點，升529點，升幅1.58%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800245-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800245-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800245-20250414.htm)
+
+---
+
+# 中國海關總署：美國關稅影響全球貿易　中方反制捍衛國際公平正義
+
+![中國海關總署表示，將嚴格依法實施各項對美的反制措施，維護國家主權安全發展利益。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800243_1_20250414102951.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=20)
+  
+
+中國海關總署副署長王令浚表示，近期美國政府濫施關稅，無可避免對全球，包括中美在內的貿易造成負面影響，中方第一時間堅決實施必要的反制措施，不只維護自身正當權益，亦是為了捍衛國際貿易規則和國際公平正義，中國將堅定不移推動高水平對外開放，推動與各國開展互利共贏的經貿合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800243-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800243-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800243-20250414.htm)
+
+---
+
+# 順豐速運香港：停發SMS短訊　快件自取訊息改手機應用程式推送
+
+![順豐速運香港宣布今日起停止發送SMS短訊，所有快件自取訊息通知將全部改為透過官方手機應用程式推送。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800242_1_20250414104748.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+  
+
+為減低偽冒訊息詐騙的風險，順豐速運香港宣布，由今日起將停止發送SMS短訊，所有快件自取訊息通知將全部改為透過官方手機應用程式推送。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm)
+
+---
+
 # 陳國基：美國加關稅讓大家明白沒有足夠國安意識　後果可以很嚴重
 
+![陳國基強調美國加關稅有政治目的。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800241_1_20250414104622.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 美國向全球廣泛國家及地區加徵關稅，政務司司長陳國基形容是「下三流做法」，批評美國完全不講法律、不符合國際做法，「鍾意點做就點做」，有如「勒索」，強調美方加關稅有政治目的，影響了本港的股票市場及營商環境。他又指出，金融、股票、財政行動都是國家安全範圍內，今次美國加關稅正是一個好教材，讓大家明白沒有足夠的國安意識，後果可以很嚴重。
@@ -25,6 +284,9 @@
 
 ![商務部等6部門啟動「購在中國」系列活動，持續提升中國消費市場吸引力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800239_1_20250414101327.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
   
+
+商務部會同國家發展改革委、工業和信息化部、文化和旅游部、市場監管總局、體育總局，在海南第五届中國國際消費品博覽會啓動「購在中國」系列活動，通過打造具有國際影響力的標誌性擴消費活動品牌，擴大優質商品和服務供給，創新多元消費場景，推動商旅文體健深入融合，打造國際友好消費環境，進一步釋放多樣化、差異化消費潜力，推動消費提質升級，持續提升中國消費市場吸引力和美譽度。
+
   
 
 
@@ -68,7 +330,7 @@
 
 # 尹錫悅出席涉嫌內亂罪刑事審判首場公審　 兩名關鍵證人將出庭
 
-![在首爾中央地方法院外，有示威者到場支持尹錫悅，並一度與警員發生推撞。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800237_1_20250414100458.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![在首爾中央地方法院外，有示威者到場支持尹錫悅，並一度與警員發生推撞。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800237_1_20250414100458.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 南韓前總統尹錫悅涉嫌發動內亂案的刑事審判首場公審今日舉行，是他被罷免總統職務後接受的首場公審，他亦是第五位受到刑事審判的前總統。
@@ -1171,269 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm)
-
----
-
-# 郭毅可料7月可推聊天機械人供市民使用　並連接「智方便」系統
-
-![郭毅預料7月可將基於大語言模型開發的聊天機械人推出市場，供市民大眾使用。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800180_1_20250413184029.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-「InnoHK香港生成式人工智能研發中心」正研發港產大語言模型。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm)
-
----
-
-# 陳茂波：本港要保持開放　黃偉綸：推動成低空經濟全球領導者
-
-![陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800178_1_20250413183729.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-創新科技及工業局舉辦的「國際創科營商周」開幕。財政司司長陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位，自由貿易政策不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm)
-
----
-
-# 陳茂波：加速吸引境外資金人才來港　迎中概股回流
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800172_1_20250413182154.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-財政司司長陳茂波表示，面對貿易戰等影響，本港會維持開放，自由港地位及自由貿易政策亦不變，並將加速吸引境外資金、人才及企業來港發展，他已指示證監會和港交所做好準備，若在海外上市中概股希望回流，必須讓香港成為他們首選上市地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800172-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800172-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800172-20250413.htm)
-
----
-
-# 美國豁免手提電話及電腦等電子產品徵收對等關稅
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800173_1_20250413182149.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國政府將大約20類電子產品，包括手提電話、平板電腦及半導體元件等，列入對貿易夥伴徵收對等關稅的豁免清單，措施適用於本月5日後進入美國的產品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800173-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800173-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800173-20250413.htm)
-
----
-
-# 韓正出席消博會啟動儀式　商務部：擴大內需為任務之首
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800171_1_20250413181851.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-國家副主席韓正到海南省出席第五屆中國國際消費品博覽會活動啟動儀式。商務部指，全方位擴大國內需求是今年各項工作重點任務之首，亦會打造國際友好消費環境、擴大開放政策紅利。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800171-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800171-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800171-20250413.htm)
-
----
-
-# 山西省省長金湘軍涉嫌嚴重違紀違法被查
-
-![金湘軍涉嫌嚴重違紀違法被查。（中央紀委國家監委網站圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800176_1_20250413190902.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-中紀委國監委公布，山西省委副書記、省長金湘軍涉嫌嚴重違紀違法被查。有內地傳媒報道，金湘軍在上星期四主持召開會議後被帶走。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800176-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800176-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800176-20250413.htm)
-
----
-
-# 警務處舉辦全民國家安全教育日暨警隊博物館開放日
-
-![警務處今日舉辦「全民國家安全教育日暨警隊博物館開放日」。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800175_1_20250413180742.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-為響應4月15日的「全民國家安全教育日」，警務處今日舉辦「全民國家安全教育日暨警隊博物館開放日」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800175-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800175-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800175-20250413.htm)
-
----
-
-# 數字辦與上海數據局在港簽署《滬港數字經濟合作備忘錄》
-
-![數字辦與上海市數據局在香港簽署《滬港數字經濟合作備忘錄》，共同推進滬港兩地深化合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800170_1_20250413180657.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-數字辦與上海市數據局在香港簽署《滬港數字經濟合作備忘錄》，共同推進滬港兩地圍繞數字經濟、數字化轉型、數據要素發展等領域深化合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm)
-
----
-
-# 民主黨特別會員大會絕大多數票數通過授權中委會跟進解散
-
-![民主黨召開特別會員大會，超過9成會員通過授權中央委員會進一步跟進解散事宜。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800169_1_20250413180223.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-民主黨召開特別會員大會，過百名會員出席，超過9成通過授權中央委員會進一步跟進解散事宜。主席羅健熙在記者會說，將開始處理財務和行政安排，但未有召開處理解散的會員大會時間表，將按部就班處理，形容「好難特別快，亦不會特別拖慢」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800169-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800169-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800169-20250413.htm)
-
----
-
-# 烏克蘭稱俄羅斯導彈擊中蘇梅市中心逾20人死
-
-![消防員在導彈襲擊現場撲救大火。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800168_1_20250413174055.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-烏克蘭當局說，俄羅斯使用彈道導彈襲擊烏克蘭北部城市蘇梅，造成至少21人死亡，多人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800168-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800168-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800168-20250413.htm)
-
----
-
-# 央視「玉淵譚天」：決不允許拿中方利益當美國談判投名狀
-
-![「玉淵譚天」說，中方正與多國共同應對美國濫施關稅，決不允許拿中方利益當美國談判投名狀。（徵博截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800167_2_20250413172122.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-央視旗下「玉淵譚天」說，中方正與多國共同應對美國濫施關稅，決不允許拿中方利益當美國談判投名狀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800167-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800167-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800167-20250413.htm)
 
 ---

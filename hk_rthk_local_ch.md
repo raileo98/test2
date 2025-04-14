@@ -1,5 +1,122 @@
+# 李家超：香港永遠倡導自由貿易多邊主義　歡迎企業來港尋求發展
+
+  
+
+世界互聯網大會亞太峰會早上在香港會展舉行，行政長官李家超致辭時表示，在當下充滿挑戰的時期，地緣政治和貿易關係緊張，因此合作非常重要，香港永遠倡導自由貿易、多邊主義，亦願意提供一系列優惠措施給投資者，香港歡迎所有志同道合的企業來港，尋求商業發展，共同建設更美好的未來。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800256-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800256-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800256-20250414.htm)
+
+---
+
+# 全國政協副主席王勇：將全力支持香港深度融入全球數字化發展
+
+  
+
+世界互聯網大會首次舉辦亞太峰會，今日起一連兩日在灣仔會展舉行。全國政協副主席王勇表示，中國政府將全力支持香港深度融入全球數字化發展的時代洪流，充分把握數字經濟蓬勃興起的黃金機遇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm)
+
+---
+
+# 有餐飲業稱復活假期訂座情況不理想　憂市民外遊影響生意
+
+  
+
+本周五起一連四日為復活節假期，香港餐飲聯業協會會長黃家和在本台節目《千禧年代》表示，目前訂座情況不理想，根據過往這幾年經驗，在市民外遊影響下，對餐飲業生意有頗嚴重打擊，餐飲業於去年復活節的生意比平日下跌逾3成，有些甚至是下跌一半以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800249-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800249-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800249-20250414.htm)
+
+---
+
+# 入境處料復活節假期604萬人次進出香港　本周五陸路出境較繁忙
+
+  
+
+入境處預計今年復活節假期期間，即4月17日至4月21日，約有604萬人次包括香港居民及訪客，經各海、陸、空管制站進出香港。經入境處與深圳出入境邊防檢查總站等內地部門協商後，預計約有505萬人次會經各陸路邊境管制站進出香港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800248-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800248-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800248-20250414.htm)
+
+---
+
+# 順豐速運香港：停發SMS短訊　快件自取訊息改手機應用程式推送
+
+![順豐速運香港宣布今日起停止發送SMS短訊，所有快件自取訊息通知將全部改為透過官方手機應用程式推送。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800242_1_20250414104748.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+  
+
+為減低偽冒訊息詐騙的風險，順豐速運香港宣布，由今日起將停止發送SMS短訊，所有快件自取訊息通知將全部改為透過官方手機應用程式推送。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm)
+
+---
+
 # 陳國基：美國加關稅讓大家明白沒有足夠國安意識　後果可以很嚴重
 
+![陳國基強調美國加關稅有政治目的。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800241_1_20250414104622.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 美國向全球廣泛國家及地區加徵關稅，政務司司長陳國基形容是「下三流做法」，批評美國完全不講法律、不符合國際做法，「鍾意點做就點做」，有如「勒索」，強調美方加關稅有政治目的，影響了本港的股票市場及營商環境。他又指出，金融、股票、財政行動都是國家安全範圍內，今次美國加關稅正是一個好教材，讓大家明白沒有足夠的國安意識，後果可以很嚴重。
@@ -1320,125 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800088-20250412.htm)
-
----
-
-# 天文台稱冷鋒橫過廣東沿岸　受驟雨及狂風雷暴影響本港風力增強
-
-![天文台科學主任謝鈞澍表示，一道冷鋒正橫過廣東沿岸，與其相關的大驟雨及狂風雷暴正影響該區。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800085_1_20250412184814.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-強烈季候風信號現正生效，預料本港吹偏北強風，平均風速每小時超過40公里。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800085-20250412.htm)
-
----
-
-# 林定國：國安教育與愛國主義教育好比「孖生兄弟」
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800078_1_20250412181224.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-下周二是「全民國家安全教育日」，保安局轄下8支紀律部隊和輔助部隊由今天起，陸續在不同的周末及假日舉行開放日，讓公眾了解各部隊防範和抵禦國家安全風險所做的工作，提高國家安全意識。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800078-20250412.htm)
-
----
-
-# 周一鳴指詐騙案成「產業鏈」　重點打擊出售傀儡戶口
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800079_1_20250412181156.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-本港去年全年有逾4.4萬宗詐騙案，佔整體罪案約47%。警務處處長周一鳴形容，詐騙案已成為「產業鏈」，破案需要國際間合作，警方亦會重點打擊售賣涉及騙案傀儡戶口的人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800079-20250412.htm)
-
----
-
-# 運輸署籲往返啟德主場館觀眾留意天氣及交通　及早規劃行程
-
-![運輸署提醒觀眾應乘搭港鐵及散場時段提供的特別巴士服務。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800083_1_20250412175131.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-運輸署表示，由於天氣不穩定，呼籲往返啟德體育園啟德主場館演唱會的觀眾，應乘搭港鐵及散場時段提供的特別巴士服務，在戶外時應提高警惕，注意安全。由於入場和散場時間可能因實際情況而有變，觀眾特別是過境旅客應預早計劃行程，有需要應及早購票，觀眾應留意場地廣播和「離場易」平台提供的實時資訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800083-20250412.htm)
-
----
-
-# 荃灣三男子涉駕電動單車被捕　警方另發出一千多張定額罰款通知書
-
-![荃灣警區一連兩日區內採取執法行動。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800076_1_20250412171248.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
-  
-
-荃灣警區前日及昨日一連兩日於區內採取執法行動，打擊非法使用電動可移動工具及電單車違例停泊的交通罪行，共發出1016張定額罰款通知書、24張法庭傳票及拖移2部造成嚴重阻塞的車輛。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800076-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800076-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800076-20250412.htm)
 
 ---

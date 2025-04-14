@@ -1,3 +1,215 @@
+# 莊榮文：人工智能等發展不斷突破　經濟發展等產生重大深遠影響
+
+  
+
+世界互聯網大會首次在香港舉辦亞太峰會。國家互聯網信息辦公室主任、世界互聯網大會理事長莊榮文致辭表示，當前人工智能等新技術發展不斷突破，正為經濟發展、社會進步、國際政治經濟格局等方面產生重大而深遠影響。中國科研機構和科技企業不斷推出人工智能大模型等創新成果，為中國、亞太地區和全球發展帶來強勁動力，亦為推動構建網絡空間命運共同體提供機遇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm)
+
+---
+
+# 特朗普稱對等關稅沒「豁免 」　中方啟動「購在中國」系列活動
+
+  
+
+美國總統特朗普說，將智能手機和電腦等產品，排除在對等關稅之外的措施將是短暫的，強調措施根本沒有「豁免 」，這些電子產品只是被轉移到另一關稅類別，仍會面臨關稅。他又說，會對半導體行業進行國家安全關稅調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm)
+
+---
+
+# 全國政協副主席王勇：將全力支持香港深度融入全球數字化發展
+
+  
+
+世界互聯網大會首次舉辦亞太峰會，今日起一連兩日在灣仔會展舉行。全國政協副主席王勇表示，中國政府將全力支持香港深度融入全球數字化發展的時代洪流，充分把握數字經濟蓬勃興起的黃金機遇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm)
+
+---
+
+# 中國海關總署：中國將堅持真正多邊主義
+
+![王令浚重申中國將同各方一道堅持真正多邊主義，共同維護以世界貿易組織為核心的多邊貿易體制。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800247_1_20250414104005.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+中國海關總署副署長王令浚表示，近期美國政府在全球範圍濫施關稅，逆潮流而動，不僅遭到相關國家普遍反對，亦遭到國際組織批評和反對。中國第一時間發表聲明，認為美國的做法將對全球貿易和經濟增長前景產生重大影響，導致全球商品貿易量萎縮。世貿組織呼籲成員國團結一致，通過世貿組織平台進行建設性對話，尋求合作解決方案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800247-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800247-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800247-20250414.htm)
+
+---
+
+# 入境處料復活節假期604萬人次進出香港　本周五陸路出境較繁忙
+
+  
+
+入境處預計今年復活節假期期間，即4月17日至4月21日，約有604萬人次包括香港居民及訪客，經各海、陸、空管制站進出香港。經入境處與深圳出入境邊防檢查總站等內地部門協商後，預計約有505萬人次會經各陸路邊境管制站進出香港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800248-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800248-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800248-20250414.htm)
+
+---
+
+# 現貨金再創新高
+
+![現貨金再創新高，一度高見每盎司3245.42美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800246_1_20250414103932.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
+  
+
+現貨金再創新高，一度高見每盎司3245.42美元，較早時報3233.85美元，跌幅近0.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800246-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800246-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800246-20250414.htm)
+
+---
+
+# 日股半日升逾1%
+
+![日經平均指數上午收市報34115點，升529點，升幅1.58%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800245_1_20250414103513.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本股市半日升逾1%。日經平均指數上午收市報34115點，升529點，升幅1.58%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800245-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800245-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800245-20250414.htm)
+
+---
+
+# 中國海關總署：美國關稅影響全球貿易　中方反制捍衛國際公平正義
+
+![中國海關總署表示，將嚴格依法實施各項對美的反制措施，維護國家主權安全發展利益。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800243_1_20250414102951.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=20)
+  
+
+中國海關總署副署長王令浚表示，近期美國政府濫施關稅，無可避免對全球，包括中美在內的貿易造成負面影響，中方第一時間堅決實施必要的反制措施，不只維護自身正當權益，亦是為了捍衛國際貿易規則和國際公平正義，中國將堅定不移推動高水平對外開放，推動與各國開展互利共贏的經貿合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800243-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800243-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800243-20250414.htm)
+
+---
+
+# 順豐速運香港：停發SMS短訊　快件自取訊息改手機應用程式推送
+
+![順豐速運香港宣布今日起停止發送SMS短訊，所有快件自取訊息通知將全部改為透過官方手機應用程式推送。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800242_1_20250414104748.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+  
+
+為減低偽冒訊息詐騙的風險，順豐速運香港宣布，由今日起將停止發送SMS短訊，所有快件自取訊息通知將全部改為透過官方手機應用程式推送。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm)
+
+---
+
 # 內地首季出口按年增長6.9%　進口下跌6%
 
 ![中國海關總署統計，今年首季貨物貿易進出口按年增長1.3%，當中出口增長6.9%，進口下跌6%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800238_1_20250414100134.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -1220,221 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799969-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799969-20250411.htm)
-
----
-
-# 特首下月聯同內地企業出訪中東
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799967_1_20250411183404.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-商務及經濟發展局局長丘應樺透露，行政長官5月將聯同內地企業出訪中東。丘應樺指，特區政府與內地各個省市有很強的配合，「拼船出海」，在地緣政治緊張之下謀求發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799967-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799967-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799967-20250411.htm)
-
----
-
-# 本港二手樓價按周微升　中原料今季樓價或再跌近3%
-
-![中原地產指貿易衝突升級，環球股市大幅波動，本港二手樓成交轉慢，今季樓價或再跌2.85%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799947_1_20250411161932.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
-  
-
-反映本港二手樓價走勢的中原城市領先指數（CCL）最新報136.9，按周微升0.06%，但仍處於超過8年半以來低位。本周中美互相加徵關稅，全球股市大跌對樓市的影響將於5月上旬的樓價反映。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799947-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799947-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799947-20250411.htm)
-
----
-
-# 港股高收逾1%　連升4個交易日　恒指本周累跌近8.5%
-
-![恒指收市報20914點，升幅1.13%，連升4個交易日，全星期累計跌近8.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799952_1_20250411163948.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
-  
-
-港股先跌後回升，恒指初段最多跌近240點，其後轉升，下午曾升近450點，高見21127點，但未能企穩21000點關口，收市報20914點，升232點，升幅1.13%，連升4個交易日，主板成交額減少至約2764億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799952-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799952-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799952-20250411.htm)
-
----
-
-# 投資推廣署稱香港是中東企業拓展亞太及內地市場策略門戶
-
-![吳國才（右）說，憑藉香港的營商優勢，與中東企業可以在金融、科技、可持續發展等加強合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799956_1_20250411165957.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-投資推廣署助理署長吳國才結束在中東的訪問，出訪利雅得、吉達和迪拜，宣傳香港是中東企業拓展亞太地區及內地市場的策略性門戶。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799956-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799956-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799956-20250411.htm)
-
----
-
-# 中國於世貿組織爭端解決機制追加起訴美國進一步提高對華關稅
-
-![中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799949_1_20250411162733.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-中國在世貿組織爭端解決機制下，起訴美方進一步加徵關稅措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799949-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799949-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799949-20250411.htm)
-
----
-
-# 商務部嚴厲譴責美國提高對華關稅　指畸高關稅淪數字游戲及笑話
-
-![商務部新聞發言人表示，嚴厲譴責美方肆意的單邊關稅措施堅決反對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799948_1_20250411162016.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-中國再反制美國提高對華關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799948-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799948-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799948-20250411.htm)
-
----
-
-# 中國對原產於美國進口商品關稅稅率提高至125%
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799946_1_20250411165306.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-國務院關稅稅則委員會發公告，明日起，對所有原產於美國的進口商品，加徵關稅稅率，由84%提高至125%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799946-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799946-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799946-20250411.htm)
-
----
-
-# 回應美國對華加徵關稅　外交部稱不願打關稅戰但也不怕打
-
-![林劍表示關稅戰、貿易戰沒有贏家，中方不願打，但也不怕打。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799935_1_20250411145114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-在北京，外交部回應美國對華產品加徵145%關稅。發言人林劍表示，關稅戰、貿易戰沒有贏家，中方不願打，但也不怕打。他說如果美方真的想通過對話談判解決問題，就應該停止極限施壓、胡作非為，任何對話都必須建立在平等、尊重、互惠的基礎上。如果美方執意打關稅戰、貿易戰，中方必將奉陪到底。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799935-20250411.htm)
-
----
-
-# 內地股市先低後高　滬股本周累跌逾3%
-
-![內地股市先低後高。上證指數收市報3238點，升14點，升幅0.45%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799937_2_20250411151809.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-內地股市先低後高，下午走勢轉強，半導體、資源、貴金屬、人型機械人概念股上升；農業、白酒股向下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799937-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799937-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799937-20250411.htm)
 
 ---
