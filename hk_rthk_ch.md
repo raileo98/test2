@@ -1,3 +1,27 @@
+# 特朗普：將對進口藥物徵收關稅
+
+![特朗普說，預計在不久的將來會對進口藥品徵收關稅。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800366_1_20250415005226.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國總統特朗普表示，預計在不久的將來會對進口藥品徵收關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm)
+
+---
+
 # 習近平晤范明政　強調要共同反對霸權主義、單邊主義
 
 ![習近平與越南總理范明政會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800365_1_20250415001321.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm)
-
----
-
-# 日本栃木縣72人進食同一供應商飯盒後疑食物中毒　其中1人死亡
-
-![日本栃木縣72人進食同一供應商飯盒後疑食物中毒　其中1人死亡](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800294_1_20250414142750.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-日本栃木縣有72人進食一間供應商提供的盒飯後懷疑食物中毒，其中1人死亡，涉事的盒飯供應商已被禁止營業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800294-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800294-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800294-20250414.htm)
 
 ---

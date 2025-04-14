@@ -1,3 +1,27 @@
+# 特朗普：將對進口藥物徵收關稅
+
+![特朗普說，預計在不久的將來會對進口藥品徵收關稅。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800366_1_20250415005226.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國總統特朗普表示，預計在不久的將來會對進口藥品徵收關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm)
+
+---
+
 # 習近平晤蘇林：要共同反對單邊霸凌行徑　維護全球產供鏈穩定
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800362_1_20250414225450.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800109-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800109-20250413.htm)
-
----
-
-# 普京稱火箭及航天工業應成為俄羅斯技術主權及經濟增長火車頭
-
-![普京表示宇宙開發及太空系統應用是全球競爭極為激烈的領域。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800108_1_20250413001952.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-俄羅斯總統普京表示，火箭及航天工業應該成為國民經濟增長的火車頭之一。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800108-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800108-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800108-20250413.htm)
 
 ---
