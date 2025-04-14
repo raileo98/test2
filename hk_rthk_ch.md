@@ -1,5 +1,53 @@
+# 首次全女班太空旅行　參與者包括樂壇天后Katy Perry
+
+  
+
+亞馬遜創辦人貝索斯旗下商業太空公司「藍色起源」，將樂壇天后Katy Perry在內6名送上太空，是首次全女班太空旅行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800357-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800357-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800357-20250414.htm)
+
+---
+
+# 美股初段升近1%至2%
+
+![道瓊斯指數較早時報40587點，升375點，升幅0.93%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800355_1_20250414213842.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+  
+
+美股初段上升，投資者憧憬貿易戰有所緩和。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800355-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800355-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800355-20250414.htm)
+
+---
+
 # 國務院港澳辦：施政報告充分展現澳門特區政府改革創新施政理念
 
+![國務院港澳辦表示，岑浩輝首份施政報告，深入貫徹國家主席習近平去年12月視察澳門系列重要講話精神。（鄭月明攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800354_1_20250414214755.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 國務院港澳辦表示，澳門行政長官岑浩輝發表上任後首份施政報告，深入貫徹國家主席習近平去年12月視察澳門系列重要講話精神，充分展現新一屆澳門特區政府改革創新、實幹擔當、銳意進取的施政理念，全力支援澳門特區政府和社會各界勇擔新時代「一國兩制」實踐的使命。
@@ -23,6 +71,7 @@
 
 # 日本多人進食受污染飯盒後染諾如病毒　當局籲市民外遊時注意衞生
 
+![衞生防護中心提醒市民外遊時應提高警覺。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800353_1_20250414214531.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 衞生防護中心表示，鑑於日本近日錄得一宗因為進食受污染飯盒而感染諾如病毒的爆發個案，提醒市民外遊時應提高警覺，時刻注意個人、環境及食物衞生，以減低食物中毒的風險。
@@ -142,6 +191,7 @@
 
 # 蔡若蓮：協助香港高校探索創新辦學模式　推動大灣區內校園合作
 
+![蔡若蓮說，特區政府會協助香港高等院校探索採用更靈活及創新的辦學模式。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800350_1_20250414214456.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 教育局局長蔡若蓮說，特區政府會繼續積極參與及推動大灣區高等教育合作，協助香港高等院校探索採用更靈活及創新的辦學模式，推動其香港及大灣區內地城市校園的更緊密合作，致力培育國家發展所需的優秀人才。
@@ -165,6 +215,7 @@
 
 # 陳美寶：政府與物流業界團結一致應對挑戰　協助業界配合市場轉型
 
+![陳美寶（左三）說，政府與業界團結一致應對挑戰，協助業界配合市場轉型。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800348_1_20250414214408.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 美國宣布對不同貿易夥伴採取對等關稅，特區政府表示，將與物流業界循五大策略應對，包括開拓新興市場、加強與粵港澳大灣區港口協作共同開拓新貨源、豁免部分貨物的出入口許可證要求以吸引更多中轉貨物、深化與國際港口和船舶合作，以及擴大航運及航空網絡。
@@ -354,8 +405,9 @@
 
 ---
 
-# ４人疑經緊急出口非法進入Coldplay演唱會場館　３人被捕
+# 4人疑經緊急出口非法進入Coldplay演唱會場館　3人被捕
 
+![3人涉嫌「串謀詐騙」被捕，案件由東九龍總區科技及財富罪案組第二隊跟進調查。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800338_1_20250414214937.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
   
 
 英國著名樂隊Coldplay日前完成在啟德體育園主場館的四場演出，在最後一場的演唱會，4名男女懷疑經由場館的一個緊急出口非法進入場內，警方拘捕涉案的其中3名男子，他們獲准保釋候查，下月向警方報到。

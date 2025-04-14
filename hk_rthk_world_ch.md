@@ -1,5 +1,29 @@
+# 首次全女班太空旅行　參與者包括樂壇天后Katy Perry
+
+  
+
+亞馬遜創辦人貝索斯旗下商業太空公司「藍色起源」，將樂壇天后Katy Perry在內6名送上太空，是首次全女班太空旅行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800357-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800357-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800357-20250414.htm)
+
+---
+
 # 日本多人進食受污染飯盒後染諾如病毒　當局籲市民外遊時注意衞生
 
+![衞生防護中心提醒市民外遊時應提高警覺。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800353_1_20250414214531.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 衞生防護中心表示，鑑於日本近日錄得一宗因為進食受污染飯盒而感染諾如病毒的爆發個案，提醒市民外遊時應提高警覺，時刻注意個人、環境及食物衞生，以減低食物中毒的風險。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800098-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800098-20250412.htm)
-
----
-
-# 美伊正式就核問題展開間接談判
-
-![伊朗外長阿拉格齊（左）向阿曼外交大臣巴德爾（右）闡述伊朗的核心立場。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800095_1_20250412203739.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-伊朗與美國在阿曼首都馬斯喀特正式就核問題展開間接談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800095-20250412.htm)
 
 ---

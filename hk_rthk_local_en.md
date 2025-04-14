@@ -1,3 +1,27 @@
+# Betting activity needs to be regulated: Alice Mak
+
+![The Hong Kong Jockey Club is working on plans towards legalising basketball betting. File Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800347_1_20250414202618.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+As Hong Kong moves towards legalising basketball betting, Secretary for Home and Youth Affairs Alice Mak stressed the government does not encourage gambling but that it's necessary to respond to demand.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800347-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800347-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800347-20250414.htm)
+
+---
+
 # Trade war 'may jeopardise global tech development'
 
 ![Paul Chan says more barriers are expected under the trade war, which could harm innovation and global technological development. Photo: Information Services Dept.](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800336_1_20250414182206.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1437,5 @@ Leung Chai-yan, the elder daughter of former SAR chief executive CY Leung, has d
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799548-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799548-20250409.htm)
-
----
-
-# Fans delight as Coldplay kick off HK tour
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799473_1_20250408193720.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-There was fanfare at the Kai Tak Stadium on Tuesday evening as Coldplay kicked off the first of four concerts in Hong Kong on its current world tour.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799473-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799473-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799473-20250408.htm)
 
 ---
