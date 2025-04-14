@@ -121,7 +121,7 @@ A man has died after being struck by a minibus on Monday morning.
 # Schools get creative with national security education
 
 ![Through quizzes, hands-on exhibits and cross-border exchanges, educators aim to boost national security education in ways that resonate beyond textbooks. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800265_1_20250414114527.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-![Ma On Shan Ling Liang Primary School, recently launched a “School History Room and National Education Archive" centre housing historical displays, national education books and rotating exhibitions to bring lessons to life. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800265_2_20250414114527.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![Ma On Shan Ling Liang Primary School recently launched a “School History Room and National Education Archive" centre housing historical displays, national education books and rotating exhibitions to bring lessons to life. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800265_2_20250414114527.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 Schools across Hong Kong are embracing creative ways to mark National Security Education Day this Tuesday, which will blend interactive learning with civic engagement to deepen students’ understanding of the nation’s heritage, security and cultural values.
@@ -196,7 +196,7 @@ The Immigration Department said on Monday that more than six million travellers 
 ![Eric Chan says US tariffs have seriously affected the SAR's business environment.  File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800251_1_20250414105239.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
-Chief Secretary Eric Chan said Washington's move to impose tariffs on imports from around the world violates international practice.
+Chief Secretary Eric Chan said Washington's move to impose tariffs on imports from around the world does not conform to international practice.
 
   
 
