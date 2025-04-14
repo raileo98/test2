@@ -47,6 +47,7 @@
 
 # 全國政協副主席王勇提出要促進共同發展繁榮　堅持真正多邊主義
 
+![王勇提出要促進共同發展繁榮，堅持真正的多邊主義。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800273_1_20250414125532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 世界互聯網大會亞太峰會首次一連兩日在灣仔會展舉行，全國政協副主席王勇表示，當前虛擬空間不平靜，舊的風險挑戰未消除，新的安全變量仍在不斷湧現。他提出要促進共同發展繁榮，堅持真正的多邊主義。

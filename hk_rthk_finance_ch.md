@@ -406,6 +406,54 @@
 
 ---
 
+# 陳國基：美國加關稅讓大家明白沒有足夠國安意識　後果可以很嚴重
+
+![陳國基強調美國加關稅有政治目的。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800241_1_20250414104622.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國向全球廣泛國家及地區加徵關稅，政務司司長陳國基形容是「下三流做法」，批評美國完全不講法律、不符合國際做法，「鍾意點做就點做」，有如「勒索」，強調美方加關稅有政治目的，影響了本港的股票市場及營商環境。他又指出，金融、股票、財政行動都是國家安全範圍內，今次美國加關稅正是一個好教材，讓大家明白沒有足夠的國安意識，後果可以很嚴重。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm)
+
+---
+
+# 商務部等6部門啟動「購在中國」系列活動　提升中國市場吸引力
+
+![商務部等6部門啟動「購在中國」系列活動，持續提升中國消費市場吸引力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800239_1_20250414101327.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+  
+
+商務部會同國家發展改革委、工業和信息化部、文化和旅游部、市場監管總局、體育總局，在海南第五届中國國際消費品博覽會啓動「購在中國」系列活動，通過打造具有國際影響力的標誌性擴消費活動品牌，擴大優質商品和服務供給，創新多元消費場景，推動商旅文體健深入融合，打造國際友好消費環境，進一步釋放多樣化、差異化消費潜力，推動消費提質升級，持續提升中國消費市場吸引力和美譽度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800239-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800239-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800239-20250414.htm)
+
+---
+
 # 內地首季出口按年增長6.9%　進口下跌6%
 
 ![中國海關總署統計，今年首季貨物貿易進出口按年增長1.3%，當中出口增長6.9%，進口下跌6%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800238_1_20250414100134.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799993-20250411.htm)
-
----
-
-# 劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰
-
-![劉兆佳認為習近平發聲冀外國知道中國會強硬應對美國不合理關稅戰。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799992_1_20250411213700.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-中共中央總書記、國家主席習近平在北京與西班牙首相桑切斯會面時，首次就近日的關稅議題發聲，強調「打關稅戰」沒有贏家，同世界作對將孤立自己，重申中方不畏懼任何無理打壓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799992-20250411.htm)
-
----
-
-# 金融監管總局發指導意見促進金融資產管理公司高質量發展
-
-![國家金融監管總局發出指導意見，要求金融資產管理公司支持受困房企項目紓困化險。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799984_1_20250411185302.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-國家金融監管總局發出指導意見，提出16條意見措施，要求金融資產管理公司做強做優不良資產收購處置業務，服務化解中小金融機構、房地產等領域風險，持續加強風險管理和內控機制建設，強化存量風險資產處置，嚴控增量業務風險，加強資產負債和流動性管理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm)
 
 ---

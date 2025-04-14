@@ -1,3 +1,26 @@
+# 有議員關注優化醫療費用減免機制複雜　盧寵茂：會盡量解說
+
+  
+
+醫務衞生局局長盧寵茂表示，當局上月已公布公共醫療收費改革方案，當中包括加強醫療保障措施，優化醫療費用減免機制，放寬申請資格，令以往可能不獲減免的基層市民在新機制下，有機會獲部分或全數減免。另外亦會引入每年1萬元住院及門診費用的上限，以及擴大自費藥械安全網及放寬申請資格。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800280-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800280-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800280-20250414.htm)
+
+---
+
 # 62歲男子九龍城騎單車疑遭小巴撞倒送院不治　司機被捕
 
   
@@ -46,6 +69,7 @@
 
 # 全國政協副主席王勇提出要促進共同發展繁榮　堅持真正多邊主義
 
+![王勇提出要促進共同發展繁榮，堅持真正的多邊主義。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800273_1_20250414125532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 世界互聯網大會亞太峰會首次一連兩日在灣仔會展舉行，全國政協副主席王勇表示，當前虛擬空間不平靜，舊的風險挑戰未消除，新的安全變量仍在不斷湧現。他提出要促進共同發展繁榮，堅持真正的多邊主義。
@@ -189,7 +213,7 @@
 
 # 李家超：香港倡導自由貿易多邊主義　歡迎企業來港尋求商業發展
 
-![李家超說今次峰會在香港主辦，充分證明香港作為國際創科中心的地位正在不斷上升。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800256_1_20250414110658.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800256_1_20250414110658.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 世界互聯網大會亞太峰會早上在香港會展舉行，行政長官李家超致辭時表示，在當下充滿挑戰的時期，地緣政治和貿易關係緊張，因此合作非常重要，香港永遠倡導自由貿易、多邊主義，亦願意提供一系列優惠措施給投資者，香港歡迎所有志同道合的企業來港，尋求商業發展，共同建設更美好的未來。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800120-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800120-20250413.htm)
-
----
-
-# 警方昨於機場拘捕兩漢涉毒　檢總市值約320萬元懷疑海洛英
-
-![警方扣留調查涉案人士。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800107_1_20250412235102.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-警方昨日下午聯同相關部門人員，在香港國際機場進行打擊毒品行動，在入境大堂截查2名男子，並在其中一名內地男子的行李箱內，檢獲約4.5公斤懷疑海洛英，總市值約320萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800107-20250412.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Cyclist dies after being hit by minibus
+
+![Police arrest a 74-year-old bus driver for dangerous driving causing death. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800279_1_20250414124452.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+A man has died after being struck by a minibus on Monday morning.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800279-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800279-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800279-20250414.htm)
+
+---
+
 # Schools get creative with national security education
 
 ![Through quizzes, hands-on exhibits and cross-border exchanges, educators aim to boost national security education in ways that resonate beyond textbooks. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800265_1_20250414114527.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1437,5 @@ An economist said on Tuesday he expects the US Federal Reserve to cut interest r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm)
-
----
-
-# MTR boosts services for Coldplay concerts
-
-![The MTR says passengers are advised to pay attention to station announcements and follow directional signage for guidance. Photo: MTR](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799388_1_20250408113840.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-The MTR said it would enhance services on the Tuen Ma and East Rail lines this week to accommodate concertgoers attending Coldplay’s performances at Kai Tak Stadium.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm)
 
 ---
