@@ -332,6 +332,7 @@
 
 # 王令浚：美國實施所謂對等關稅是典型關稅霸凌行為
 
+![王令浚敦促美方立即糾正錯誤做法，按照相互尊重原則，通過平等對話解決貿易分歧。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800257_1_20250414124822.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 中國海關總署副署長王令浚表示，美國實施所謂的「對等關稅」，顛覆現有國際經濟秩序，是典型的關稅霸凌行為，嚴重違反世貿組織規則，並損害以規則為基礎的多邊貿易體制，衝擊全球經濟秩序。
