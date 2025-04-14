@@ -1,3 +1,27 @@
+# 韓股高收近1%
+
+![首爾綜合指數收報2455點，升23點，升幅0.95%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800298_1_20250414145400.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+南韓股市升近1%收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800298-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800298-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800298-20250414.htm)
+
+---
+
 # 日股收市升幅收窄至近400點
 
 ![日經指數收報33982點，升396點，升幅1.2%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800297_1_20250414144316.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)

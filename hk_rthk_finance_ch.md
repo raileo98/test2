@@ -1,3 +1,27 @@
+# 韓股高收近1%
+
+![首爾綜合指數收報2455點，升23點，升幅0.95%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800298_1_20250414145400.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+南韓股市升近1%收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800298-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800298-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800298-20250414.htm)
+
+---
+
 # 日股收市升幅收窄至近400點
 
 ![日經指數收報33982點，升396點，升幅1.2%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800297_1_20250414144316.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -19,6 +43,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800297-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800297-20250414.htm)
+
+---
+
+# 韓正︰中國堅定不移打造一流營商環境　為各國企業提供更優質服務
+
+![韓正在海南海口出席一系列活動。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800296_1_20250414143517.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+國家副主席韓正表示，中國將堅定不移推動海南自由貿易港建設，充分發揮海南自由貿易港對外開放的重要門戶作用，讓各國企業更好參與中國新發展格局。中國將堅定不移打造一流營商環境，為各國企業提供更優質的服務保障，歡迎全球投資者積極投資中國、投資海南自由貿易港，共享中國發展機遇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm)
 
 ---
 
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800027-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800027-20250412.htm)
-
----
-
-# 道指升619點　全周升近5%
-
-![美股3大指數升逾1%至逾2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800026_1_20250412054911.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-美股先低後高，3大指數升逾1%至逾2%，波士頓聯儲銀行總裁柯林斯表示，聯儲局絕對準備好在必要時，部署工具來應對金融市場的運作問題。他的言論紓緩投資者緊張情緒。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800026-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800026-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800026-20250412.htm)
-
----
-
-# 英股升逾0.6%　法德股市低收0.3%至近1%
-
-![法國CAC指數收報7104點，跌21點，跌幅0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800022_1_20250412053347.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-歐洲股市3大指數個別發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800022-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800022-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800022-20250412.htm)
 
 ---
