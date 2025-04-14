@@ -1,3 +1,26 @@
+# 麥美娟：政府不鼓勵賭博　視乎公眾諮詢結果規範籃球博彩活動
+
+  
+
+政府正就規範籃球博彩活動的建議方案展開公眾諮詢，諮詢期至下月2日。民政及青年事務局局長麥美娟說，政府一貫政策是不鼓勵賭博，但社會對賭博有切實且持續的需求，如不予規管，很可能會導致非法賭博活動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800344-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800344-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800344-20250414.htm)
+
+---
+
 # 商會倡本港由「轉口貿易樞紐」轉型為「全球供應鏈服務中心」
 
   

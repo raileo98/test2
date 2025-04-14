@@ -1,3 +1,26 @@
+# 麥美娟：政府不鼓勵賭博　視乎公眾諮詢結果規範籃球博彩活動
+
+  
+
+政府正就規範籃球博彩活動的建議方案展開公眾諮詢，諮詢期至下月2日。民政及青年事務局局長麥美娟說，政府一貫政策是不鼓勵賭博，但社會對賭博有切實且持續的需求，如不予規管，很可能會導致非法賭博活動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800344-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800344-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800344-20250414.htm)
+
+---
+
 # 商會倡本港由「轉口貿易樞紐」轉型為「全球供應鏈服務中心」
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm)
-
----
-
-# 民主黨特別會員大會絕大多數票數通過授權中委會跟進解散
-
-![民主黨召開特別會員大會，超過9成會員通過授權中央委員會進一步跟進解散事宜。（仇志榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800169_1_20250413180223.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-民主黨召開特別會員大會，過百名會員出席，超過9成通過授權中央委員會進一步跟進解散事宜。主席羅健熙在記者會說，將開始處理財務和行政安排，但未有召開處理解散的會員大會時間表，將按部就班處理，形容「好難特別快，亦不會特別拖慢」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800169-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800169-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800169-20250413.htm)
 
 ---
