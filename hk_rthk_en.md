@@ -1,3 +1,27 @@
+# EU grants US$1.8 billion in new aid for Palestinians
+
+![Vice-President of the European Commission Kaja Kallas (L) shakes hands with Palestinian Prime Minister Mohammad Mustafa following their meeting in Ramallah. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800386_1_20250415074047.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+The European Union on Monday announced a new three-year financial support package for the Palestinians worth US$1.8 billion.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800386-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800386-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800386-20250415.htm)
+
+---
+
 # Stocks rally worldwide after Trump eases some tariffs
 
 ![Apple and other tech companies helped lift Wall Street after President Trump said he was exempting electronics from some of his stiff tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800379_1_20250415061332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
@@ -1413,29 +1437,5 @@ Newly appointed police commissioner Joe Chow on Saturday said officers will work
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800054-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800054-20250412.htm)
-
----
-
-# Northern Metropolis to see up to two tenders this year
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800052_1_20250412110442.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Development minister Bernadette Linn says one or two sizeable Northern Metropolis land parcels should to be put up for tender this year, while one in the San Tin Technopole will be tendered in 2026.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800052-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800052-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800052-20250412.htm)
 
 ---
