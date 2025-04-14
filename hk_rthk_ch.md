@@ -1,5 +1,29 @@
+# 王令浚：美國實施所謂對等關稅是典型關稅霸凌行為
+
+  
+
+中國海關總署副署長王令浚表示，美國實施所謂的「對等關稅」，顛覆現有國際經濟秩序，是典型的關稅霸凌行為，嚴重違反世貿組織規則，並損害以規則為基礎的多邊貿易體制，衝擊全球經濟秩序。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800257-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800257-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800257-20250414.htm)
+
+---
+
 # 李家超：香港永遠倡導自由貿易多邊主義　歡迎企業來港尋求發展
 
+![李家超說今次峰會在香港主辦，充分證明香港作為國際創科中心的地位正在不斷上升。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800256_1_20250414110658.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 世界互聯網大會亞太峰會早上在香港會展舉行，行政長官李家超致辭時表示，在當下充滿挑戰的時期，地緣政治和貿易關係緊張，因此合作非常重要，香港永遠倡導自由貿易、多邊主義，亦願意提供一系列優惠措施給投資者，香港歡迎所有志同道合的企業來港，尋求商業發展，共同建設更美好的未來。
@@ -46,6 +70,7 @@
 
 # 特朗普稱對等關稅沒「豁免 」　中方啟動「購在中國」系列活動
 
+![特朗普說將智能手機和電腦等產品，排除在對等關稅之外的措施是短暫的，強調沒有「豁免 」。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800253_1_20250414110923.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 美國總統特朗普說，將智能手機和電腦等產品，排除在對等關稅之外的措施將是短暫的，強調措施根本沒有「豁免 」，這些電子產品只是被轉移到另一關稅類別，仍會面臨關稅。他又說，會對半導體行業進行國家安全關稅調查。
@@ -69,6 +94,7 @@
 
 # 全國政協副主席王勇：將全力支持香港深度融入全球數字化發展
 
+![王勇表示，中國推動與各國共建公平公正的網絡空間及治理體系。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800250_1_20250414111139.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 世界互聯網大會首次舉辦亞太峰會，今日起一連兩日在灣仔會展舉行。全國政協副主席王勇表示，中國政府將全力支持香港深度融入全球數字化發展的時代洪流，充分把握數字經濟蓬勃興起的黃金機遇。
@@ -92,6 +118,7 @@
 
 # 有餐飲業稱復活假期訂座情況不理想　憂市民外遊影響生意
 
+![黃家和說根據過往經驗，在市民外遊影響下，對餐飲業生意有頗嚴重打擊。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800249_1_20250414110835.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 本周五起一連四日為復活節假期，香港餐飲聯業協會會長黃家和在本台節目《千禧年代》表示，目前訂座情況不理想，根據過往這幾年經驗，在市民外遊影響下，對餐飲業生意有頗嚴重打擊，餐飲業於去年復活節的生意比平日下跌逾3成，有些甚至是下跌一半以上。
@@ -139,6 +166,7 @@
 
 # 入境處料復活節假期604萬人次進出香港　本周五陸路出境較繁忙
 
+![入境處料陸路出境較為繁忙的日子為本月18日，出境人次約75萬9千人次；入境高峰期為本月21日，入境人次約61萬8千人次。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800248_1_20250414110959.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 入境處預計今年復活節假期期間，即4月17日至4月21日，約有604萬人次包括香港居民及訪客，經各海、陸、空管制站進出香港。經入境處與深圳出入境邊防檢查總站等內地部門協商後，預計約有505萬人次會經各陸路邊境管制站進出香港。
@@ -1409,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800174-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800174-20250413.htm)
-
----
-
-# 陳茂波指示證監會準備　倘海外上市中概股回流香港須成首選上市地
-
-![陳茂波表示，已指示證監會和港交所做好準備。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800177_1_20250413184123.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-財政司司長陳茂波表示，港股經過上周一跌勢後大致穩定，市場整體繼續暢順有序運作，認為香港在當前環球市場前景不明朗情況下，顯得更加穩定和具吸引力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm)
 
 ---
