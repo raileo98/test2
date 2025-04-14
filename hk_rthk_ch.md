@@ -1,3 +1,26 @@
+# 政府：入境處處理每宗入境個案會按照相關法律和政策處理
+
+  
+
+特區政府發表聲明，回應傳媒就日前有英國國會議員被拒入境香港的查詢，指不會評論個別個案，政務司司長陳國基今日下午會見正訪港的英國貿易政策部部長艾力生，並就事件交換意見，重申特區政府的立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800363-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800363-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800363-20250414.htm)
+
+---
+
 # 香港機場獲選全球最佳機場第6名　當局稱會鞏固國際航空樞紐地位
 
   
@@ -46,7 +69,7 @@
 
 # 習近平：中越兩國堅持和平發展　為世界帶來寶貴穩定性
 
-![習近平在蘇林陪同下檢閱儀仗隊。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800360_1_20250414223808.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![習近平在蘇林陪同下檢閱儀仗隊。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800360_1_20250414223808.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 中共中央總書記、國家主席習近平展開東南亞三國的國事訪問行程，中午抵達首站越南首都河內，越共中央總書記蘇林為習近平舉行隆重歡迎儀式，習近平在蘇林陪同下檢閱儀仗隊，兩人之後舉行會談。

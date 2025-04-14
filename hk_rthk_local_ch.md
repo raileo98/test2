@@ -1,3 +1,26 @@
+# 政府：入境處處理每宗入境個案會按照相關法律和政策處理
+
+  
+
+特區政府發表聲明，回應傳媒就日前有英國國會議員被拒入境香港的查詢，指不會評論個別個案，政務司司長陳國基今日下午會見正訪港的英國貿易政策部部長艾力生，並就事件交換意見，重申特區政府的立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800363-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800363-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800363-20250414.htm)
+
+---
+
 # 香港機場獲選全球最佳機場第6名　當局稱會鞏固國際航空樞紐地位
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800174-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800174-20250413.htm)
-
----
-
-# 陳茂波指示證監會準備　倘海外上市中概股回流香港須成首選上市地
-
-![陳茂波表示，已指示證監會和港交所做好準備。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800177_1_20250413184123.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-財政司司長陳茂波表示，港股經過上周一跌勢後大致穩定，市場整體繼續暢順有序運作，認為香港在當前環球市場前景不明朗情況下，顯得更加穩定和具吸引力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm)
 
 ---
