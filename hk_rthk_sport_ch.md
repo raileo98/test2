@@ -1,3 +1,26 @@
+# 英超般尼茅夫1:0富咸
+
+  
+
+英格蘭超級足球聯賽，般尼茅夫主場1:0僅勝富咸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800383-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800383-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800383-20250415.htm)
+
+---
+
 # 英超利物浦主場2:1擊敗韋斯咸　曼聯作客1:4不敵紐卡素
 
 ![雲迪克攻入致勝入球。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800212_1_20250414072202.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1427,30 +1450,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm)
-
----
-
-# 羅淑佩視察七欖賽事　稱新場館座位空調舒適氣氛熾熱
-
-![羅淑佩與姚錦成拍照留念並詢問對場地觀感，形容對方反應很正面。（羅淑佩社交網站圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797931_1_20250328210638.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-![羅淑佩說，新場館燈光及氣氛都非常亮麗熾熱。（羅淑佩社交網站圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797931_2_20250328210638.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
-  
-
-國際七人欖球賽揭幕，文化體育及旅遊局局長羅淑佩說，早上去了啟德主場館接受海外傳媒直播訪問，同時視察七欖開打的實況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm)
 
 ---

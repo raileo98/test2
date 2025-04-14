@@ -1,3 +1,26 @@
+# 英超般尼茅夫1:0富咸
+
+  
+
+英格蘭超級足球聯賽，般尼茅夫主場1:0僅勝富咸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800383-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800383-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800383-20250415.htm)
+
+---
+
 # 現貨金觸及紀錄高位後回落
 
 ![現貨金高見每盎司3245.42美元創新高，較早時報3209.44美元，跌幅0.8%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800381_1_20250415062002.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm)
-
----
-
-# 港大宣布汪揚將出任副校長負責大學拓展　８月履新
-
-![汪揚將出任港大副校長，負責大學拓展，8月履新。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800313_1_20250414163126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-港大宣布，科大副校長汪揚將出任港大副校長，負責大學拓展，今年8月1日履新。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800313-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800313-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800313-20250414.htm)
 
 ---
