@@ -1,3 +1,50 @@
+# 尹錫悅出席涉嫌內亂罪刑事審判首場公審　 兩名關鍵證人將出庭
+
+  
+
+南韓前總統尹錫悅涉嫌發動內亂案的刑事審判首場公審今日舉行，是他被罷免總統職務後接受的首場公審，他亦是第五位受到刑事審判的前總統。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800237-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800237-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800237-20250414.htm)
+
+---
+
+# 本港多間機構在第50屆「日內瓦國際發明展」獲獎
+
+![「日內瓦國際發明展」今年有超過1000項來自45個國家及地區的創新發明，由國際專家評判團選出各獎項。（網站截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800229_1_20250414100050.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+本港多間機構在第50屆「日內瓦國際發明展」中獲獎，其中香港大學贏得32個獎項，包括1個特別大獎、7個評判特別嘉許金獎、8個金獎、9個銀獎及7個銅獎，獲獎項目包括可在社區廣泛執行早期疾病檢測的多模態醫學篩查平台 、隨身AI血壓計。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm)
+
+---
+
 # 特朗普稱對等關稅沒「豁免 」　只被轉移至另一類別關稅
 
 ![特朗普說，將對半導體行業進行國家安全貿易調查。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800224_1_20250414083324.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800016-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800016-20250412.htm)
-
----
-
-# 美國佛州小型飛機墜毀　機上三人死亡地面一人受傷
-
-![飛機在機場附近一條州際公路邊墜毀並起火。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800015_1_20250412023739.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-美國佛羅里達州南部有一架小型飛機墜毀，機上三人死亡、地面一人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800015-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800015-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800015-20250412.htm)
-
----
-
-# 美伊今於阿曼談判　白宮稱特朗普目標是確保伊朗永遠無法取得核武
-
-![萊維特表示，總統特朗普的最終目標是確保伊朗永遠無法取得核武器。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800014_1_20250412022949.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-美國和伊朗今日將會在阿曼就伊朗核問題舉行談判，白宮發言人萊維特強調，會談將會是直接的。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800014-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800014-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800014-20250412.htm)
 
 ---

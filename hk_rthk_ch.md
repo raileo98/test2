@@ -1,3 +1,244 @@
+# 內地首季出口按年增長6.9%　進口下跌6%
+
+![中國海關總署統計，今年首季貨物貿易進出口按年增長1.3%，當中出口增長6.9%，進口下跌6%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800238_1_20250414100134.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+中國海關總署統計，今年首季貨物貿易進出口按年增長1.3%，當中出口增長6.9%，進口下跌6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800238-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800238-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800238-20250414.htm)
+
+---
+
+# 尹錫悅出席涉嫌內亂罪刑事審判首場公審　 兩名關鍵證人將出庭
+
+  
+
+南韓前總統尹錫悅涉嫌發動內亂案的刑事審判首場公審今日舉行，是他被罷免總統職務後接受的首場公審，他亦是第五位受到刑事審判的前總統。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800237-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800237-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800237-20250414.htm)
+
+---
+
+# 人行開展430億元人民幣逆回購
+
+![人民銀行開展430億元人民幣7日期逆回購操作，單日轉為淨回籠505億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800235_1_20250414093830.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+人民銀行開展430億元人民幣7日期逆回購操作，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800235-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800235-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800235-20250414.htm)
+
+---
+
+# 滬深股市初段造好
+
+![上證指數較早時報3251點，升13點，升幅0.41%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800234_1_20250414093751.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+滬深股市初段造好，上證指數較早時報3251點，升13點，升幅0.41%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800234-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800234-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800234-20250414.htm)
+
+---
+
+# 恒指競價時段升449點　科指升逾3%
+
+![恒生指數競價時段報21363點，升449點，升幅2.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800233_1_20250414092603.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+港股競價時段上升，恒生指數報21363點，升449點，升幅2.15%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800233-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800233-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800233-20250414.htm)
+
+---
+
+# 人民幣兌美元中間價創逾19個月新低
+
+![人民幣中間價報7.211兌1美元，較上周五收市跌23點子，創逾19個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800232_1_20250414092050.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
+  
+
+人民幣中間價報7.211兌1美元，較上周五收市跌23點子，創逾19個月新低，與市場預測偏離擴至近1150點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800232-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800232-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800232-20250414.htm)
+
+---
+
+# 台股開市後上升
+
+![台灣加權指數較早時報19971點，升442點，升幅2.27%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800231_1_20250414090953.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+台灣股市造好。加權指數較早時報19971點，升442點，升幅2.27%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800231-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800231-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800231-20250414.htm)
+
+---
+
+# 有學校舉辦不同活動加強國民國安教育　學生稱長知識添趣味
+
+![升旗隊每星期都有訓練。（周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800230_1_20250414091222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![學校舉辦有獎問答遊戲，每星期根據不同主題準備選擇題。（周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800230_2_20250414091222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![副校長袁見明說學校透過不同方式教授國民教育，期望學生自主學習。 （周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800230_4_20250414091222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+明日迎來第十個「全民國家安全教育日」，有學校經常舉辦多項活動，讓學生認識國家，包括設立升旗隊、舉辦問答比賽等，亦設立「校史室暨國民教育資料館」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800230-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800230-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800230-20250414.htm)
+
+---
+
+# 本港多間機構在第50屆「日內瓦國際發明展」獲獎
+
+![「日內瓦國際發明展」今年有超過1000項來自45個國家及地區的創新發明，由國際專家評判團選出各獎項。（網站截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800229_1_20250414100050.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+本港多間機構在第50屆「日內瓦國際發明展」中獲獎，其中香港大學贏得32個獎項，包括1個特別大獎、7個評判特別嘉許金獎、8個金獎、9個銀獎及7個銅獎，獲獎項目包括可在社區廣泛執行早期疾病檢測的多模態醫學篩查平台 、隨身AI血壓計。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm)
+
+---
+
+# 台灣醫護流失量大　工會病人組織冀改善醫患比例提升薪酬待遇
+
+![台灣的衛生福利部門上月要求當地醫院加強落實區域聯防機制，希望紓緩急症爆滿問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800228_1_20250414091948.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+台灣的醫院急症室經常爆滿，當地醫護界早前形容已達到前所未有的嚴重程度。有病人家屬曾經在台北的醫院急症室等候兩天才有床位，形容急症室人滿為患，所有醫護人員都在忙。有家屬表示，台灣民眾凡身體有毛病，普遍都會選擇到醫院急症室求醫，覺得醫療質素較有保證。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800228-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800228-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800228-20250414.htm)
+
+---
+
 # 特朗普稱對等關稅沒「豁免 」　只被轉移至另一類別關稅
 
 ![特朗普說，將對半導體行業進行國家安全貿易調查。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800224_1_20250414083324.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -96,7 +337,7 @@
 
 # 港大研究揭部分胃癌患者早期突變　冀助預防及早期檢測
 
-![研究結果揭示，胃癌形成前已出現的早期突變，為預防患病及早期檢測的策略，有重要意義。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800217_1_20250414074929.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800217_1_20250414074929.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 港大醫學院發現，部分胃癌患者的胃部一些區域存在染色體異常，這些異常的染色體異常在病人年輕時已經出現，期望研究結果有助及早找出高風險人士預防患病。
@@ -120,7 +361,6 @@
 
 # 消委會與金管局推VR遊戲提升防騙意識
 
-![玩家頭戴VR設備及手持控制器，按語音或圖像指示，在預設情境中作出選擇。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_1_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
 ![校長沈立平表示，遊戲有助學生加深記憶。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_2_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
 ![黃鳳嫺表示，現時電子支付盛行，應該透過不同方法，盡早教授長者及學生正確使用信用卡的知識。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_3_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
@@ -1198,246 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800165-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800165-20250413.htm)
-
----
-
-# 馬會捐14億元支持5項青年發展計劃　包括改造青年廣場部分地方
-
-![麥美娟（右二）、馬會主席利子厚（左二）、馬會副主席廖長江（右一）及馬會行政總裁應家柏（左一）出席活動擔任主禮嘉賓。（馬會提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800164_1_20250413172234.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-馬會宣布，透過慈善信託基金審批，撥捐14億元支持5項青年發展計劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800164-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800164-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800164-20250413.htm)
-
----
-
-# 工聯會：將舉辦五一系列活動　包括邀請官員與前線勞工交流
-
-![工聯會表示，今年「五一」勞動節將舉辦一系列活動，並召開倡議記者會，提出五一主題和倡議。（彭冠中攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800163_1_20250413170134.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-工聯會表示，今年「五一」勞動節將舉辦一系列活動，包括「探訪工友大行動」，邀請特區政府官員深入各行各業，與前線勞工交流，實地了解工作環境與需求；亦會舉辦酒會，邀請各界人士參與，加強交流互動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800163-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800163-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800163-20250413.htm)
-
----
-
-# 北方沙塵抵粵　廣州深圳等地罕見遭遇沙塵天氣
-
-![北方沙塵抵粵　廣州深圳等地罕見遭遇沙塵天氣](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800162_1_20250413164454.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-來自北方的沙塵今日到達廣東，廣州、深圳等地罕見遭遇沙塵天氣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800162-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800162-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800162-20250413.htm)
-
----
-
-# 黃偉綸稱兩地加強合作建設跨境低空飛行路徑　涉及出入境等安排
-
-![黃偉綸表示，地緣政治局勢不斷發生變化，但沒有改變本港對低空經濟的重視。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800161_1_20250413170019.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-財政司副司長黃偉綸表示，地緣政治局勢不斷發生變化，但並無改變本港對低空經濟的重視，他強調本港的願景清晰，是將本港定位為低空經濟的全球領導者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm)
-
----
-
-# 屯門男子行山暈倒　昏迷送院不治
-
-![行山男子被送往東區醫院治理，其後不治。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800159_1_20250413164602.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-屯門有行山人士昏迷，送院不治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800159-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800159-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800159-20250413.htm)
-
----
-
-# 張國鈞稱訂立好國家安全法律如同為國家鎖好門窗
-
-![張國鈞說，《基本法》23條和《香港國安法》發揮相輔相成作用，為香港提供「雙重保護盾」。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800158_1_20250413164526.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-律政司副司長張國鈞表示，《基本法》第23條和《香港國安法》在港實施，兩部法律發揮相輔相成的作用，為香港提供「雙重保護盾」，與香港特區其他維護國家安全的法律緊密連接，為香港真正鎖好門窗。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800158-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800158-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800158-20250413.htm)
-
----
-
-# 韋志成：市建局將為龍崗道兩旁商舖度身訂造具特色店面設計
-
-![市建局計劃利用AR技術，重現飛機在九龍城一帶低飛的歷史場景。 （市建局設計構想圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800157_1_20250413164428.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-市建局行政總監韋志成表示，未來的一年，市建局推展九龍城區的更新項目之餘，更會投放資源，彰顯「龍城」區的獨特個性，為商戶創造更多機遇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800157-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800157-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800157-20250413.htm)
-
----
-
-# 羽毛球混雙組合鄧俊文和謝影雪在亞洲錦標賽奪冠
-
-![鄧俊文和謝影雪在決賽擊敗日本組合。（BWF世界羽聯微博圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800155_1_20250413164336.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-![鄧俊文和謝影雪在亞洲錦標賽奪得冠軍。（Ningbo Olympic Sports Center）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800155_2_20250413174437.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-香港羽毛球混雙組合鄧俊文和謝影雪於亞洲錦標賽奪得冠軍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800155-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800155-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800155-20250413.htm)
-
----
-
-# 習近平明起出訪東南亞三國　三地冀推動中國與三國關係邁上新台階
-
-![習近平明天起對越南、馬來西亞及柬埔寨三國展開國事訪問。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800154_1_20250413153524.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-國家主席習近平明天起，對越南、馬來西亞及柬埔寨三國展開國事訪問。央視新聞報道，三國各界人士期待習近平此行推動中國與三國關係邁上新台階，為周邊命運共同體建設注入新動能。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800154-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800154-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800154-20250413.htm)
-
----
-
-# 2025年日本大阪世博會中國館開館　展品包括月球土壤樣本
-
-![日本大阪世博會中國館外觀。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800153_1_20250413150031.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-2025年日本大阪世博會今日正式開幕，中國館舉行開館儀式，首次在全球零距離對比展示由中國嫦娥五號、嫦娥六號探測器採集的月球正面和背面土壤樣本，展出「蛟龍號」深潛體驗艙、全新一代人形機器人等展項。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800153-20250413.htm)
 
 ---

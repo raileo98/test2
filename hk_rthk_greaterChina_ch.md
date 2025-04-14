@@ -1,3 +1,51 @@
+# 內地首季出口按年增長6.9%　進口下跌6%
+
+![中國海關總署統計，今年首季貨物貿易進出口按年增長1.3%，當中出口增長6.9%，進口下跌6%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800238_1_20250414100134.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+中國海關總署統計，今年首季貨物貿易進出口按年增長1.3%，當中出口增長6.9%，進口下跌6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800238-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800238-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800238-20250414.htm)
+
+---
+
+# 台灣醫護流失量大　工會病人組織冀改善醫患比例提升薪酬待遇
+
+![台灣的衛生福利部門上月要求當地醫院加強落實區域聯防機制，希望紓緩急症爆滿問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800228_1_20250414091948.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+台灣的醫院急症室經常爆滿，當地醫護界早前形容已達到前所未有的嚴重程度。有病人家屬曾經在台北的醫院急症室等候兩天才有床位，形容急症室人滿為患，所有醫護人員都在忙。有家屬表示，台灣民眾凡身體有毛病，普遍都會選擇到醫院急症室求醫，覺得醫療質素較有保證。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800228-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800228-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800228-20250414.htm)
+
+---
+
 # 官媒：宏觀政策仍有空間和餘力　根據形勢需要和外部影響動態調整
 
 ![人民銀行主管媒體金融時報發文指，中國宏觀政策仍有空間和餘力，將根據形勢需要和外部影響動態調整，加強逆周期調節。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800213_1_20250414071754.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799946-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799946-20250411.htm)
-
----
-
-# 中方反對美國利用網絡問題干涉中國內政
-
-![林劍表示中方在各種場合都明確向美方表示，反對美國利用網絡問題干涉中國內政。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799938_1_20250411151809.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-美國傳媒報道，中國官員在去年12月的中美網絡安全對話中，曾暗示中方對美國關鍵基礎設施發動網絡攻擊。在北京，外交部發言人林劍指報道顛倒黑白，是與事實嚴重不符的虛假信息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799938-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799938-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799938-20250411.htm)
-
----
-
-# 外交部指習近平訪東南亞三國將為世界和平穩定注入新動能
-
-![外交部表示習近平外訪對推動中國與相關國家，以及東盟關係發展具有重大意義。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799936_1_20250411150809.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-中共中央總書記、國家主席習近平，下星期一起國事訪問越南、馬來西亞和柬埔寨。外交部發言人林劍表示，周邊是中國外交的優先方向，習近平今年首次出訪就訪問這三個國家，對推動中國與相關國家，以及東盟關係發展具有重大意義，也將為地區乃至世界的和平穩定注入新動能。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799936-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799936-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799936-20250411.htm)
 
 ---

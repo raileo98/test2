@@ -1,6 +1,56 @@
+# 有學校舉辦不同活動加強國民國安教育　學生稱長知識添趣味
+
+![升旗隊每星期都有訓練。（周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800230_1_20250414091222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![學校舉辦有獎問答遊戲，每星期根據不同主題準備選擇題。（周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800230_2_20250414091222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![副校長袁見明說學校透過不同方式教授國民教育，期望學生自主學習。 （周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800230_4_20250414091222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+明日迎來第十個「全民國家安全教育日」，有學校經常舉辦多項活動，讓學生認識國家，包括設立升旗隊、舉辦問答比賽等，亦設立「校史室暨國民教育資料館」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800230-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800230-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800230-20250414.htm)
+
+---
+
+# 本港多間機構在第50屆「日內瓦國際發明展」獲獎
+
+![「日內瓦國際發明展」今年有超過1000項來自45個國家及地區的創新發明，由國際專家評判團選出各獎項。（網站截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800229_1_20250414100050.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+本港多間機構在第50屆「日內瓦國際發明展」中獲獎，其中香港大學贏得32個獎項，包括1個特別大獎、7個評判特別嘉許金獎、8個金獎、9個銀獎及7個銅獎，獲獎項目包括可在社區廣泛執行早期疾病檢測的多模態醫學篩查平台 、隨身AI血壓計。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm)
+
+---
+
 # 港大研究揭部分胃癌患者早期突變　冀助預防及早期檢測
 
-![研究結果揭示，胃癌形成前已出現的早期突變，為預防患病及早期檢測的策略，有重要意義。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800217_1_20250414074929.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800217_1_20250414074929.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 港大醫學院發現，部分胃癌患者的胃部一些區域存在染色體異常，這些異常的染色體異常在病人年輕時已經出現，期望研究結果有助及早找出高風險人士預防患病。
@@ -24,7 +74,6 @@
 
 # 消委會與金管局推VR遊戲提升防騙意識
 
-![玩家頭戴VR設備及手持控制器，按語音或圖像指示，在預設情境中作出選擇。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_1_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
 ![校長沈立平表示，遊戲有助學生加深記憶。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_2_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
 ![黃鳳嫺表示，現時電子支付盛行，應該透過不同方法，盡早教授長者及學生正確使用信用卡的知識。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_3_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
@@ -1393,53 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm)
-
----
-
-# 九龍城「電音X潑水」體驗活動因雷暴警告宣布暫停
-
-![原定在九龍城賈炳達道公園籃球場舉行的「電音X潑水」體驗活動，宣布暫停，直至另行通知。（九龍城民政事務處網頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800069_1_20250412151308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-在九龍城舉行的「龍城美食潑水泰繽紛」，因應天文台已發出雷暴警告，其中一個原定在九龍城賈炳達道公園籃球場舉行的「電音X潑水」體驗活動，宣布暫停，直至另行通知。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800069-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800069-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800069-20250412.htm)
-
----
-
-# 郭俊峯料年中屬高才通續簽高峰期　將靈活調配人手核實申請人學歷
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800066_1_20250412142901.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-入境處處長郭俊峯預計，高才通續簽的高峰期會在年中，入境處將會靈活調配人手處理並核實申請人學歷，如果之前未經核實，續簽時會進行核實程序。他提醒申請人不要誤信黑中介的服務，提交假學歷，一旦被發現使用偽造文件，最高可被判入獄14年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800066-20250412.htm)
 
 ---

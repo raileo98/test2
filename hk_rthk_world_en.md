@@ -1,3 +1,51 @@
+# Russian missile strike on Ukraine city
+
+![The aftermath of a Russian missile strike on the Ukrainian city of Sumy. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800225_1_20250414083201.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
+  
+
+Russian missiles struck the heart of the Ukrainian city of Sumy as people gathered to celebrate Palm Sunday, killing at least 34 people, officials said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800225-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800225-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800225-20250414.htm)
+
+---
+
+# Israel intensifies strikes across Gaza
+
+![Palestinians carry a casualty from the rubble at the site of an Israeli strike on a house in Jabalia. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800227_1_20250414084825.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+A wave of Israeli strikes across Gaza on Sunday hit a hospital and other sites, killing at least 21 people, including children, as Israel vowed to expand its security presence in the small coastal strip.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800227-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800227-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800227-20250414.htm)
+
+---
+
 # Xi calls for greater cooperation with Vietnam
 
 ![President Xi starts a three-nation tour of Southeast Asia this week, beginning with Vietnam on Monday. File photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800223_1_20250414082321.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1387,53 +1435,5 @@ US President Donald Trump warned foreign governments they would have to pay "a l
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799234-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799234-20250407.htm)
-
----
-
-# Trial looms for Boeing over 737 MAX crash in Eithiopia
-
-![Two 737 MAX aircraft are assembled at Boeing's plant in Renton, Washington. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799216_1_20250407115025.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
-  
-
-Boeing is poised to face a jury trial from Monday over the fatal 2019 crash of an Ethiopian Airlines 737 MAX plane, the first civil case related to the disaster to reach court.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799216-20250407.htm)
-
----
-
-# Sara Duterte back home for electoral fight
-
-![Sara Duterte addresses supporters outside the International Criminal Court in The Hague last month. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799207_1_20250407111536.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Impeached Philippine Vice President Sara Duterte has returned home after nearly a month at her father's side in The Hague, where he is facing a charge of crimes against humanity, her communications team said Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799207-20250407.htm)
 
 ---
