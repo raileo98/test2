@@ -72,7 +72,7 @@ Russian missiles struck the heart of the Ukrainian city of Sumy as people gather
 
 # Israel intensifies strikes across Gaza
 
-![Palestinians carry a casualty from the rubble at the site of an Israeli strike on a house in Jabalia. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800227_1_20250414084825.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=20)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800227_1_20250414084825.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=20)
   
 
 A wave of Israeli strikes across Gaza on Sunday hit a hospital and other sites, killing at least 21 people, including children, as Israel vowed to expand its security presence in the small coastal strip.
