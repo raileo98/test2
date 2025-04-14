@@ -124,7 +124,7 @@
 ![俄軍導彈襲擊蘇梅市，造成過百人死傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800369_1_20250415013413.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=20)
   
 
-俄羅斯國防部說，俄軍過去的周日使用導彈打擊烏克蘭蘇梅市的烏軍事指揮人員。
+俄羅斯國防部說，俄軍過去的周日使用導彈打擊烏克蘭蘇梅市的烏方軍事指揮人員。
 
   
 

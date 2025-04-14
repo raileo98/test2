@@ -1,3 +1,27 @@
+# 國際油價收市微升　內地原油進口反彈
+
+![倫敦布蘭特期油收市報每桶64.88美元，升12美仙。紐約期油報每桶61.53美元，升3美仙。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800380_1_20250415061620.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+數據顯示內地3月原油進口大幅反彈，帶動國際油價上升，但升幅受制於對貿易戰可能削弱全球燃料需求的憂慮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800380-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800380-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800380-20250415.htm)
+
+---
+
 # 港股美國預託證券普遍較本港收市上升
 
 ![阿里巴巴ADR較本港收市高逾2%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800382_1_20250415062555.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800233-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800233-20250414.htm)
-
----
-
-# 人民幣兌美元中間價創逾19個月新低
-
-![人民幣中間價報7.211兌1美元，較上周五收市跌23點子，創逾19個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800232_1_20250414092050.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-人民幣中間價報7.211兌1美元，較上周五收市跌23點子，創逾19個月新低，與市場預測偏離擴至近1150點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800232-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800232-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800232-20250414.htm)
 
 ---

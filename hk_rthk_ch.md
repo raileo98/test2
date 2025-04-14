@@ -1,3 +1,27 @@
+# 國際油價收市微升　內地原油進口反彈
+
+![倫敦布蘭特期油收市報每桶64.88美元，升12美仙。紐約期油報每桶61.53美元，升3美仙。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800380_1_20250415061620.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+數據顯示內地3月原油進口大幅反彈，帶動國際油價上升，但升幅受制於對貿易戰可能削弱全球燃料需求的憂慮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800380-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800380-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800380-20250415.htm)
+
+---
+
 # 港股美國預託證券普遍較本港收市上升
 
 ![阿里巴巴ADR較本港收市高逾2%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800382_1_20250415062555.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -246,7 +270,7 @@
 ![俄軍導彈襲擊蘇梅市，造成過百人死傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800369_1_20250415013413.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=20)
   
 
-俄羅斯國防部說，俄軍過去的周日使用導彈打擊烏克蘭蘇梅市的烏軍事指揮人員。
+俄羅斯國防部說，俄軍過去的周日使用導彈打擊烏克蘭蘇梅市的烏方軍事指揮人員。
 
   
 
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800312-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800312-20250414.htm)
-
----
-
-# 陳茂波：致力將香港打造成全球AI交流樞紐
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800311_1_20250414155123.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-財政司司長陳茂波表示，各國政府和監管機構面臨日益嚴峻的挑戰，涉及網絡安全、數據私隱及跨境監管等，但現時更迫切的問題是數碼碎片化，又提到美國發起的貿易戰或會超出關稅範疇，可以預見未來會出現更多隔閡、更大的疆界和更高的壁壘，或扼殺創新，危及環球科技發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800311-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800311-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800311-20250414.htm)
 
 ---
