@@ -1,3 +1,26 @@
+# 陳國基：美國加關稅讓大家明白沒有足夠國安意識　後果可以很嚴重
+
+  
+
+美國向全球廣泛國家及地區加徵關稅，政務司司長陳國基形容是「下三流做法」，批評美國完全不講法律、不符合國際做法，「鍾意點做就點做」，有如「勒索」，強調美方加關稅有政治目的，影響了本港的股票市場及營商環境。他又指出，金融、股票、財政行動都是國家安全範圍內，今次美國加關稅正是一個好教材，讓大家明白沒有足夠的國安意識，後果可以很嚴重。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm)
+
+---
+
 # 有學校舉辦不同活動加強國民國安教育　學生稱長知識添趣味
 
 ![升旗隊每星期都有訓練。（周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800230_1_20250414091222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1417,30 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800076-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800076-20250412.htm)
-
----
-
-# 九龍城潑水活動暫停有小童續射水嬉戲　檔主稱氣氛與人流不錯
-
-![有攤檔負責人表示，下雨有少少影響，但氣氛與人流都不錯。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800075_2_20250412184629.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-![麥美娟說，特區政府會努力深化與泰國的合作交流。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800075_3_20250412184629.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-一年一度的九龍城潑水節活動在賈炳達道公園舉行，下午開始落雨，「電音X潑水」體驗活動因雷暴警告而要暫停，劃定為潑水區的籃球場關閉，正參與潑水活動的市民要離開潑水區，待雷暴警告取消後才可繼續。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800075-20250412.htm)
 
 ---

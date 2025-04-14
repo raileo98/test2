@@ -1,3 +1,47 @@
+# 陳國基：美國加關稅讓大家明白沒有足夠國安意識　後果可以很嚴重
+
+  
+
+美國向全球廣泛國家及地區加徵關稅，政務司司長陳國基形容是「下三流做法」，批評美國完全不講法律、不符合國際做法，「鍾意點做就點做」，有如「勒索」，強調美方加關稅有政治目的，影響了本港的股票市場及營商環境。他又指出，金融、股票、財政行動都是國家安全範圍內，今次美國加關稅正是一個好教材，讓大家明白沒有足夠的國安意識，後果可以很嚴重。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm)
+
+---
+
+# 商務部等6部門啟動「購在中國」系列活動　提升中國市場吸引力
+
+![商務部等6部門啟動「購在中國」系列活動，持續提升中國消費市場吸引力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800239_1_20250414101327.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800239-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800239-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800239-20250414.htm)
+
+---
+
 # 內地首季出口按年增長6.9%　進口下跌6%
 
 ![中國海關總署統計，今年首季貨物貿易進出口按年增長1.3%，當中出口增長6.9%，進口下跌6%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800238_1_20250414100134.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -24,6 +68,7 @@
 
 # 尹錫悅出席涉嫌內亂罪刑事審判首場公審　 兩名關鍵證人將出庭
 
+![在首爾中央地方法院外，有示威者到場支持尹錫悅，並一度與警員發生推撞。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800237_1_20250414100458.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
   
 
 南韓前總統尹錫悅涉嫌發動內亂案的刑事審判首場公審今日舉行，是他被罷免總統職務後接受的首場公審，他亦是第五位受到刑事審判的前總統。
@@ -1390,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800167-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800167-20250413.htm)
-
----
-
-# 陳國基稱今年將推出不同宣傳推廣　在社會營造廣泛愛國氣氛
-
-![陳國基稱，今屆政府非常重視推展愛國主義教育的工作，致力在社會構建以愛國愛港為核心。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800166_1_20250413174554.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-政務司司長陳國基表示，今屆政府非常重視推展愛國主義教育的工作，致力在社會構建以愛國愛港為核心、與「一國兩制」方針相適應的主流價值觀，又認為要將愛國主義教育做好做強，必須找對方法，以軟性和打動人心的方式作推廣，硬銷較不可行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm)
-
----
-
-# 毛寧分享列根講話影片　稱發動貿易戰是摧毀就業最快方式
-
-![毛寧在社交平台X分享一段列根1985年的講話影片，引述列根提到，貿易保護只會讓受保護行業變得更弱，愈發喪失與外來商品競爭的能力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800165_1_20250413165700.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-外交部發言人毛寧再在社交平台X分享一段美國前總統列根1985年的講話影片，並引述列根說「發動貿易戰是摧毀就業，讓美國人丟飯碗的最快方式」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800165-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800165-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800165-20250413.htm)
 
 ---

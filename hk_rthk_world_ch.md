@@ -1,5 +1,6 @@
 # 尹錫悅出席涉嫌內亂罪刑事審判首場公審　 兩名關鍵證人將出庭
 
+![在首爾中央地方法院外，有示威者到場支持尹錫悅，並一度與警員發生推撞。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800237_1_20250414100458.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
   
 
 南韓前總統尹錫悅涉嫌發動內亂案的刑事審判首場公審今日舉行，是他被罷免總統職務後接受的首場公審，他亦是第五位受到刑事審判的前總統。

@@ -1,3 +1,27 @@
+# Nobel literature laureate Vargas Llosa passes away
+
+![Mario Vargas Llosa at his home in Madrid in 2009. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800240_1_20250414101145.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Peruvian writer Mario Vargas Llosa, who enchanted readers with his intellectual rigor and lyrical prose for five decades and came close to being president of his country, has died aged 89.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800240-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800240-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800240-20250414.htm)
+
+---
+
 # Russian missile strike on Ukraine city
 
 ![The aftermath of a Russian missile strike on the Ukrainian city of Sumy. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800225_1_20250414083201.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
@@ -24,7 +48,7 @@ Russian missiles struck the heart of the Ukrainian city of Sumy as people gather
 
 # Israel intensifies strikes across Gaza
 
-![Palestinians carry a casualty from the rubble at the site of an Israeli strike on a house in Jabalia. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800227_1_20250414084825.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![Palestinians carry a casualty from the rubble at the site of an Israeli strike on a house in Jabalia. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800227_1_20250414084825.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=20)
   
 
 A wave of Israeli strikes across Gaza on Sunday hit a hospital and other sites, killing at least 21 people, including children, as Israel vowed to expand its security presence in the small coastal strip.
@@ -1411,29 +1435,5 @@ Britain said it could close hundreds of arms-length government agencies, as it l
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm)
-
----
-
-# Trump calls tariffs havoc 'medicine'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799234_1_20250407131818.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-US President Donald Trump warned foreign governments they would have to pay "a lot of money" to lift sweeping tariffs, characterising the duties as "medicine" and triggering further carnage across global financial markets on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799234-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799234-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799234-20250407.htm)
 
 ---
