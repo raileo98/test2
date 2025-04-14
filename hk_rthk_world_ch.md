@@ -1,3 +1,27 @@
+# 南韓民調顯示李在明支持率48.8%　大幅領先其他總統人選
+
+![民調結果顯示，在新一屆總統熱門人選中，李在明支持率排名第一。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800267_1_20250414115210.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+南韓民調機構發布一項民調結果顯示，在新一屆總統熱門人選中，共同民主黨前黨魁李在明支持率達48.8%，排名第一。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800267-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800267-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800267-20250414.htm)
+
+---
+
 # 特朗普稱對等關稅沒「豁免 」　中方啟動「購在中國」系列活動
 
 ![特朗普說將智能手機和電腦等產品，排除在對等關稅之外的措施是短暫的，強調沒有「豁免 」。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800253_1_20250414110923.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800019-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800019-20250412.htm)
-
----
-
-# 美國特使冀與伊朗建立信任　德黑蘭稱若美放棄威脅很可能達成協議
-
-![雙方代表團分別由美國中東問題特使威特科夫及伊朗外長阿拉格齊率領。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800018_1_20250412042656.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-美國和伊朗今日在阿曼就伊朗核問題談判，雙方代表團分別由美國中東問題特使威特科夫及伊朗外長阿拉格齊率領。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800018-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800018-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800018-20250412.htm)
 
 ---
