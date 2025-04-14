@@ -1,3 +1,26 @@
+# 香港機場獲選全球最佳機場第6名　當局稱會鞏固國際航空樞紐地位
+
+  
+
+運輸及物流局表示，香港國際機場第14次成為國際機場協會的年度全球最繁忙貨運機場，去年處理的總貨量達490萬公噸；機場亦在國際專業航空運輸研究機構Skytrax的年度旅客意見調查中，獲選為全球最佳機場第6名，比去年上升5名。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800361-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800361-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800361-20250414.htm)
+
+---
+
 # 卓永興：去年推計劃以休閒活動增農戶收入　擬類似方法促魚場發展
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm)
-
----
-
-# 郭毅可料7月可推聊天機械人供市民使用　並連接「智方便」系統
-
-![郭毅預料7月可將基於大語言模型開發的聊天機械人推出市場，供市民大眾使用。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800180_1_20250413184029.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-「InnoHK香港生成式人工智能研發中心」正研發港產大語言模型。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm)
 
 ---
