@@ -1,3 +1,26 @@
+# 美國關稅政策反復修改　中方促美方放棄極限施壓並對話解決問題
+
+  
+
+在北京，外交部再次批評美方將關稅作為極限施壓、謀取私利的武器，將一己私利凌駕於國際社會公利，是典型的單邊主義、保護主義、經濟霸凌行徑，嚴重損害包括中歐在內的世界各國利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm)
+
+---
+
 # 「世越」號沉沒事故　南韓當局裁定舵機故障等船體內部原因引致
 
 ![「世越」號沉沒事故　南韓當局裁定舵機故障等船體內部原因引致](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800304_1_20250414150909.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800038-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800038-20250412.htm)
-
----
-
-# 《環看天下》：烏克蘭派團隊赴美商礦產協議　據報美方方案苛刻
-
-![美俄官員在伊斯坦布爾進行第二輪會談。( 路透社 )](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800033_1_20250412071521.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
-  
-
-美國與俄羅斯繼續推動雙邊關係回暖之際，美國斡旋俄烏停火進展緩慢。美國總統特朗普對俄羅斯持續攻擊烏克蘭一再表達不滿，烏克蘭總統澤連斯基就抱怨美國對俄施壓不足。分析指俄烏都希望在戰場上，為日後可能出現的和談獲取更多籌碼。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800033-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800033-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800033-20250412.htm)
 
 ---

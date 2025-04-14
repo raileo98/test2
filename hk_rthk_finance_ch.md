@@ -1,3 +1,26 @@
+# 陳茂波：致力將香港打造成全球AI交流樞紐
+
+  
+
+財政司司長陳茂波表示，各國政府和監管機構面臨日益嚴峻的挑戰，涉及網絡安全、數據私隱及跨境監管等，但現時更迫切的問題是數碼碎片化，又提到美國發起的貿易戰或會超出關稅範疇，可以預見未來會出現更多隔閡、更大的疆界和更高的壁壘，或扼殺創新，危及環球科技發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800311-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800311-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800311-20250414.htm)
+
+---
+
 # 美元兌一籃子貨幣走弱
 
 ![美元指數較早時報99.235，跌近0.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800303_1_20250414150732.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800035-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800035-20250412.htm)
-
----
-
-# 美國10年期國債息率一度逼近4.6厘
-
-![分析擔心，特朗普的政策，將削弱美元作為儲備貨幣、美債避險作用。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800034_1_20250412072454.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-美國國債息率上升，10年期國債收益率及30年期國債收益率，分別創2001年及1987年以來最大單星期升幅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm)
 
 ---
