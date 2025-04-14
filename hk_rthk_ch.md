@@ -1,4 +1,74 @@
-# 恒指升502點　連升5個交易日
+# 澳門推出中小企業銀行貨款利息補貼計劃　助中小企減輕利息負擔
+
+  
+
+澳門政府為幫助中小企減輕銀行貸款利息負擔，增加資金流動和緩解資金壓力，將推出「中小企業銀行貨款利息補貼計劃」，為符合條件的企業，提供上限貨款額500萬澳門元，為期3年的4厘利息補貼，銀行貸款額上限100億澳門元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm)
+
+---
+
+# 孫東：政府正積極籌備成立香港人工智能研發院
+
+![孫東表示，政府正積極籌備成立香港人工智能研發院，將專注於支持上游研發工作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800319_1_20250414163658.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+創新科技及工業局局長孫東表示，香港在國家支持下邁向成為國際創新科技中心，政府積極投資創科，包括進一步強化本港研發能力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800319-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800319-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800319-20250414.htm)
+
+---
+
+# 特邀人士入境便利計劃推出近1個月　發出逾240個邀請
+
+  
+
+政府上月18日推出「特邀人士入境便利計劃」，相關政策局會主動邀請能為香港經濟發展帶來相當貢獻或來港出席重要活動的東盟人士，他們來港會享有入境便利。保安局局長鄧炳強表示，計劃推出接近1個月以來，當局發出超過240個邀請，涵蓋工業、投資、經貿、批發零售、金融、醫藥、航空、運輸及法律界等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800318-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800318-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800318-20250414.htm)
+
+---
+
+# 恒指收市升502點　連升5個交易日
 
 ![恒指收報21417點，升502點，升幅2.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800316_1_20250414162425.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
   

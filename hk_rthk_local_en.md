@@ -72,7 +72,7 @@ The health secretary says it is unreasonable to judge upcoming changes in public
 
 # Tech businesses voice optimism amid trade tensions
 
-![Co-founder and CEO of Fano Labs Miles Wen says his company has yet to feel any impact from the US tariffs. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800290_1_20250414134245.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800290_1_20250414134245.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 Tech businesses attending the World Internet Conference Asia-Pacific Summit in Hong Kong on Monday expressed confidence in navigating escalating trade tensions between the United States and China.

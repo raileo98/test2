@@ -1,3 +1,27 @@
+# 孫東：政府正積極籌備成立香港人工智能研發院
+
+![孫東表示，政府正積極籌備成立香港人工智能研發院，將專注於支持上游研發工作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800319_1_20250414163658.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+創新科技及工業局局長孫東表示，香港在國家支持下邁向成為國際創新科技中心，政府積極投資創科，包括進一步強化本港研發能力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800319-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800319-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800319-20250414.htm)
+
+---
+
 # 特邀人士入境便利計劃推出近1個月　發出逾240個邀請
 
   
@@ -21,7 +45,7 @@
 
 ---
 
-# 恒指升502點　連升5個交易日
+# 恒指收市升502點　連升5個交易日
 
 ![恒指收報21417點，升502點，升幅2.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800316_1_20250414162425.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
   
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm)
-
----
-
-# 環保署：沙塵氣流對香港的影響可能會持續一至兩天
-
-![環保署預計在下午近黃昏時間，部分空氣質素監測站的空氣質素健康指數健康風險級別可能會達至「嚴重」水平。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800150_1_20250413135306.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-環保署回應查詢時表示，受一股東北季候風相關的沙塵氣流影響，香港空氣中的粒子由昨日晚上10時起開始升高。今日上午的空氣質素健康指數健康風險級別為「高」至「甚高」，預計在下午近黃昏時間，部分空氣質素監測站的空氣質素健康指數健康風險級別可能會達至「嚴重」水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800150-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800150-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800150-20250413.htm)
 
 ---

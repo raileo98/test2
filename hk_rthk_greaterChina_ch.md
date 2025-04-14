@@ -1,3 +1,26 @@
+# 澳門推出中小企業銀行貨款利息補貼計劃　助中小企減輕利息負擔
+
+  
+
+澳門政府為幫助中小企減輕銀行貸款利息負擔，增加資金流動和緩解資金壓力，將推出「中小企業銀行貨款利息補貼計劃」，為符合條件的企業，提供上限貨款額500萬澳門元，為期3年的4厘利息補貼，銀行貸款額上限100億澳門元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm)
+
+---
+
 # 林劍：美方一再渲染中國威脅論　以此為藉口控制拉美國家不會得逞
 
 ![林劍表示，中方與拉美和加勒比國家交往，始終秉持平等相待、互利共贏原則。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800317_1_20250414162604.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800055-20250412.htm)
-
----
-
-# 北京大風早上10時進入最強時段　部分交通停駛公園關閉
-
-![全國大風預報圖。（央視新聞）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800048_1_20250412101330.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-內地中央氣象台發布強對流天氣、大風、暴雪、暴雨和沙塵暴預警。預計強對流主要影響時段是早上至中午。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800048-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800048-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800048-20250412.htm)
 
 ---
