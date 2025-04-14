@@ -1,3 +1,51 @@
+# 英法德股市高收逾2%
+
+![德國DAX指數收市報20954點，升580點，升幅約2.9%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800374_1_20250415051616.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+歐洲主要股市收市上升，投資者憧憬貿易戰有所緩和，金融和晶片股上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800374-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800374-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800374-20250415.htm)
+
+---
+
+# 道指高收312點　納指升0.6%
+
+![道瓊斯指數收市報40524點，升312點，升幅約0.8%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800376_1_20250415053143.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+美股3大指數反覆高收，市場憧憬貿易戰有所緩和。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800376-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800376-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800376-20250415.htm)
+
+---
+
 # 美股初段升近1%至2%
 
 ![道瓊斯指數較早時報40587點，升375點，升幅0.93%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800355_1_20250414213842.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800224-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800224-20250414.htm)
-
----
-
-# 韓股初段升逾1%
-
-![首爾綜合指數較早時報2462點，升29點，升幅1.22%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800222_1_20250414081003.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-南韓股市初段升逾1%，首爾綜合指數較早時報2462點，升29點，升幅1.22%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800222-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800222-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800222-20250414.htm)
-
----
-
-# 日股初段升逾1%
-
-![日經平均指數較早時報34152點，升567點，升幅1.69%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800221_1_20250414080800.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-日本股市在開市初段升逾1%，日經平均指數較早時報34152點，升567點，升幅1.69%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800221-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800221-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800221-20250414.htm)
 
 ---

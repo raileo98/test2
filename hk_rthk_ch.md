@@ -1,3 +1,75 @@
+# 英法德股市高收逾2%
+
+![德國DAX指數收市報20954點，升580點，升幅約2.9%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800374_1_20250415051616.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+歐洲主要股市收市上升，投資者憧憬貿易戰有所緩和，金融和晶片股上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800374-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800374-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800374-20250415.htm)
+
+---
+
+# 道指高收312點　納指升0.6%
+
+![道瓊斯指數收市報40524點，升312點，升幅約0.8%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800376_1_20250415053143.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+美股3大指數反覆高收，市場憧憬貿易戰有所緩和。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800376-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800376-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800376-20250415.htm)
+
+---
+
+# 薩爾瓦多總統：不會把被錯誤驅逐男子送回美國
+
+![特朗普在白宮接待薩爾瓦多總統布克爾。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800375_1_20250415053138.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國總統特朗普在白宮會見到訪的薩爾瓦多總統布克爾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800375-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800375-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800375-20250415.htm)
+
+---
+
 # 習近平：中越雙方要增強戰略定力　共同反對單邊霸凌行徑
 
 ![習近平同越共中央總書記蘇林舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800373_1_20250415041846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1366,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800308-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800308-20250414.htm)
-
----
-
-# 全運會沙灘排球測試賽本周末維園舉行　港燈與多個部門舉行演練
-
-![全運會沙灘排球項目測試賽本周末舉行，港燈與多個部門舉行緊急復電演練，模擬電力供應發生故障及緊急復修。（港燈提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800307_1_20250414155240.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-第15屆全運會沙灘排球項目測試賽將在本月18至20日在維園舉行，港燈聯同全運會香港賽區統籌辦公室、康文署、機電署等政府部門，上星期三舉行跨部門緊急復電演練，模擬電力供應發生故障以及緊急復修。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800307-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800307-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800307-20250414.htm)
-
----
-
-# 美元兌一籃子貨幣走弱
-
-![美元指數較早時報99.235，跌近0.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800303_1_20250414150732.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-美元兌一籃子貨幣繼續走弱，美元指數一度觸及99.209，較早時報99.235，跌幅近0.7%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800303-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800303-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800303-20250414.htm)
-
----
-
-# 行會成員明早出席全民國家安全教育日開幕禮　行會不舉行會議
-
-![行政會議非官守議員出席明早的「全民國家安全教育日」開幕典禮暨主題講座，行政會議明日不舉行會議。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800306_1_20250414154525.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-行政會議非官守議員將應邀出席明早舉行的「全民國家安全教育日」開幕典禮暨主題講座，行政會議明日不舉行會議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800306-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800306-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800306-20250414.htm)
 
 ---

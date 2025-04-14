@@ -1,3 +1,27 @@
+# 薩爾瓦多總統：不會把被錯誤驅逐男子送回美國
+
+![特朗普在白宮接待薩爾瓦多總統布克爾。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800375_1_20250415053138.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國總統特朗普在白宮會見到訪的薩爾瓦多總統布克爾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800375-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800375-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800375-20250415.htm)
+
+---
+
 # 特朗普稱伊朗拖延核談判進程
 
 ![特朗普在白宮會見到訪的薩爾瓦多總統布克爾。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800372_1_20250415034613.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800116-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800116-20250413.htm)
-
----
-
-# 美上訴法院裁定政府可裁減消費者金融保護局員工但不能解散該機構
-
-![特朗普政府推動解散美國消費者金融保護局，引發不滿。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800114_1_20250413021951.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-美國上訴法院裁定，總統特朗普政府可以裁減美國消費者金融保護局的員工，但不能解散該機構。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800114-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800114-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800114-20250413.htm)
 
 ---
