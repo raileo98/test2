@@ -1,3 +1,27 @@
+# 習近平晤蘇林：要共同反對單邊霸凌行徑　維護全球產供鏈穩定
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800362_1_20250414225450.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+正在越南國事訪問的中共中央總書記、國家主席習近平，在首都河內與越共中央總書記蘇林會面。蘇林先為習近平舉行隆重歡迎儀式，習近平在蘇林陪同下檢閱儀仗隊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800362-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800362-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800362-20250414.htm)
+
+---
+
 # 習近平：中越兩國堅持和平發展　為世界帶來寶貴穩定性
 
 ![習近平在蘇林陪同下檢閱儀仗隊。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800360_1_20250414223808.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800108-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800108-20250413.htm)
-
----
-
-# 美伊首輪核問題間接談判結束　兩國代表團曾短暫交談
-
-![阿拉格齊（圖左）表示，美伊首輪核問題間接談判正面和有建設性。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800103_1_20250412225723.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-伊朗外長阿拉格齊表示，伊朗和美國在阿曼首都馬斯喀特舉行的首輪核問題間接談判結束，會談正面、具建設性，下星期會再與美國間接談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm)
 
 ---

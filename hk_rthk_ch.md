@@ -1,5 +1,30 @@
+# 習近平晤蘇林：要共同反對單邊霸凌行徑　維護全球產供鏈穩定
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800362_1_20250414225450.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+正在越南國事訪問的中共中央總書記、國家主席習近平，在首都河內與越共中央總書記蘇林會面。蘇林先為習近平舉行隆重歡迎儀式，習近平在蘇林陪同下檢閱儀仗隊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800362-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800362-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800362-20250414.htm)
+
+---
+
 # 政府：入境處處理每宗入境個案會按照相關法律和政策處理
 
+![特區政府發言人說，入境處在處理每宗入境個案時，會按照相關法律和政策處理。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800363_1_20250414230240.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 特區政府發表聲明，回應傳媒就日前有英國國會議員被拒入境香港的查詢，指不會評論個別個案，政務司司長陳國基今日下午會見正訪港的英國貿易政策部部長艾力生，並就事件交換意見，重申特區政府的立場。
@@ -23,6 +48,7 @@
 
 # 香港機場獲選全球最佳機場第6名　當局稱會鞏固國際航空樞紐地位
 
+![運輸及物流局表示，香港國際機場第14次成為國際機場協會的年度全球最繁忙貨運機場。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800361_1_20250414230059.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 運輸及物流局表示，香港國際機場第14次成為國際機場協會的年度全球最繁忙貨運機場，去年處理的總貨量達490萬公噸；機場亦在國際專業航空運輸研究機構Skytrax的年度旅客意見調查中，獲選為全球最佳機場第6名，比去年上升5名。
@@ -46,6 +72,7 @@
 
 # 卓永興：去年推計劃以休閒活動增農戶收入　擬類似方法促魚場發展
 
+![卓永興說，政府在新界古洞南設立農業園，第一期已經陸續投入運作，第二期亦正在籌劃中。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800356_1_20250414230419.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 政務司副司長卓永興說，政府去年推出了「農＋樂」農場計劃，便利主要從事商業農耕的農場，提供休閒活動作輔助業務，增加農戶收入，當局正研究採用類似的方式，促進內陸休閒魚場的發展。
