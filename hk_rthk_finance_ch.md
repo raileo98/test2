@@ -1,3 +1,50 @@
+# 外電推算3月央行口徑外匯佔款減少逾660億元人民幣
+
+![外電推算3月央行口徑外匯佔款減少近661.6億元人民幣，連續多月減少。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800321_1_20250414165127.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+  
+
+外電根據人民銀行數據計算，3月底央行口徑外匯佔款餘額21.8萬億元人民幣，據此計算當月央行口徑外匯佔款減少近661.6億元人民幣，連續多月減少。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800321-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800321-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800321-20250414.htm)
+
+---
+
+# 世界旅遊城市聯合會香山旅遊峰會首次在香港舉辦
+
+  
+
+世界旅遊城市聯合會香山旅遊峰會即日起至星期四首次在香港舉辦，吸引全球40多個國家及地區超過400名代表來港參與，參加人數破歷年紀錄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800329-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800329-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800329-20250414.htm)
+
+---
+
 # 在岸人民幣創近兩周新高　升逾220點子
 
 ![在岸人民幣兌美元收報7.3021兌1美元，升224點子。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800326_1_20250414171457.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
@@ -19,6 +66,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800326-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800326-20250414.htm)
+
+---
+
+# 澳門推出中小企業銀行貨款利息補貼計劃　助中小企減輕利息負擔
+
+![岑浩輝說澳門特區發展主要預期目標是鞏固經濟復蘇，加力促進經濟適度多元發展，推動社區經濟發展。（鄭月明攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800320_1_20250414170620.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+澳門政府為幫助中小企減輕銀行貸款利息負擔，增加資金流動和緩解資金壓力，將推出「中小企業銀行貨款利息補貼計劃」，為符合條件的企業，提供上限貨款額500萬澳門元，為期3年的4厘利息補貼，銀行貸款額上限100億澳門元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm)
 
 ---
 
@@ -91,6 +162,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800316-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800316-20250414.htm)
+
+---
+
+# 今年第一季約1220萬訪港旅客人次按年增9%　疫情後季度新高
+
+![旅發局公布今年第一季共錄得約1220萬訪港旅客人次，按年增加9%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800315_1_20250414162057.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+旅發局公布今年第一季共錄得約1220萬訪港旅客人次，按年增加9%，是疫情後的季度新高。其中內地旅客佔925萬人次，非內地旅客人次為298萬，分別按年上升6%及18%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800315-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800315-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800315-20250414.htm)
 
 ---
 
@@ -1339,101 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800161-20250413.htm)
-
----
-
-# 陳茂波：本港要保持開放　確保自由港地位
-
-![陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800142_2_20250413131536.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-財政司司長陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位，自由貿易政策不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800142-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800142-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800142-20250413.htm)
-
----
-
-# 許正宇：面對美國關稅措施但本港市場維持運作有序
-
-![許正宇表示，面對美國的關稅措施，本港市場維持運作有序，有信心香港可立於不敗之地。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800141_1_20250413121946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-財經事務及庫務局局長許正宇表示，面對美國的關稅措施，環球經濟受影響，但本港市場維持運作有序，有信心香港可立於不敗之地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800141-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800141-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800141-20250413.htm)
-
----
-
-# 陳茂波：香港在動盪時期會保持開放　願意建立新聯繫和新夥伴關係
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800137_1_20250413130954.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-財政司司長陳茂波表示，因貿易戰及科技碎片化的關係，全球格局正出現變化，正重塑產業鏈、供應鏈和夥伴關係等，很多企業在新常態下要尋求新合作夥伴，探索新市場，並要採用更靈活的商業模式。他說，香港在動盪時期會保持開放，歡迎世界各地的企業和人才，本港願意建立新聯繫和新夥伴關係，強調本港會確保自由港地位，保持自由貿易政策不變，會堅定保持資金、貨物、資訊和人才的自由流動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm)
-
----
-
-# 陳茂波：香港在當前環球市場前景不明朗下顯得更穩定和具吸引力
-
-![陳茂波日前會同財經事務及庫務局局長、商務及經濟發展局局長和金融監管機構代表會見傳媒。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800134_1_20250413111019.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-財政司司長陳茂波表示，自美國公布向全球貿易伙伴施加所謂「對等關稅」後，國際金融市場出現大幅波動，美國國庫債券價格急跌、孳息急升；上周開始至今，港匯持續偏強，港元兌美元仍處於強方水平，顯示資金仍留在本港市場，港股經過上周一跌勢後大致穩定，上周五恒生指數收市，仍略高於今年一月初的水平，上周的平均每日成交額增至4276億港元，比前周增加約68%，反映過去一周市場整體繼續暢順有序運作，認為香港在當前環球市場前景不明朗的情況下，顯得更加穩定和具吸引力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm)
 
 ---

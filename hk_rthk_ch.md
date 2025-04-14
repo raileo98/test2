@@ -1,3 +1,27 @@
+# 外電推算3月央行口徑外匯佔款減少逾660億元人民幣
+
+![外電推算3月央行口徑外匯佔款減少近661.6億元人民幣，連續多月減少。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800321_1_20250414165127.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+  
+
+外電根據人民銀行數據計算，3月底央行口徑外匯佔款餘額21.8萬億元人民幣，據此計算當月央行口徑外匯佔款減少近661.6億元人民幣，連續多月減少。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800321-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800321-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800321-20250414.htm)
+
+---
+
 # 世界旅遊城市聯合會香山旅遊峰會首次在香港舉辦
 
   
