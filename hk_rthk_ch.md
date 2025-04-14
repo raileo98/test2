@@ -1,3 +1,27 @@
+# 滬深股市升幅有限　滬股全日升近1%
+
+![內地股市收市升幅有限。上證指數收市報3262點，升24點，升幅0.76%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800305_1_20250414151116.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+內地股市收市升幅有限。海南概念股、體育概念股及貴金屬股造好；白酒及非金屬材料股沽壓較大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800305-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800305-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800305-20250414.htm)
+
+---
+
 # 「世越」號沉沒事故　南韓當局裁定舵機故障等船體內部原因引致
 
 ![「世越」號沉沒事故　南韓當局裁定舵機故障等船體內部原因引致](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800304_1_20250414150909.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
