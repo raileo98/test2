@@ -1,3 +1,26 @@
+# 渠務署將強化緊急控制事故中心能力　緊急應變隊伍增至180隊
+
+  
+
+渠務署署長莫永昌表示，近年愈趨頻繁的極端天氣，如特大暴雨和超強颱風等，為全球帶來前所未有的挑戰，署方會繼續實施「超前準備、加強預警、果斷應急、迅速復原」四大策略，做好防洪工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800308-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800308-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800308-20250414.htm)
+
+---
+
 # 全運會沙灘排球測試賽本周末維園舉行　港燈與多個部門舉行演練
 
   

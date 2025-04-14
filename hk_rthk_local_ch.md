@@ -1,3 +1,26 @@
+# 渠務署將強化緊急控制事故中心能力　緊急應變隊伍增至180隊
+
+  
+
+渠務署署長莫永昌表示，近年愈趨頻繁的極端天氣，如特大暴雨和超強颱風等，為全球帶來前所未有的挑戰，署方會繼續實施「超前準備、加強預警、果斷應急、迅速復原」四大策略，做好防洪工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800308-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800308-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800308-20250414.htm)
+
+---
+
 # 全運會沙灘排球測試賽本周末維園舉行　港燈與多個部門舉行演練
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800140-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800140-20250413.htm)
-
----
-
-# 甯漢豪：東江水現佔全港食水用量達七至八成是穩定可靠主要水源
-
-![甯漢豪（右）表示，現時東江水佔全港食水用量達七至八成。黃恩諾（左）解釋，興建將軍澳海水化淡廠的主要目的在於應對氣候變化所帶來的影響，並非取代東江水作為主要水源。（發展局網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800139_1_20250413123754.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-發展局局長甯漢豪表示，香港的雨水收集不足以應付全港淡水使用需求，因此主要依賴東江水供港，現時東江水佔全港食水用量達七至八成，是穩定可靠的主要水源。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm)
 
 ---
