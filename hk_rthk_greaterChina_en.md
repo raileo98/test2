@@ -1,3 +1,27 @@
+# China exports up 12.4pc, beating forecasts
+
+![China's exports saw a rise of more than 12 percent year-on-year in March. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800270_1_20250414121620.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+China's exports rose 12.4 percent year-on-year in March, beating analysts' expectations as the world's second largest economy braces for an intensifying trade war with the United States.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800270-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800270-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800270-20250414.htm)
+
+---
+
 # China will defend world trade system: expert
 
 ![Victor Gao said the United States should take responsibility for the current turmoil in global trade. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800259_1_20250414111614.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
@@ -1411,29 +1435,5 @@ A Chinese rescue team arrived at Yangon International Airport in Myanmar on Satu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm)
-
----
-
-# Xi urges global CEOs to protect trade as tariffs loom
-
-![President Xi Jinping and representatives of the international business community pose for a group photo at the Great Hall of the People in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797914_1_20250328185208.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-President Xi Jinping on Friday urged a gathering of multinational CEOs to protect global industry and supply chains, amid threats of more US tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm)
 
 ---

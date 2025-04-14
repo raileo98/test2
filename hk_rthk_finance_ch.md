@@ -1,3 +1,51 @@
+# 內地股市半日升近1%
+
+![上證綜合指數報3266點，升27點，升幅0.86%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800263_1_20250414114038.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+滬深股市半日升近1%，各板塊普遍上升，以互聯網電商、海南相關股份升幅較大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800263-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800263-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800263-20250414.htm)
+
+---
+
+# 恒指半日升504點　科指升近3%
+
+![恒生指數中午收市報21419點，升504點，升幅2.4%，半日主板成交額近1543億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800269_1_20250414121147.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+港股連升5個交易日，恒生指數高見21517點，升逾600點，其後升幅曾收窄至逾300點，中午收市報21419點，升504點，升幅2.4%，半日主板成交額近1543億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800269-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800269-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800269-20250414.htm)
+
+---
+
 # 中興通訊：人工智能面臨發展瓶頸　需尋求突破
 
 ![中興通訊董事長方榕表示，目前AI面臨發展瓶頸，需要圍繞模型架構、算力互聯和系統集成等尋求突破。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800262_1_20250414113333.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -118,7 +166,7 @@
 
 # 全國政協副主席王勇：將全力支持香港深度融入全球數字化發展
 
-![王勇表示，中國推動與各國共建公平公正的網絡空間及治理體系。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800250_1_20250414111139.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800250_1_20250414111139.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 世界互聯網大會首次舉辦亞太峰會，今日起一連兩日在灣仔會展舉行。全國政協副主席王勇表示，中國政府將全力支持香港深度融入全球數字化發展的時代洪流，充分把握數字經濟蓬勃興起的黃金機遇。
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799977-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799977-20250411.htm)
-
----
-
-# 習近平︰打關稅戰沒有贏家　中國不畏懼任何無理打壓
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799972_1_20250411183030.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-國家主席習近平在北京會見訪華的西班牙首相桑切斯。習近平強調，打關稅戰沒有贏家，同世界作對將孤立自己。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799972-20250411.htm)
-
----
-
-# 有北京居民稱不擔心關稅戰　將令國家更強大
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799971_1_20250411184913.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-關稅貿易戰危及全球經濟，有北京居民指不擔心，已購入部分黃金等避險資產，又相信國家必要時會出手。有居民認為國家將內部改革，認為貿易戰將令國家更強大、更團結。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799971-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799971-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799971-20250411.htm)
 
 ---

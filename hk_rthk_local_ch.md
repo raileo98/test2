@@ -1,5 +1,53 @@
+# 恒指半日升504點　科指升近3%
+
+![恒生指數中午收市報21419點，升504點，升幅2.4%，半日主板成交額近1543億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800269_1_20250414121147.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+港股連升5個交易日，恒生指數高見21517點，升逾600點，其後升幅曾收窄至逾300點，中午收市報21419點，升504點，升幅2.4%，半日主板成交額近1543億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800269-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800269-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800269-20250414.htm)
+
+---
+
+# 本港今日空氣質素仍欠佳　多區空氣質素健康指數風險為高至甚高
+
+  
+
+受乾燥的大陸氣流及沙塵天氣影響，廣東部分地區能見度較低，本港今日空氣質素仍然欠佳，環保署在今早11時錄得多區的空氣質素健康指數風險為高至甚高；一般及路邊監測站下午的健康風險預測均為中至嚴重。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800268-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800268-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800268-20250414.htm)
+
+---
+
 # 邵家輝：商場舉行不同活動或攤檔可吸引人流　增加商戶生意
 
+![邵家輝認為商場舉行不同類型活動或擺設攤檔，可吸引人流，有助增加商戶生意。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800261_1_20250414120349.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 發展局推出試行計劃，放寛商場或其他商業項目使用室內和戶外公共空間的限制，精簡審批程序。立法會批發及零售界議員邵家輝在本台節目《千禧年代》說，非常支持試驗計劃，認為商場舉行不同類型活動或擺設攤檔，可吸引人流，有助增加商戶生意，市民亦可有更多消費體驗。至於相關申請有效期為一年，亦方便商場全年安排不同大型活動。
@@ -23,6 +71,7 @@
 
 # 鄭雁雄：香港定能為推動構建網絡空間命運共同體作出更大貢獻
 
+![鄭雁雄認為香港應發揮創科優勢，引領亞太數字融合發展。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800260_1_20250414120056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 世界互聯網大會亞太峰會早上在香港會展舉行，中聯辦主任鄭雁雄表示，香港是互聯網發展的先行地區，具有全球金融、航運、貿易中心的傳統優勢，亦有人工智能研發創科發展及人才等新優勢，更有制度創新、兩文三語、文化包容及內聯外通等獨特優勢，相信香港定能為推動構建網絡空間命運共同體作出新的更大貢獻。
@@ -44,7 +93,7 @@
 
 ---
 
-# 李家超：香港永遠倡導自由貿易多邊主義　歡迎企業來港尋求發展
+# 李家超：香港倡導自由貿易多邊主義　歡迎企業來港尋求商業發展
 
 ![李家超說今次峰會在香港主辦，充分證明香港作為國際創科中心的地位正在不斷上升。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800256_1_20250414110658.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
@@ -70,7 +119,7 @@
 
 # 全國政協副主席王勇：將全力支持香港深度融入全球數字化發展
 
-![王勇表示，中國推動與各國共建公平公正的網絡空間及治理體系。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800250_1_20250414111139.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800250_1_20250414111139.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 世界互聯網大會首次舉辦亞太峰會，今日起一連兩日在灣仔會展舉行。全國政協副主席王勇表示，中國政府將全力支持香港深度融入全球數字化發展的時代洪流，充分把握數字經濟蓬勃興起的黃金機遇。
@@ -1391,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800101-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800101-20250412.htm)
-
----
-
-# 戴工作人員手環觀看Coldplay演出　3男子涉串謀詐騙被捕
-
-![警方指，涉案人士當時在觀看演唱會而不是清潔中，於是將他們拘捕。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800100_1_20250412224233.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
-  
-
-英國著名樂隊Coldplay在啟德體育園啟德主場館舉行最後一晚演唱會。在昨晚的演出，有三名男子戴上工作人員手環觀看演唱會，被警方以涉嫌「串謀詐騙」拘捕，三人獲准保釋，下月12日向牛頭角警署報到。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800100-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800100-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800100-20250412.htm)
-
----
-
-# 女子遭輕鐵撞傷送院　港鐵指女事主突然衝出　車長響號並急剎車
-
-![港鐵表示，輕鐵上的行車紀錄儀器拍攝到事發情況，會配合警方調查。（網上圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800097_1_20250412211647.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
-  
-
-屯門輕鐵車廠站附近，傍晚有途人被輕鐵撞倒，輕鐵三條綫服務受阻十數分鐘，之後陸續回復正常，警方表示，女事主擦傷面部及手腳，送院時清醒。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800097-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800097-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800097-20250412.htm)
 
 ---

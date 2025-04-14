@@ -1,3 +1,27 @@
+# SF Express stops SMS messages for pickups
+
+![SF Express said it received a nearly fourfold increase in inquiries and reports of fraud in the first quarter from a year ago. Photo courtesy of SF Express website.](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800266_1_20250414114823.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+SF Express Hong Kong announced that it will stop sending SMS text messages to customers starting on Monday in the wake of a rising risk of fraudulent scams posed by counterfeit messages.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800266-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800266-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800266-20250414.htm)
+
+---
+
 # Over six million to enter and leave HK during Easter
 
 ![The Immigration Department says it will closely monitor the flow of people and vehicles making the crossings and adopt traffic diversion plans if necessary. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800264_1_20250414114444.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1412,29 +1436,5 @@ Chief Executive John Lee has hit out at the United States for slapping "reckless
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm)
-
----
-
-# Chinese culture festival 'modernises tradition'
-
-!["Dongpo: Life in Poems" will be performed by the China Oriental Performing Arts Group. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799291_1_20250407215236.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-A modern dance drama inspired by renowned Chinese poet Su Dongpo and innovative works relating to tea are some of the highlights of an upcoming Chinese Culture Festival organised by the Leisure and Cultural Services Department (LCSD).
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799291-20250407.htm)
 
 ---
