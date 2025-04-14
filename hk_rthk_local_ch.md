@@ -1,3 +1,26 @@
+# ４人疑經緊急出口非法進入Coldplay演唱會場館　３人被捕
+
+  
+
+英國著名樂隊Coldplay日前完成在啟德體育園主場館的四場演出，在最後一場的演唱會，4名男女懷疑經由場館的一個緊急出口非法進入場內，警方拘捕涉案的其中3名男子，他們獲准保釋候查，下月向警方報到。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800338-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800338-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800338-20250414.htm)
+
+---
+
 # 王勇︰中央支持香港深度融入全球數字化發展的時代洪流
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800337_1_20250414183550.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800166-20250413.htm)
-
----
-
-# 馬會捐14億元支持5項青年發展計劃　包括改造青年廣場部分地方
-
-![麥美娟（右二）、馬會主席利子厚（左二）、馬會副主席廖長江（右一）及馬會行政總裁應家柏（左一）出席活動擔任主禮嘉賓。（馬會提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800164_1_20250413172234.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-馬會宣布，透過慈善信託基金審批，撥捐14億元支持5項青年發展計劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800164-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800164-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800164-20250413.htm)
 
 ---

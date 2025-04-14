@@ -1,3 +1,26 @@
+# ４人疑經緊急出口非法進入Coldplay演唱會場館　３人被捕
+
+  
+
+英國著名樂隊Coldplay日前完成在啟德體育園主場館的四場演出，在最後一場的演唱會，4名男女懷疑經由場館的一個緊急出口非法進入場內，警方拘捕涉案的其中3名男子，他們獲准保釋候查，下月向警方報到。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800338-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800338-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800338-20250414.htm)
+
+---
+
 # 王勇︰中央支持香港深度融入全球數字化發展的時代洪流
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800337_1_20250414183550.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
