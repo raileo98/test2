@@ -1,4 +1,52 @@
-# McIlroy wins Masters beating Rose in play-off
+# Amorim says losses hurt worst as crunch match looms
+
+![Ruben Amorim shouts instructions at Manchester United players during the match against Newcastle. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800244_1_20250414103509.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Manchester United coach Ruben Amorim insists he understands the criticism levelled at him and his team after another Premier League loss at Newcastle United but claims losing games is worse than any personal condemnation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800244-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800244-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800244-20250414.htm)
+
+---
+
+# Clippers edge Warriors to clinch play-off spot
+
+![Los Angeles Clippers defeated the Golden State Warriors 124-119 in overtime. Photo: Imagn Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800226_1_20250414083408.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+James Harden scored 39 points as the Los Angeles Clippers defeated the Golden State Warriors 124-119 in overtime to clinch the final playoff spot in a thrilling last day of the NBA regular season on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800226-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800226-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800226-20250414.htm)
+
+---
+
+# McIlroy wins Masters, beating Rose in play-off
 
 ![The win gives Northern Ireland's Rory McIlroy a career grand slam of all golf's majors. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800216_1_20250414074654.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
@@ -1390,54 +1438,5 @@ Liverpool moved closer to the Premier League title with a 1-0 win in the Merseys
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798717-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798717-20250403.htm)
-
----
-
-# Curry drops 52 points in Warriors win over Grizzlies
-
-![Steph Curry drained 12 three-pointers in the Warriors' victory over Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798584_1_20250402114710.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-![Giannis Antetokounmpo's 37 points helped end a four-game losing skid for the Bucks. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798584_2_20250402114710.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Stephen Curry scored 52 points and Draymond Green added a triple-double as the Golden State Warriors clinched a crucial 134-125 victory over the Memphis Grizzlies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm)
-
----
-
-# Bielefeld shock holders Leverkusen in German Cup
-
-![Bielefeld players celebrate winning their German Cup semi-final match against Bayern Leverkusen. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798544_1_20250402073801.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-German Cup holders Bayer Leverkusen suffered a shock 2-1 elimination at Arminia Bielefeld in the semi-finals of the competition.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm)
 
 ---
