@@ -1,3 +1,26 @@
+# 陳美寶：政府與物流業界團結一致應對挑戰　協助業界配合市場轉型
+
+  
+
+美國宣布對不同貿易夥伴採取對等關稅，特區政府表示，將與物流業界循五大策略應對，包括開拓新興市場、加強與粵港澳大灣區港口協作共同開拓新貨源、豁免部分貨物的出入口許可證要求以吸引更多中轉貨物、深化與國際港口和船舶合作，以及擴大航運及航空網絡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800348-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800348-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800348-20250414.htm)
+
+---
+
 # 麥美娟：政府不鼓勵賭博　視乎公眾諮詢結果規範籃球博彩活動
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800175-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800175-20250413.htm)
-
----
-
-# 數字辦與上海數據局在港簽署《滬港數字經濟合作備忘錄》
-
-![數字辦與上海市數據局在香港簽署《滬港數字經濟合作備忘錄》，共同推進滬港兩地深化合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800170_1_20250413180657.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-數字辦與上海市數據局在香港簽署《滬港數字經濟合作備忘錄》，共同推進滬港兩地圍繞數字經濟、數字化轉型、數據要素發展等領域深化合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm)
 
 ---

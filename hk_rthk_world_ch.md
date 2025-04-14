@@ -1,3 +1,27 @@
+# 伊朗外交部：周六與美國舉行次輪間接會談　外長將先訪俄羅斯
+
+![在美伊首輪間接會談，伊朗外長阿拉格齊（左）透過阿曼外交大臣巴德爾（右）向美方傳遞政府立場。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800346_1_20250414202212.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+伊朗外交部發言人巴加埃表示，伊朗與美國在本星期六就解除制裁及核問題舉行第二輪間接會談前，外交部長阿拉格齊將會先到訪俄羅斯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm)
+
+---
+
 # 尹錫悅出席涉嫌內亂罪刑事審判首場公審　反駁檢方指控不符合法理
 
 ![尹錫悅乘坐警衛車輛抵達首爾中央地方法院。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800340_1_20250414185240.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm)
-
----
-
-# 王毅：美國不能任意妄為　歷史車輪不能倒退
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800080_1_20250412181256.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-中共中央政治局委員、外長王毅周五在北京，會見國際原子能機構總幹事格羅西時指，當前國際局勢動蕩不安，亂象頻出，一個重要原因就是個別大國迷信實力至上、本國優先，大搞單邊霸凌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800080-20250412.htm)
 
 ---

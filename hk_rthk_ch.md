@@ -1,3 +1,50 @@
+# 陳美寶：政府與物流業界團結一致應對挑戰　協助業界配合市場轉型
+
+  
+
+美國宣布對不同貿易夥伴採取對等關稅，特區政府表示，將與物流業界循五大策略應對，包括開拓新興市場、加強與粵港澳大灣區港口協作共同開拓新貨源、豁免部分貨物的出入口許可證要求以吸引更多中轉貨物、深化與國際港口和船舶合作，以及擴大航運及航空網絡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800348-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800348-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800348-20250414.htm)
+
+---
+
+# 伊朗外交部：周六與美國舉行次輪間接會談　外長將先訪俄羅斯
+
+![在美伊首輪間接會談，伊朗外長阿拉格齊（左）透過阿曼外交大臣巴德爾（右）向美方傳遞政府立場。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800346_1_20250414202212.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+伊朗外交部發言人巴加埃表示，伊朗與美國在本星期六就解除制裁及核問題舉行第二輪間接會談前，外交部長阿拉格齊將會先到訪俄羅斯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm)
+
+---
+
 # 德國政府：美國關稅政策導致出口面臨相當大阻力
 
 ![德國經濟部表示，關稅政策，令德國出口和工業生產面臨相當大的阻力。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800342_1_20250414190532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
