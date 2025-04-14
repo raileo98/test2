@@ -1,5 +1,54 @@
+# 轉數快星期日凌晨1時至上午11時進行系統提升
+
+![轉數快擬周日凌晨1時至上午11時系統提升，金管局已要求銀行及儲值支付工具營運商預早通知客戶。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800293_1_20250414142332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+香港銀行同業結算公司計劃星期日凌晨1時至上午11時，為轉數快系統進行系統提升，轉數快系統將於上述時段內暫停服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm)
+
+---
+
+# 台股微跌收市
+
+![台灣加權指數收報19513點，跌15點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800292_1_20250414142315.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+台灣股市微跌收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800292-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800292-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800292-20250414.htm)
+
+---
+
 # 陳茂波：關稅戰影響世界貿易秩序　香港聯動更多內地企業拼船出海
 
+![陳茂波表示，香港會用好「一國兩制」下「內聯外通」的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800291_1_20250414142032.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 財政司司長陳茂波表示，美國單邊發動的關稅戰正在影響世界的貿易秩序，環球產業鏈、供應鏈正面臨巨大的割裂風險。在美國的霸凌極限施壓下，香港會用好「一國兩制」下「內聯外通」的獨特優勢，擔當好「超級聯繫人」和「超級增值人」的角色。
@@ -165,9 +214,9 @@
 
 ---
 
-# 中興通訊：人工智能面臨發展瓶頸　需尋求突破
+# 中興通訊稱人工智能面臨發展瓶頸　需尋求突破
 
-![中興通訊董事長方榕表示，目前AI面臨發展瓶頸，需要圍繞模型架構、算力互聯和系統集成等尋求突破。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800262_1_20250414113333.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![中興通訊董事長方榕稱目前AI面臨發展瓶頸，需要圍繞模型架構、算力互聯和系統集成等尋求突破。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800262_1_20250414113333.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 中興通訊董事長方榕表示，過去2、3年人工智能（AI）技術突飛猛進，多項能力測試中接近甚至超越人類水平，但在AI技術實現大規模應用方面，仍要克服一系列挑戰，包括算力普惠、AI應用普及等核心問題，以及安全私隱和科技倫理挑戰。
@@ -1387,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800006-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800006-20250411.htm)
-
----
-
-# 卡什卡利：聯儲局應該在市場真正受到衝擊時才謹慎地干預
-
-![卡什卡利表示，聯儲局應該在市場真正受到衝擊時，才以非常謹慎的態度干預。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800002_1_20250411220055.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-美國明尼亞波利斯聯邦儲備銀行總裁卡什卡利表示，聯儲局應該在市場真正受到衝擊時，才以非常謹慎的態度干預，強調聯儲局和財政部的介入，應在真正需要的時候才出手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1800002-20250411.htm)
-
----
-
-# 美股初段向下
-
-![道瓊斯指數較早時報39280點，跌312點，跌幅0.79%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799997_1_20250411213735.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-美股初段向下。投資者正在消化中國對原產於美國進口商品關稅稅率提高至125%的影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799997-20250411.htm)
 
 ---

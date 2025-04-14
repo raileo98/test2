@@ -1,5 +1,78 @@
+# 日本栃木縣72人進食同一供應商飯盒後疑食物中毒　其中1人死亡
+
+![日本栃木縣72人進食同一供應商飯盒後疑食物中毒　其中1人死亡](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800294_1_20250414142750.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本栃木縣有72人進食一間供應商提供的盒飯後懷疑食物中毒，其中1人死亡，涉事的盒飯供應商已被禁止營業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800294-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800294-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800294-20250414.htm)
+
+---
+
+# 轉數快星期日凌晨1時至上午11時進行系統提升
+
+![轉數快擬周日凌晨1時至上午11時系統提升，金管局已要求銀行及儲值支付工具營運商預早通知客戶。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800293_1_20250414142332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+香港銀行同業結算公司計劃星期日凌晨1時至上午11時，為轉數快系統進行系統提升，轉數快系統將於上述時段內暫停服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm)
+
+---
+
+# 台股微跌收市
+
+![台灣加權指數收報19513點，跌15點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800292_1_20250414142315.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+台灣股市微跌收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800292-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800292-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800292-20250414.htm)
+
+---
+
 # 陳茂波：關稅戰影響世界貿易秩序　香港聯動更多內地企業拼船出海
 
+![陳茂波表示，香港會用好「一國兩制」下「內聯外通」的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800291_1_20250414142032.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 財政司司長陳茂波表示，美國單邊發動的關稅戰正在影響世界的貿易秩序，環球產業鏈、供應鏈正面臨巨大的割裂風險。在美國的霸凌極限施壓下，香港會用好「一國兩制」下「內聯外通」的獨特優勢，擔當好「超級聯繫人」和「超級增值人」的角色。
@@ -23,6 +96,7 @@
 
 # 孫玉菡：有信心油尖旺區會有社區客廳　目前有待落實細節
 
+![孫玉菡表示，油尖旺區劏房戶略多於深水埗但未有社區客廳，主要因物色合適地方有難度。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800288_1_20250414141944.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 勞工及福利局局長孫玉菡表示，油尖旺區劏房戶略多於深水埗，但目前未有社區客廳，主要因為以往物色合適地方有難度，不過有些有心人主動聯絡政府，他要求對方盡量在油尖旺區提供地方，有信心油尖旺區將會有社區客廳，甚至不只一間，目前有待落實細節，相信會有突破，談妥後會交代。
@@ -429,9 +503,9 @@
 
 ---
 
-# 中興通訊：人工智能面臨發展瓶頸　需尋求突破
+# 中興通訊稱人工智能面臨發展瓶頸　需尋求突破
 
-![中興通訊董事長方榕表示，目前AI面臨發展瓶頸，需要圍繞模型架構、算力互聯和系統集成等尋求突破。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800262_1_20250414113333.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![中興通訊董事長方榕稱目前AI面臨發展瓶頸，需要圍繞模型架構、算力互聯和系統集成等尋求突破。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800262_1_20250414113333.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 中興通訊董事長方榕表示，過去2、3年人工智能（AI）技術突飛猛進，多項能力測試中接近甚至超越人類水平，但在AI技術實現大規模應用方面，仍要克服一系列挑戰，包括算力普惠、AI應用普及等核心問題，以及安全私隱和科技倫理挑戰。

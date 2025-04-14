@@ -1,3 +1,27 @@
+# 日本栃木縣72人進食同一供應商飯盒後疑食物中毒　其中1人死亡
+
+![日本栃木縣72人進食同一供應商飯盒後疑食物中毒　其中1人死亡](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800294_1_20250414142750.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本栃木縣有72人進食一間供應商提供的盒飯後懷疑食物中毒，其中1人死亡，涉事的盒飯供應商已被禁止營業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800294-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800294-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800294-20250414.htm)
+
+---
+
 # 習近平抵達河內　展開國事訪問越南行程
 
 ![習近平乘專機抵達河內國際機場，受到熱烈歡迎。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800287_1_20250414141411.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800029-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800029-20250412.htm)
-
----
-
-# 普京晤美國特使　白宮形容屬美俄朝著解決烏克蘭問題邁出的又一步
-
-![俄羅斯總統普京在聖彼得堡會見到訪的美國中東問題特使威特科夫。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800023_1_20250412053545.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-俄羅斯總統普京在聖彼得堡會見到訪的美國中東問題特使威特科夫，討論烏克蘭問題，是兩人今年第三次會晤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800023-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800023-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800023-20250412.htm)
 
 ---

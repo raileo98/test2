@@ -1,5 +1,30 @@
+# 轉數快星期日凌晨1時至上午11時進行系統提升
+
+![轉數快擬周日凌晨1時至上午11時系統提升，金管局已要求銀行及儲值支付工具營運商預早通知客戶。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800293_1_20250414142332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+香港銀行同業結算公司計劃星期日凌晨1時至上午11時，為轉數快系統進行系統提升，轉數快系統將於上述時段內暫停服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm)
+
+---
+
 # 陳茂波：關稅戰影響世界貿易秩序　香港聯動更多內地企業拼船出海
 
+![陳茂波表示，香港會用好「一國兩制」下「內聯外通」的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800291_1_20250414142032.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 財政司司長陳茂波表示，美國單邊發動的關稅戰正在影響世界的貿易秩序，環球產業鏈、供應鏈正面臨巨大的割裂風險。在美國的霸凌極限施壓下，香港會用好「一國兩制」下「內聯外通」的獨特優勢，擔當好「超級聯繫人」和「超級增值人」的角色。
@@ -23,6 +48,7 @@
 
 # 孫玉菡：有信心油尖旺區會有社區客廳　目前有待落實細節
 
+![孫玉菡表示，油尖旺區劏房戶略多於深水埗但未有社區客廳，主要因物色合適地方有難度。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800288_1_20250414141944.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 勞工及福利局局長孫玉菡表示，油尖旺區劏房戶略多於深水埗，但目前未有社區客廳，主要因為以往物色合適地方有難度，不過有些有心人主動聯絡政府，他要求對方盡量在油尖旺區提供地方，有信心油尖旺區將會有社區客廳，甚至不只一間，目前有待落實細節，相信會有突破，談妥後會交代。
@@ -1414,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm)
-
----
-
-# 為應對復活節假期求診需要　醫管局明起啓動高峰期特別措施
-
-![醫管局明日起啓動服務需求高峰期特別措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800132_1_20250413104410.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-醫管局公布，為應對市民在復活節假期的求診需要及減輕急症室的服務壓力，明日起啓動服務需求高峰期特別措施。復活節假期期間，即4月18日至21日將有18間普通科門診診所提供公眾假期普通科門診服務。求診人士可透過電話預約系統或「HA Go」流動應用程式內的「預約普通科門診」功能作出預約。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800132-20250413.htm)
 
 ---
