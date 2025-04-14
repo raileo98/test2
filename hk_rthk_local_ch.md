@@ -1,3 +1,26 @@
+# 34歲男子感染侵入性腦膜炎雙球菌　情況穩定
+
+  
+
+一名34歲男子感染侵入性腦膜炎雙球菌，現時情況穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800324-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800324-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800324-20250414.htm)
+
+---
+
 # 孫東：政府正積極籌備成立香港人工智能研發院
 
 ![孫東表示，政府正積極籌備成立香港人工智能研發院，將專注於支持上游研發工作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800319_1_20250414163658.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800155-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800155-20250413.htm)
-
----
-
-# 周一鳴：截至上月底安裝閉路電視成功協助偵破兇殺等200多宗案
-
-![周一鳴重申《維護國家安全條例》和《香港國安法》均為社會帶來保障，亦只有極少數人士受影響。(郭志強攝)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800151_1_20250413152318.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-警務處處長周一鳴表示，警方去年在全港安裝615組閉路電視，至年底成功協助短期內偵破122宗案件，包括兇殺和搶劫等嚴重罪案，至上月底更增加至近一倍至226宗，反映成效理想，目標本年度增至2000組，正審視明年的目標安裝數目，希望做到越多越好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800151-20250413.htm)
 
 ---

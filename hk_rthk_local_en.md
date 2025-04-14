@@ -1,3 +1,27 @@
+# 'Expats confident about doing business in Hong Kong'
+
+![Path of Democracy co-convenor Ray Poon, right, says the government can hold more promotional events to communicate the SAR’s actual situation. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800325_1_20250414170630.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Foreign investors' and workers’ confidence in Hong Kong remains positive despite the challenges the SAR faced in the past five years, a think tank said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800325-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800325-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800325-20250414.htm)
+
+---
+
 # Global tech leaders call for stronger collaboration
 
 ![GSMA chief executive John Hoffman says China Mobile, China Telecom and China Unicom have helped in moves to unlock innovations in the mobile ecosystem. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800300_1_20250414160201.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1437,5 @@ Financial Secretary Paul Chan said on Tuesday the Office for Attracting Strategi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799460-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799460-20250408.htm)
-
----
-
-# Manchester United to play in Hong Kong on May 30
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799432_1_20250408160003.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-English Premier League giants Manchester United on Tuesday announced that they'll play a friendly in Hong Kong next month as part of their post-season Asian tour.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799432-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799432-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799432-20250408.htm)
 
 ---

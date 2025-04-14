@@ -93,6 +93,54 @@
 
 ---
 
+# 美國關稅政策反復修改　中方促美方放棄極限施壓並對話解決問題
+
+![林劍說，中方敦促美方放棄極限施壓的錯誤做法，在平等、尊重、互惠的基礎上，通過對話解決問題。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800310_1_20250414155936.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+在北京，外交部再次批評美方將關稅作為極限施壓、謀取私利的武器，將一己私利凌駕於國際社會公利，是典型的單邊主義、保護主義、經濟霸凌行徑，嚴重損害包括中歐在內的世界各國利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm)
+
+---
+
+# 劉國勳建議將洪水橋新發展區土地整合　並改劃發展北都大學城
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800309_1_20250414155409.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+去年施政報告提到，政府已在北部都會區預留最少80公頃用地，發展「北都大學教育城」。民建聯立法會議員劉國勳建議將洪水橋新發展區內原本被劃為其他用途的土地，包括位於洪水橋南北面的部分政府、機構或社區用地、工業及物流用地，整合並改劃用作發展北都大學城，令區內發展「大學城」的土地由原本只有約5公頃，增加至24至48公頃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800309-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800309-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800309-20250414.htm)
+
+---
+
 # 美元兌一籃子貨幣走弱
 
 ![美元指數較早時報99.235，跌近0.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800303_1_20250414150732.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -1386,54 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800128-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800128-20250413.htm)
-
----
-
-# 許正宇：本港金融系統久經歷練　有信心香港可立於不敗之地
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800127_2_20250413104711.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-財經事務及庫務局局長許正宇表示，美國實施關稅政策，對全球經濟百害而無一利，但香港股票市場穩健，交易結算有序，反映即使宏觀環境複雜，最重要是「人亂我不亂」。他認為，本港金融系統久經歷練，監管系統能夠抵禦和察覺風險，整體市場運作有序，現時需持續鞏固本港市場的安全、穩定和可預見性，有信心香港可立於不敗之地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800127-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800127-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800127-20250413.htm)
-
----
-
-# Coldplay完成4場演出約20萬人入場　體育園稱運作暢順
-
-![啟德體育園稱Coldplay演唱會首次在啟德體育園成功完滿舉行。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_1_20250412233056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-![體育園有信心繼續為香港帶來更多精彩盛事。（啟德體育園）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800106_2_20250412233056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-英國樂隊Coldplay完成在本港的4場演出，啟德體育園表示，共吸引約20萬名來自海外、內地及香港的觀眾入場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800106-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800106-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800106-20250412.htm)
 
 ---

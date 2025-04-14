@@ -1,5 +1,53 @@
+# 34歲男子感染侵入性腦膜炎雙球菌　情況穩定
+
+  
+
+一名34歲男子感染侵入性腦膜炎雙球菌，現時情況穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800324-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800324-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800324-20250414.htm)
+
+---
+
+# 岑浩輝發表施政報告　澳門永久居民繼續獲派發1萬元
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800323_1_20250414170832.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+澳門今年第四季將調升長者及殘疾人士津貼。敬老金將由目前每年9000元調升至每年1萬澳門元，養老金每月發放金額由現時3740元增至3900澳門元，並且全年增加發放多1個月，即共13個月；殘疾人士津貼與普通殘疾津貼由每年9000元增至1萬澳門元，特別殘疾津貼由每年18000元增至2萬澳門元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800323-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800323-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800323-20250414.htm)
+
+---
+
 # 澳門推出中小企業銀行貨款利息補貼計劃　助中小企減輕利息負擔
 
+![岑浩輝說澳門特區發展主要預期目標是鞏固經濟復蘇，加力促進經濟適度多元發展，推動社區經濟發展。（鄭月明攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800320_1_20250414170620.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 澳門政府為幫助中小企減輕銀行貸款利息負擔，增加資金流動和緩解資金壓力，將推出「中小企業銀行貨款利息補貼計劃」，為符合條件的企業，提供上限貨款額500萬澳門元，為期3年的4厘利息補貼，銀行貸款額上限100億澳門元。
