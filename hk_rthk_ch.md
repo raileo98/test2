@@ -1,3 +1,27 @@
+# 南韓民調顯示李在明支持率48.8%　大幅領先其他總統人選
+
+![民調結果顯示，在新一屆總統熱門人選中，李在明支持率排名第一。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800267_1_20250414115210.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+南韓民調機構發布一項民調結果顯示，在新一屆總統熱門人選中，共同民主黨前黨魁李在明支持率達48.8%，排名第一。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800267-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800267-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800267-20250414.htm)
+
+---
+
 # 中興通訊：人工智能面臨發展瓶頸　需尋求突破
 
 ![中興通訊董事長方榕表示，目前AI面臨發展瓶頸，需要圍繞模型架構、算力互聯和系統集成等尋求突破。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800262_1_20250414113333.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800185-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800185-20250413.htm)
-
----
-
-# 美方豁免部分商品對等關稅　商務部：修正錯誤做法一小步
-
-![商務部敦促美方在糾錯方面邁出一大步，徹底取消對等關稅的錯誤做法。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800184_1_20250413192442.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-美方豁免電腦、智能手機、半導體製造設備、集成電路等部分產品的對等關稅，在北京，商務部說，這是美方修正單邊對等關稅錯誤做法的一小步，敦促美方正視國際社會和國內各方理性聲音，在糾錯方面邁出一大步，徹底取消對等關稅的錯誤做法，回到相互尊重，通過平等對話解決分歧的正確道路上來。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800184-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800184-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800184-20250413.htm)
 
 ---
