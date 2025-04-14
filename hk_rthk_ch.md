@@ -1,3 +1,27 @@
+# 中方冀英國政府公平公正對待在英投資經營中資企業
+
+![林劍說，希望英國政府公平公正對待在英投資經營的中資企業，保護其正當合法權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800339_1_20250414184838.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+在北京，外交部回應英國政府表示，將從中國敬業集團手中接管英國鋼鐵公司，發言人林劍說，據他了解，敬業集團是一家中國的民營企業，基於市場化的原則，同英方開展合作。對於目前英鋼經營遇到的困難，雙方應本著互利的原則商談解決。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm)
+
+---
+
 # ４人疑經緊急出口非法進入Coldplay演唱會場館　３人被捕
 
   

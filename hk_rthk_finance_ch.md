@@ -1,3 +1,27 @@
+# 王勇︰中央支持香港深度融入全球數字化發展的時代洪流
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800337_1_20250414183550.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+世界互聯網大會亞太峰會，首次在本港舉行。全國政協副主席王勇在開幕式致辭時說，開放合作是歷史的潮流，經濟全球化的趨勢絕不會被逆轉，要堅持真正的多邊主義。他又指，中央支持香港，深度融入全球數字化發展的時代洪流。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800337-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800337-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800337-20250414.htm)
+
+---
+
 # 金管局：3月外匯基金境外資產減少240億元
 
 ![本港3月外匯基金境外資產減少240億元，降至34159億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800322_1_20250414165628.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800177-20250413.htm)
-
----
-
-# 數字辦與上海數據局在港簽署《滬港數字經濟合作備忘錄》
-
-![數字辦與上海市數據局在香港簽署《滬港數字經濟合作備忘錄》，共同推進滬港兩地深化合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800170_1_20250413180657.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-數字辦與上海市數據局在香港簽署《滬港數字經濟合作備忘錄》，共同推進滬港兩地圍繞數字經濟、數字化轉型、數據要素發展等領域深化合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800170-20250413.htm)
 
 ---

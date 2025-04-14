@@ -1,3 +1,27 @@
+# 中方冀英國政府公平公正對待在英投資經營中資企業
+
+![林劍說，希望英國政府公平公正對待在英投資經營的中資企業，保護其正當合法權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800339_1_20250414184838.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+在北京，外交部回應英國政府表示，將從中國敬業集團手中接管英國鋼鐵公司，發言人林劍說，據他了解，敬業集團是一家中國的民營企業，基於市場化的原則，同英方開展合作。對於目前英鋼經營遇到的困難，雙方應本著互利的原則商談解決。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm)
+
+---
+
 # 習近平抵越南國事訪問　冀與越南領袖就兩黨兩國關係問題交換意見
 
 ![習近平乘專機抵達河內國際機場。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800332_1_20250414175126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800081-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800081-20250412.htm)
-
----
-
-# 王文濤：美對等關稅為發展中國家特別是最不發達國家帶來巨大傷害
-
-![王文濤強調，中方採取果斷措施予以反制，既是維護自身合法權益，更是維護國際社會的公平正義。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800065_1_20250412141154.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
-  
-
-商務部部長王文濤昨天與世貿組織總幹事伊維拉視像通話，王文濤表示，美國不斷出台關稅措施，為全球帶來巨大的不確定性和不穩定性，引發國際社會和美國國內的混亂局面。美方憑空炮製對等關稅，是典型的單邊霸凌做法。美國的對等關稅為發展中國家特別是最不發達國家帶來巨大傷害，甚至引發人道主義危機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm)
 
 ---
