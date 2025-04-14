@@ -1,3 +1,27 @@
+# 德國政府：美國關稅政策導致出口面臨相當大阻力
+
+![德國經濟部表示，關稅政策，令德國出口和工業生產面臨相當大的阻力。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800342_1_20250414190532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+德國經濟部表示，由於美國總統特朗普的關稅政策，德國出口和工業生產面臨相當大的阻力，貿易發展的不確定性極高，在貿易保護主義抬頭下，預計需求不會復蘇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800342-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800342-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800342-20250414.htm)
+
+---
+
 # 分析指外貿企業或將產品外銷至其他地區應對貿易摩擦
 
 ![有分析認為，面對貿易摩擦，外貿企業或會將產品外銷至其他地區應對。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800341_1_20250414185548.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800210-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800210-20250414.htm)
-
----
-
-# 美股本周焦點在於關稅進展　鮑威爾講話及業績等
-
-![美股本星期只有4日市，市場繼續留意關稅情況，並關注聯儲局主席鮑威爾講話，企業業績及債息走勢等。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800209_1_20250414055221.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-美股本星期只有4日市，將於周五耶穌受難日休市。美股3大指數上星期顯著波動，道瓊斯指數升近5%，標準普爾500指數升近6%，納斯達克指數升逾7%。本周市場繼續留意關稅情況，並關注聯儲局主席鮑威爾講話，企業業績及債息走勢等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800209-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800209-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800209-20250414.htm)
 
 ---

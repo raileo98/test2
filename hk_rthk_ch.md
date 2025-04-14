@@ -1,3 +1,27 @@
+# 德國政府：美國關稅政策導致出口面臨相當大阻力
+
+![德國經濟部表示，關稅政策，令德國出口和工業生產面臨相當大的阻力。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800342_1_20250414190532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+德國經濟部表示，由於美國總統特朗普的關稅政策，德國出口和工業生產面臨相當大的阻力，貿易發展的不確定性極高，在貿易保護主義抬頭下，預計需求不會復蘇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800342-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800342-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800342-20250414.htm)
+
+---
+
 # 麥美娟：政府不鼓勵賭博　視乎公眾諮詢結果規範籃球博彩活動
 
   
