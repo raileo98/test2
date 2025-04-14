@@ -1,3 +1,27 @@
+# 王勇︰中央支持香港深度融入全球數字化發展的時代洪流
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800337_1_20250414183550.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+世界互聯網大會亞太峰會，首次在本港舉行。全國政協副主席王勇在開幕式致辭時說，開放合作是歷史的潮流，經濟全球化的趨勢絕不會被逆轉，要堅持真正的多邊主義。他又指，中央支持香港，深度融入全球數字化發展的時代洪流。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800337-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800337-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800337-20250414.htm)
+
+---
+
 # 渠務署稱有信心處理水浸問題
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800331_1_20250414182622.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
