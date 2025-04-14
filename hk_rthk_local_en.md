@@ -1,6 +1,6 @@
-# Trade war 'may jeopardize global tech development'
+# Trade war 'may jeopardise global tech development'
 
-![Paul Chan says more barriers are expected under the trade war, which could harm innovation and global technological development. Photo: GIS](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800336_1_20250414182206.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![Paul Chan says more barriers are expected under the trade war, which could harm innovation and global technological development. Photo: Information Services Dept.](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800336_1_20250414182206.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 Financial Secretary Paul Chan said on Monday the global trade war could endanger global technology development.
