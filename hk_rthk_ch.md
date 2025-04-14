@@ -1,3 +1,26 @@
+# 有人工智能初創公司稱世界互聯網大會亞太峰會有助推廣香港品牌
+
+  
+
+世界互聯網大會亞太峰會首次一連兩日在灣仔會展舉行，吸引約30個國家和地區約1000名商界領袖、政府官員、學者、協會領袖和其他知名人士參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800301-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800301-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800301-20250414.htm)
+
+---
+
 # 韓股高收近1%
 
 ![首爾綜合指數收報2455點，升23點，升幅0.95%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800298_1_20250414145400.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -48,7 +71,7 @@
 
 # 韓正︰中國堅定不移打造一流營商環境　為各國企業提供更優質服務
 
-![韓正在海南海口出席一系列活動。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800296_1_20250414143517.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![韓正在海南海口出席一系列活動。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800296_1_20250414143517.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 國家副主席韓正表示，中國將堅定不移推動海南自由貿易港建設，充分發揮海南自由貿易港對外開放的重要門戶作用，讓各國企業更好參與中國新發展格局。中國將堅定不移打造一流營商環境，為各國企業提供更優質的服務保障，歡迎全球投資者積極投資中國、投資海南自由貿易港，共享中國發展機遇。

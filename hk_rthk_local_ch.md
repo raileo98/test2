@@ -1,4 +1,27 @@
-# 轉數快星期日凌晨1時至上午11時進行系統提升
+# 有人工智能初創公司稱世界互聯網大會亞太峰會有助推廣香港品牌
+
+  
+
+世界互聯網大會亞太峰會首次一連兩日在灣仔會展舉行，吸引約30個國家和地區約1000名商界領袖、政府官員、學者、協會領袖和其他知名人士參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800301-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800301-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800301-20250414.htm)
+
+---
+
+# 轉數快擬周日凌晨1時至上午11時進行系統提升
 
 ![轉數快擬周日凌晨1時至上午11時系統提升，金管局已要求銀行及儲值支付工具營運商預早通知客戶。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800293_1_20250414142332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm)
-
----
-
-# 陳茂波：香港在當前環球市場前景不明朗下顯得更穩定和具吸引力
-
-![陳茂波日前會同財經事務及庫務局局長、商務及經濟發展局局長和金融監管機構代表會見傳媒。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800134_1_20250413111019.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-財政司司長陳茂波表示，自美國公布向全球貿易伙伴施加所謂「對等關稅」後，國際金融市場出現大幅波動，美國國庫債券價格急跌、孳息急升；上周開始至今，港匯持續偏強，港元兌美元仍處於強方水平，顯示資金仍留在本港市場，港股經過上周一跌勢後大致穩定，上周五恒生指數收市，仍略高於今年一月初的水平，上周的平均每日成交額增至4276億港元，比前周增加約68%，反映過去一周市場整體繼續暢順有序運作，認為香港在當前環球市場前景不明朗的情況下，顯得更加穩定和具吸引力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800134-20250413.htm)
 
 ---
