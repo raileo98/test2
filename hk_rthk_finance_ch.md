@@ -1,3 +1,27 @@
+# 英特爾擬以44.6億美元出售可編程晶片業務51%股權
+
+![英特爾公布，公司已同意以44.6億美元出售可編程晶片業務Altera的51%股權，交易預計將於今年下半年完成。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800384_1_20250415073113.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+英特爾公布，公司已同意以44.6億美元出售可編程晶片業務Altera的51%股權，予私募基金Silver Lake，相關交易是新任首席執行官陳立武上任以來首項重大改革行動，為英特爾轉型復興計劃注入資金。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800384-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800384-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800384-20250415.htm)
+
+---
+
 # 現貨金觸及紀錄高位後回落
 
 ![現貨金高見每盎司3245.42美元創新高，較早時報3209.44美元，跌幅0.8%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800381_1_20250415062002.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800235-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800235-20250414.htm)
-
----
-
-# 滬深股市初段造好
-
-![上證指數較早時報3251點，升13點，升幅0.41%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800234_1_20250414093751.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-滬深股市初段造好，上證指數較早時報3251點，升13點，升幅0.41%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800234-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800234-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800234-20250414.htm)
 
 ---
