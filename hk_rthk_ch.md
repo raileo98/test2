@@ -1,3 +1,51 @@
+# 雲南昆明一間商店發生火警8人死亡
+
+![雲南昆明一間商店發生火警8人死亡](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800330_1_20250414174246.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+雲南昆明一間商店發生火警，造成8人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800330-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800330-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800330-20250414.htm)
+
+---
+
+# 金管局：3月外匯基金境外資產減少240億元
+
+![本港3月外匯基金境外資產減少240億元，降至34159億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800322_1_20250414165628.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+金管局公布，3月外匯基金境外資產減少240億元，降至34159億元；貨幣基礎19771億元，包括負債證明書、政府發行的流通紙幣及硬幣、銀行體系結餘，以及已發行外匯基金票據及債券。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800322-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800322-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800322-20250414.htm)
+
+---
+
 # 外電推算3月央行口徑外匯佔款減少逾660億元人民幣
 
 ![外電推算3月央行口徑外匯佔款減少近661.6億元人民幣，連續多月減少。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800321_1_20250414165127.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
@@ -358,7 +406,7 @@
 
 # 陳茂波：致力將香港打造成全球AI交流樞紐
 
-![陳茂波說，數碼時代的挑戰與機遇超越國界，認為需要更多對話、共享與合作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800311_1_20250414155123.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800311_1_20250414155123.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 財政司司長陳茂波表示，各國政府和監管機構面臨日益嚴峻的挑戰，涉及網絡安全、數據私隱及跨境監管等，但現時更迫切的問題是數碼碎片化，又提到美國發起的貿易戰或會超出關稅範疇，可以預見未來會出現更多隔閡、更大的疆界和更高的壁壘，或扼殺創新，危及環球科技發展。
