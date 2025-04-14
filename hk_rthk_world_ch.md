@@ -1,5 +1,30 @@
+# 習近平：中越兩國堅持和平發展　為世界帶來寶貴穩定性
+
+![習近平在蘇林陪同下檢閱儀仗隊。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800360_1_20250414223808.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+中共中央總書記、國家主席習近平展開東南亞三國的國事訪問行程，中午抵達首站越南首都河內，越共中央總書記蘇林為習近平舉行隆重歡迎儀式，習近平在蘇林陪同下檢閱儀仗隊，兩人之後舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800360-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800360-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800360-20250414.htm)
+
+---
+
 # 首次全女班太空旅行　參與者包括樂壇天后Katy Perry
 
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800357_1_20250414223559.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 亞馬遜創辦人貝索斯旗下商業太空公司「藍色起源」，將樂壇天后Katy Perry在內6人送上太空，是首次全女班太空旅行。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800103-20250412.htm)
-
----
-
-# 特朗普豁免向智能電話、電腦、晶片等產品徵收對等關稅
-
-![特朗普豁免向智能電話、電腦、晶片等產品徵收對等關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800098_1_20250412214344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國總統特朗普簽署備忘錄，豁免向部分產品徵收對等關稅。美國海關和邊境保護局更新指引，公布獲豁免物品清單，包括智能電話、手提電腦、晶片、硬碟、電腦處理器和記憶體、太陽能電池，以及用於製造半導體的機器。豁免適用於本月5日起輸入美國的產品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800098-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800098-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800098-20250412.htm)
 
 ---

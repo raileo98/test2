@@ -1,3 +1,27 @@
+# 習近平：中越兩國堅持和平發展　為世界帶來寶貴穩定性
+
+![習近平在蘇林陪同下檢閱儀仗隊。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800360_1_20250414223808.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+中共中央總書記、國家主席習近平展開東南亞三國的國事訪問行程，中午抵達首站越南首都河內，越共中央總書記蘇林為習近平舉行隆重歡迎儀式，習近平在蘇林陪同下檢閱儀仗隊，兩人之後舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800360-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800360-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800360-20250414.htm)
+
+---
+
 # 國務院港澳辦：施政報告充分展現澳門特區政府改革創新施政理念
 
 ![國務院港澳辦表示，岑浩輝首份施政報告，深入貫徹國家主席習近平去年12月視察澳門系列重要講話精神。（鄭月明攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800354_1_20250414214755.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800070-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800070-20250412.htm)
-
----
-
-# 天津陣風達14級　破1951年以來歷史同期極值
-
-![天津陣風達14級　破1951年以來歷史同期極值](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800068_1_20250412145059.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-一場範圍廣、強度高的大風天氣正影響全國多地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800068-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800068-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800068-20250412.htm)
 
 ---

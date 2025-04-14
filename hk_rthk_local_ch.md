@@ -1,3 +1,26 @@
+# 卓永興：去年推計劃以休閒活動增農戶收入　擬類似方法促魚場發展
+
+  
+
+政務司副司長卓永興說，政府去年推出了「農＋樂」農場計劃，便利主要從事商業農耕的農場，提供休閒活動作輔助業務，增加農戶收入，當局正研究採用類似的方式，促進內陸休閒魚場的發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800356-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800356-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800356-20250414.htm)
+
+---
+
 # 日本多人進食受污染飯盒後染諾如病毒　當局籲市民外遊時注意衞生
 
 ![衞生防護中心提醒市民外遊時應提高警覺。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800353_1_20250414214531.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800180-20250413.htm)
-
----
-
-# 陳茂波：本港要保持開放　黃偉綸：推動成低空經濟全球領導者
-
-![陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800178_1_20250413183729.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-創新科技及工業局舉辦的「國際創科營商周」開幕。財政司司長陳茂波表示，貿易戰導致全球格局起變化，本港要保持開放，確保自由港地位，自由貿易政策不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800178-20250413.htm)
 
 ---
