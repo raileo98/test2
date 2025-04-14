@@ -1,3 +1,49 @@
+# 全國政協副主席王勇提出要促進共同發展繁榮　堅持真正多邊主義
+
+  
+
+世界互聯網大會亞太峰會首次一連兩日在灣仔會展舉行，全國政協副主席王勇表示，當前虛擬空間不平靜，舊的風險挑戰未消除，新的安全變量仍在不斷湧現。他提出要促進共同發展繁榮，堅持真正的多邊主義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm)
+
+---
+
+# 鄧炳強在社交平台介紹兩位國安大使卡通人物
+
+  
+
+明日是第十個「全民國家安全教育日」，保安局局長鄧炳強在社交平台介紹兩位國安大使卡通人物「安仔」和「保安熊仔」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800271-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800271-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800271-20250414.htm)
+
+---
+
 # 恒指半日升504點　科指升近3%
 
 ![恒生指數中午收市報21419點，升504點，升幅2.4%，半日主板成交額近1543億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800269_1_20250414121147.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -24,6 +70,7 @@
 
 # 本港今日空氣質素仍欠佳　多區空氣質素健康指數風險為高至甚高
 
+![環保署在今早11時錄得多區的空氣質素健康指數風險為高至甚高。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800268_1_20250414121930.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 受乾燥的大陸氣流及沙塵天氣影響，廣東部分地區能見度較低，本港今日空氣質素仍然欠佳，環保署在今早11時錄得多區的空氣質素健康指數風險為高至甚高；一般及路邊監測站下午的健康風險預測均為中至嚴重。
@@ -71,7 +118,7 @@
 
 # 鄭雁雄：香港定能為推動構建網絡空間命運共同體作出更大貢獻
 
-![鄭雁雄認為香港應發揮創科優勢，引領亞太數字融合發展。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800260_1_20250414120056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800260_1_20250414120056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 世界互聯網大會亞太峰會早上在香港會展舉行，中聯辦主任鄭雁雄表示，香港是互聯網發展的先行地區，具有全球金融、航運、貿易中心的傳統優勢，亦有人工智能研發創科發展及人才等新優勢，更有制度創新、兩文三語、文化包容及內聯外通等獨特優勢，相信香港定能為推動構建網絡空間命運共同體作出新的更大貢獻。
@@ -1391,54 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800105-20250412.htm)
-
----
-
-# 27歲外籍女子港鐵旺角東站失蹤　警方呼籲提供消息
-
-![失蹤的27歲外籍女子。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800104_1_20250412230322.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-一名27歲外籍女子Moran Dante Elaine Cipolla 昨日下午離開港鐵旺角東站後失蹤，院舍職員報案，警方呼籲市民提供消息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800104-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800104-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800104-20250412.htm)
-
----
-
-# 啟德體育園演唱會散場人流高峰　運輸署籲觀眾乘搭港鐵
-
-![運輸署提醒觀眾留意場地廣播及「離場易」平台實時資訊。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800101_2_20250412233744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-![觀眾離場時分別前往港鐵站或巴士站。（林漢山攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800101_3_20250412233744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-運輸署表示，現時為啟德體育園演唱會散場人流高峰時段，宋皇臺道的士上落客區現時輪候人數較多，輪候時間會較長，呼籲觀眾選擇乘搭港鐵離開啟德體育園。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800101-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800101-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800101-20250412.htm)
 
 ---

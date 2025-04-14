@@ -1,3 +1,49 @@
+# 全國政協副主席王勇提出要促進共同發展繁榮　堅持真正多邊主義
+
+  
+
+世界互聯網大會亞太峰會首次一連兩日在灣仔會展舉行，全國政協副主席王勇表示，當前虛擬空間不平靜，舊的風險挑戰未消除，新的安全變量仍在不斷湧現。他提出要促進共同發展繁榮，堅持真正的多邊主義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm)
+
+---
+
+# 鄧炳強在社交平台介紹兩位國安大使卡通人物
+
+  
+
+明日是第十個「全民國家安全教育日」，保安局局長鄧炳強在社交平台介紹兩位國安大使卡通人物「安仔」和「保安熊仔」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800271-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800271-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800271-20250414.htm)
+
+---
+
 # 內地股市半日升近1%
 
 ![上證綜合指數報3266點，升27點，升幅0.86%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800263_1_20250414114038.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -48,6 +94,7 @@
 
 # 本港今日空氣質素仍欠佳　多區空氣質素健康指數風險為高至甚高
 
+![環保署在今早11時錄得多區的空氣質素健康指數風險為高至甚高。（黃瀞翹攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800268_1_20250414121930.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 受乾燥的大陸氣流及沙塵天氣影響，廣東部分地區能見度較低，本港今日空氣質素仍然欠佳，環保署在今早11時錄得多區的空氣質素健康指數風險為高至甚高；一般及路邊監測站下午的健康風險預測均為中至嚴重。
@@ -167,7 +214,7 @@
 
 # 鄭雁雄：香港定能為推動構建網絡空間命運共同體作出更大貢獻
 
-![鄭雁雄認為香港應發揮創科優勢，引領亞太數字融合發展。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800260_1_20250414120056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800260_1_20250414120056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 世界互聯網大會亞太峰會早上在香港會展舉行，中聯辦主任鄭雁雄表示，香港是互聯網發展的先行地區，具有全球金融、航運、貿易中心的傳統優勢，亦有人工智能研發創科發展及人才等新優勢，更有制度創新、兩文三語、文化包容及內聯外通等獨特優勢，相信香港定能為推動構建網絡空間命運共同體作出新的更大貢獻。
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800192-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800192-20250413.htm)
-
----
-
-# 天文台料周中沙塵天氣情況會逐漸緩解
-
-![天文台說，華中至華南一帶的沙塵天氣報告可以觀測到沙塵天氣南下。（天文台網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800191_1_20250413213122.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-受一股東北季候風相關的沙塵氣流影響，本港空氣質素欠佳。天文台表示，是次東北季候風的強度在4月較為罕見，除了為中國多個城市帶來大風天氣外，亦將北方的沙塵往南輸送。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800191-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800191-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800191-20250413.htm)
-
----
-
-# 世界互聯網大會亞太峰會明天開幕　李家超：展示創科領域最新發展
-
-![李家超說，香港一直是國際自由港以及國家與世界之間的商業橋樑。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800190_1_20250413210317.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-行政長官李家超表示，世界互聯網大會亞太峰會首次在港舉辦，明日將會開幕，雲集約30個國家和地區約1000名商界領袖、政府部級等人員、學者、協會領袖和其他知名人士，共同探討人工智能和數碼科技的發展。他今晚出席歡迎晚宴，歡迎他們蒞臨香港參與峰會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm)
 
 ---

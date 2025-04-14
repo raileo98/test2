@@ -24,7 +24,7 @@ The US Federal Aviation Administration said the helicopter company involved in t
 
 # Nobel literature laureate Vargas Llosa passes away
 
-![Mario Vargas Llosa at his home in Madrid in 2009. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800240_1_20250414101145.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800240_1_20250414101145.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 Peruvian writer Mario Vargas Llosa, who enchanted readers with his intellectual rigor and lyrical prose for five decades and came close to being president of his country, has died aged 89.
@@ -120,7 +120,7 @@ President Xi Jinping called for stronger cooperation with Vietnam in industrial 
 
 # Pennsylvania governor's residence set on fire
 
-![Governor Justin Shapiro and his family had to be evacuated. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800219_1_20250414081459.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800219_1_20250414081459.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 A 38-year-old man was in custody and will face attempted homicide and aggravated arson charges after setting a fire overnight at Pennsylvania Governor Josh Shapiro's residence, state authorities said at a press conference at the governor's mansion in Harrisburg on Sunday.
