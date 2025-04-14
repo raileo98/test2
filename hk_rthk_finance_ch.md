@@ -1,3 +1,27 @@
+# 中興通訊：人工智能面臨發展瓶頸　需尋求突破
+
+![中興通訊董事長方榕表示，目前AI面臨發展瓶頸，需要圍繞模型架構、算力互聯和系統集成等尋求突破。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800262_1_20250414113333.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+中興通訊董事長方榕表示，過去2、3年人工智能（AI）技術突飛猛進，多項能力測試中接近甚至超越人類水平，但在AI技術實現大規模應用方面，仍要克服一系列挑戰，包括算力普惠、AI應用普及等核心問題，以及安全私隱和科技倫理挑戰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800262-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800262-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800262-20250414.htm)
+
+---
+
 # 內地3月出口以美元計價按年增長12.4%　創5個月最快增速
 
 ![按美元計價，內地3月出口按年增長12.4%，創5個月以來最快增速；進口下跌4.3%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800258_1_20250414111140.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799971-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799971-20250411.htm)
-
----
-
-# 在岸人民幣高收逾180點子
-
-![在岸人民幣高收逾180點子，收報7.3245兌1美元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799968_1_20250411175855.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-在岸人民幣高收逾180點子，收報7.3245兌1美元。中間價結束6連跌，報7.2087兌1美元，較上日微升5點子，與市場預測偏離收窄至逾1000點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799968-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799968-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799968-20250411.htm)
 
 ---

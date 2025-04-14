@@ -1,3 +1,27 @@
+# 中興通訊：人工智能面臨發展瓶頸　需尋求突破
+
+![中興通訊董事長方榕表示，目前AI面臨發展瓶頸，需要圍繞模型架構、算力互聯和系統集成等尋求突破。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800262_1_20250414113333.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+中興通訊董事長方榕表示，過去2、3年人工智能（AI）技術突飛猛進，多項能力測試中接近甚至超越人類水平，但在AI技術實現大規模應用方面，仍要克服一系列挑戰，包括算力普惠、AI應用普及等核心問題，以及安全私隱和科技倫理挑戰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800262-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800262-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800262-20250414.htm)
+
+---
+
 # 邵家輝：商場舉行不同活動或攤檔可吸引人流　增加商戶生意
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800184-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800184-20250413.htm)
-
----
-
-# 烏方稱俄羅斯對蘇梅導彈襲擊增至逾30人死
-
-![消防員在導彈襲擊現場撲救火勢。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800183_1_20250413191327.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-烏克蘭緊急部門說，俄羅斯對蘇梅市的導彈襲擊，增至31人死亡，包括兩名小童。另有84人受傷，其中10人是小童。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800183-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800183-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800183-20250413.htm)
 
 ---

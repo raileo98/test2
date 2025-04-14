@@ -1,3 +1,27 @@
+# Helicopter tours firm behind NY crash shut down
+
+![No equipment on the Bell 206 helicopter that crashed in the Hudson has recorded information that would help in the investigation. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800252_1_20250414112911.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+The US Federal Aviation Administration said the helicopter company involved in the Hudson River crash in New York City on Thursday that killed all six people on board including three children was shutting down operations immediately.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800252-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800252-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800252-20250414.htm)
+
+---
+
 # Nobel literature laureate Vargas Llosa passes away
 
 ![Mario Vargas Llosa at his home in Madrid in 2009. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800240_1_20250414101145.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@ US President Donald Trump on Monday threatened huge additional tariffs on import
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm)
-
----
-
-# Britain may close hundreds of quangos to cut costs
-
-![Quangos, or quasi-autonomous non-governmental organizations, will be reviewed with a view to closing or merging them or bringing their functions back into government departments. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799284_1_20250407182022.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-Britain said it could close hundreds of arms-length government agencies, as it looks to reform the state to cut costs and improve productivity in what it called "a new era of global instability".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799284-20250407.htm)
 
 ---
