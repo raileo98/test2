@@ -1,3 +1,27 @@
+# 馬克龍呼籲解除哈馬斯武裝　改革巴勒斯坦民族權力機構
+
+![馬克龍認為，必須設定一個框架，在加沙地帶建立可信的治理方式，認為這有助落實「兩國方案」。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800368_1_20250415012743.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+法國總統馬克龍呼籲改革巴勒斯坦民族權力機構，並解除哈馬斯的武裝，並將其排除在外，讓巴勒斯坦民族權力機構管治戰後的加沙地帶。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800368-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800368-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800368-20250415.htm)
+
+---
+
 # 特朗普：將對進口藥物徵收關稅
 
 ![特朗普說，預計在不久的將來會對進口藥品徵收關稅。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800366_1_20250415005226.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800297-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800297-20250414.htm)
-
----
-
-# 韓正︰中國堅定不移打造一流營商環境　為各國企業提供更優質服務
-
-![韓正在海南海口出席一系列活動。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800296_1_20250414143517.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-國家副主席韓正表示，中國將堅定不移推動海南自由貿易港建設，充分發揮海南自由貿易港對外開放的重要門戶作用，讓各國企業更好參與中國新發展格局。中國將堅定不移打造一流營商環境，為各國企業提供更優質的服務保障，歡迎全球投資者積極投資中國、投資海南自由貿易港，共享中國發展機遇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm)
 
 ---
