@@ -1,3 +1,28 @@
+# Schools get creative with national security education
+
+![Through quizzes, hands-on exhibits and cross-border exchanges, educators aim to boost national security education in ways that resonate beyond textbooks. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800265_1_20250414114527.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![Ma On Shan Ling Liang Primary School, recently launched a “School History Room and National Education Archive" centre housing historical displays, national education books and rotating exhibitions to bring lessons to life. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800265_2_20250414114527.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Schools across Hong Kong are embracing creative ways to mark National Security Education Day this Tuesday, which will blend interactive learning with civic engagement to deepen students’ understanding of the nation’s heritage, security and cultural values.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800265-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800265-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800265-20250414.htm)
+
+---
+
 # SF Express stops SMS messages for pickups
 
 ![SF Express said it received a nearly fourfold increase in inquiries and reports of fraud in the first quarter from a year ago. Photo courtesy of SF Express website.](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800266_1_20250414114823.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1412,29 +1437,5 @@ The MTR said it would enhance services on the Tuen Ma and East Rail lines this w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799388-20250408.htm)
-
----
-
-# 'Reckless' tariffs hurt global trade, says John Lee
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799378_1_20250408105347.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-Chief Executive John Lee has hit out at the United States for slapping "reckless" tariffs on countries and places around the world, vowing to take steps to respond to the sweeping levies through deepening international cooperation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799378-20250408.htm)
 
 ---

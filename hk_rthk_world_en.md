@@ -1,3 +1,27 @@
+# Incumbent Noboa wins presential election in Ecuador
+
+![Daniel Noboa talks to supporters as his wife Lavinia Valbonesi claps in Santa Elena province, Ecuador, at the weekend. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800277_1_20250414123914.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Incumbent President Daniel Noboa claimed a runaway victory in Ecuador's presidential election, after voters endorsed the young leader's "iron fist" approach to rampant cartel violence.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800277-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800277-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800277-20250414.htm)
+
+---
+
 # Helicopter tours firm behind NY crash shut down
 
 ![No equipment on the Bell 206 helicopter that crashed in the Hudson has recorded information that would help in the investigation. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800252_1_20250414112911.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@ The US Supreme Court handed Donald Trump a victory on Monday by letting him use 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799334-20250408.htm)
-
----
-
-# Trump threatens further 50pc tariffs on China
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799320_1_20250408012952.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-US President Donald Trump on Monday threatened huge additional tariffs on imports from China, raising the possibility of further escalation in a trade war that has already wiped trillions of dollars from global markets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799320-20250408.htm)
 
 ---

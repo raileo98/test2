@@ -1,3 +1,49 @@
+# 台灣有醫院工會冀當局正視薪酬待遇偏低及人手長期不足問題
+
+  
+
+特區政府明年調整公營醫療服務收費，以更好地善用資源，希望非緊急病人使用急症室以外的醫療服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800278-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800278-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800278-20250414.htm)
+
+---
+
+# 中國海關總署：首季中美雙邊貿易仍增長4%
+
+  
+
+中國海關總署副署長王令浚表示，今年首季度在美國政府濫施關稅的干擾和衝擊下，中美雙邊貿易仍保持增長，進出口規模1.11萬億元人民幣，增長4%。他說，中美經貿關係本質是互利共贏，具有強大内生動力，但美國以各種藉口宣布，包括中國在内所有貿易夥伴濫施關稅，將不可避免地對全球包括中美在内的貿易造成負面影響，導致全球商品貿易量萎縮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm)
+
+---
+
 # 全國政協副主席王勇提出要促進共同發展繁榮　堅持真正多邊主義
 
   
@@ -1385,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799984-20250411.htm)
-
----
-
-# 王毅指美國不能任意妄為　歷史車輪不能倒退
-
-![王毅與格羅西會晤。（外交部圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799983_1_20250411184900.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-中共中央政治局委員、外交部長王毅在北京，與國際原子能機構總幹事格羅西會面時批評美國推出的關稅措施，凌駕各國利益，美國不能任意妄為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799983-20250411.htm)
-
----
-
-# 中方指美方對華關稅稅率異常高淪數字遊戲　如再加將不予理會
-
-![中方指美方對華加徵多次關稅後，稅率異常高，已經淪為數字遊戲，如果再加關稅，中方將不予理會。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799980_1_20250411195622.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
-  
-
-中國再度反制美國，向原產於美國的進口商品，加徵關稅稅率上調至125%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm](https://news.rthk.hk/rthk/ch/component/k2/1799980-20250411.htm)
 
 ---

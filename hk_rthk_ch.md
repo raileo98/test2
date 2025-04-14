@@ -1,4 +1,27 @@
-# 62歲男子九龍城騎單車疑遭小巴撞倒送院不治　小巴司機被捕
+# 中國海關總署：首季中美雙邊貿易仍增長4%
+
+  
+
+中國海關總署副署長王令浚表示，今年首季度在美國政府濫施關稅的干擾和衝擊下，中美雙邊貿易仍保持增長，進出口規模1.11萬億元人民幣，增長4%。他說，中美經貿關係本質是互利共贏，具有強大内生動力，但美國以各種藉口宣布，包括中國在内所有貿易夥伴濫施關稅，將不可避免地對全球包括中美在内的貿易造成負面影響，導致全球商品貿易量萎縮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm)
+
+---
+
+# 62歲男子九龍城騎單車疑遭小巴撞倒送院不治　司機被捕
 
   
 
@@ -69,6 +92,7 @@
 
 # 鄧炳強在社交平台介紹兩位國安大使卡通人物
 
+![鄧炳強介紹兩位國安大使卡通人物「安仔」和「保安熊仔」，明天會有見面會。（保安局片段截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800271_1_20250414123656.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 明日是第十個「全民國家安全教育日」，保安局局長鄧炳強在社交平台介紹兩位國安大使卡通人物「安仔」和「保安熊仔」。
@@ -1408,30 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800195-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800195-20250413.htm)
-
----
-
-# 陳雨菲羽毛球亞錦賽女單奪冠　劉聖書/譚寧女雙摘金
-
-![陳雨菲在頒獎儀式上手捧獎盃。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800194_1_20250413223239.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-![劉聖書（左）/譚寧在比賽中慶祝得分。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800194_2_20250413223556.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-在寧波舉行的亞洲羽毛球錦標賽，國家隊選手陳雨菲奪得女單冠軍，劉聖書/譚寧獲得女雙冠軍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800194-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800194-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800194-20250413.htm)
 
 ---
