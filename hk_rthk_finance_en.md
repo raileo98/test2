@@ -1,3 +1,27 @@
+# Stocks rally worldwide after Trump eases some tariffs
+
+![Apple and other tech companies helped lift Wall Street after President Trump said he was exempting electronics from some of his stiff tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800379_1_20250415061332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
+  
+
+Stocks rose worldwide on Monday after US President Donald Trump relaxed some of his tariffs, for now at least, and as stress from within the US bond market seems to be easing.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800379-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800379-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800379-20250415.htm)
+
+---
+
 # HK stocks close up despite Trump's exemptions warning
 
 ![The Hang Seng Index closed up 2.4 percent at 21,417.40. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800333_1_20250414175541.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -1412,29 +1436,5 @@ US President Donald Trump signed an executive order on Wednesday that closes a t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm)
-
----
-
-# 'Tariffs will change global trading system'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798733_1_20250403083353.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Canadian Prime Minister Mark Carney on Wednesday vowed to "fight" against US President Donald Trump's sweeping tariffs, which he warned will "fundamentally change the global trading system."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm)
 
 ---
