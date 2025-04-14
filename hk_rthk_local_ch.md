@@ -70,6 +70,7 @@
 
 # 明日全民國家安全教育日　夏寶龍將以視頻出席開幕禮發表主旨講話
 
+![夏寶龍將以視頻方式出席「全民國家安全教育日」開幕禮，並發表主旨講話。（國務院港澳辦）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800281_1_20250414141512.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 明日是第十個「全民國家安全教育日」，香港特區維護國家安全委員會明早將於灣仔會展舉辦「全民國家安全教育日」開幕典禮暨主題講座。中央港澳工作辦公室主任、國務院港澳事務辦公室主任夏寶龍將以視頻方式出席開幕禮，並發表主旨講話。
@@ -141,6 +142,8 @@
 
 # 明日「全民國家安全教育日」　學校舉辦活動讓學生認識國家
 
+![學校近期的特別課節教授有關水災及國家安全。（周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800274_1_20250414141826.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![學校會在小息時舉辦有獎問答遊戲。（周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800274_2_20250414141826.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 明日是第十個「全民國家安全教育日」。有學校經常舉辦活動，讓學生認識國家，包括設立升旗隊、舉辦問答比賽等，亦設立「校史室暨國民教育資料館」。

@@ -1,5 +1,6 @@
 # 習近平抵達河內　展開國事訪問越南行程
 
+![習近平乘專機抵達河內國際機場，受到熱烈歡迎。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800287_1_20250414141411.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 中共中央總書記、國家主席習近平抵達河內，開始對越南進行國事訪問。
