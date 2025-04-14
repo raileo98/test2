@@ -1,3 +1,74 @@
+# 高盛首季收入升6%　勝預期
+
+![高盛上季收入升6%至150.6億美元，高於預期。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800349_1_20250414203344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+投資銀行高盛上季盈利45.8億美元，按年升近17%。經調整每股盈利14.12美元，高過市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800349-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800349-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800349-20250414.htm)
+
+---
+
+# 港交所稱旗下碳信用交易市場平台正探索其他潛在產品　以擴生態圈
+
+![周冠英表示，港交所的碳信用交易市場平台Core Climate正在探索其他潛在產品，以擴大市場生態圈。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800345_1_20250414201636.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+港交所首席可持續發展總監周冠英表示，雖然港交所的碳信用交易市場平台Core Climate，提供的產品目前以碳信用為主，但亦正在探索其他潛在產品，以擴大市場生態圈，為市場參與者提供更多選擇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800345-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800345-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800345-20250414.htm)
+
+---
+
+# 蔡若蓮：協助香港高校探索創新辦學模式　推動大灣區內校園合作
+
+  
+
+教育局局長蔡若蓮說，特區政府會繼續積極參與及推動大灣區高等教育合作，協助香港高等院校探索採用更靈活及創新的辦學模式，推動其香港及大灣區內地城市校園的更緊密合作，致力培育國家發展所需的優秀人才。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800350-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800350-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800350-20250414.htm)
+
+---
+
 # 陳美寶：政府與物流業界團結一致應對挑戰　協助業界配合市場轉型
 
   
