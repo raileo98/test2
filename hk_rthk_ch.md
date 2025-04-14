@@ -1,6 +1,6 @@
 # 尹錫悅出席涉嫌內亂罪刑事審判首場公審　反駁檢方指控不符合法理
 
-![尹錫悅乘坐警衛車輛抵達首爾中央地方法院。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800340_1_20250414185240.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![尹錫悅乘坐警衛車輛抵達首爾中央地方法院。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800340_1_20250414185240.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
 南韓前總統尹錫悅親身出席涉嫌發動內亂案的刑事審判首場公審，否認指控。
