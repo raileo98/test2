@@ -1,3 +1,27 @@
+# HK ready to 'make a difference' for global firms
+
+![Chief Executive John Lee says Hong Kong welcomes all global firms to expand here despite trade frictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800284_1_20250414130920.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Chief Executive John Lee on Monday called on global firms to pursue their business expansion in collaboration with the SAR at a time of spiralling global geopolitical and trade tensions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800284-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800284-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800284-20250414.htm)
+
+---
+
 # Cyclist dies after being hit by minibus
 
 ![Police arrest a 74-year-old bus driver for dangerous driving causing death. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800279_1_20250414124452.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1413,29 +1437,5 @@ Chief Executive John Lee said on Tuesday Hong Kong will seize every opportunity 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799389-20250408.htm)
-
----
-
-# HK economist expects Fed to cut rates sooner
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799386_1_20250408113645.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-An economist said on Tuesday he expects the US Federal Reserve to cut interest rates sooner than expected in a bid to rescue the American economy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799386-20250408.htm)
 
 ---
