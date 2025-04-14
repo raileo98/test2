@@ -1,3 +1,26 @@
+# 商會倡本港由「轉口貿易樞紐」轉型為「全球供應鏈服務中心」
+
+  
+
+香港中華出入口商會指出，香港作為國際貿易樞紐，全球貿易格局正深刻變化，本港面對其他地區競爭、地緣政治威脅及貿易中介功能弱化等問題，商會提出本港要由「轉口貿易樞紐」轉型為「全球供應鏈服務中心」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800343-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800343-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800343-20250414.htm)
+
+---
+
 # 尹錫悅出席涉嫌內亂罪刑事審判首場公審　反駁檢方指控不符合法理
 
 ![尹錫悅乘坐警衛車輛抵達首爾中央地方法院。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800340_1_20250414185240.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
