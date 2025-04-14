@@ -1,9 +1,33 @@
+# 美元微跌　美債息回落
+
+![美元指數紐約尾市在99.7附近，跌幅0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800378_1_20250415054846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+美元兌一籃子貨幣微跌，美元指數紐約尾市在99.7附近，跌幅0.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800378-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800378-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800378-20250415.htm)
+
+---
+
 # 哈馬斯：收到新停火提議　將盡快回覆
 
 ![以軍空襲加沙北部傑巴利耶，救援人員從瓦礫中抬出死者遺體。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800377_1_20250415054405.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
   
 
-巴勒斯坦武裝組織哈馬斯發表聲明說，從埃及方面收到新的加沙停火提議，將會進行研究，並將在完成必要的磋商後盡快回覆。
+巴勒斯坦武裝組織哈馬斯發表聲明說，從埃及方面收到新的加沙停火提議，領導層正在研究，並將在完成必要的磋商後盡快回覆。
 
   
 
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm)
-
----
-
-# 劉國勳建議將洪水橋新發展區土地整合　並改劃發展北都大學城
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800309_1_20250414155409.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-去年施政報告提到，政府已在北部都會區預留最少80公頃用地，發展「北都大學教育城」。民建聯立法會議員劉國勳建議將洪水橋新發展區內原本被劃為其他用途的土地，包括位於洪水橋南北面的部分政府、機構或社區用地、工業及物流用地，整合並改劃用作發展北都大學城，令區內發展「大學城」的土地由原本只有約5公頃，增加至24至48公頃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800309-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800309-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800309-20250414.htm)
 
 ---

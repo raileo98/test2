@@ -3,7 +3,7 @@
 ![以軍空襲加沙北部傑巴利耶，救援人員從瓦礫中抬出死者遺體。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800377_1_20250415054405.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
   
 
-巴勒斯坦武裝組織哈馬斯發表聲明說，從埃及方面收到新的加沙停火提議，將會進行研究，並將在完成必要的磋商後盡快回覆。
+巴勒斯坦武裝組織哈馬斯發表聲明說，從埃及方面收到新的加沙停火提議，領導層正在研究，並將在完成必要的磋商後盡快回覆。
 
   
 

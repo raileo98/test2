@@ -1,3 +1,27 @@
+# 美元微跌　美債息回落
+
+![美元指數紐約尾市在99.7附近，跌幅0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800378_1_20250415054846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+美元兌一籃子貨幣微跌，美元指數紐約尾市在99.7附近，跌幅0.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800378-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800378-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800378-20250415.htm)
+
+---
+
 # 英法德股市高收逾2%
 
 ![德國DAX指數收市報20954點，升580點，升幅約2.9%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800374_1_20250415051616.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800231-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800231-20250414.htm)
-
----
-
-# 特朗普稱對等關稅沒「豁免 」　只被轉移至另一類別關稅
-
-![特朗普說，將對半導體行業進行國家安全貿易調查。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800224_1_20250414083324.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國政府日前宣布，將智能手機、電腦、晶片等產品，排除在所謂的對等關稅之外，有關產品主要從中國進口。總統特朗普星期日強調，相關措施將是短暫的，又承諾將對半導體行業進行國家安全貿易調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800224-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800224-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800224-20250414.htm)
 
 ---
