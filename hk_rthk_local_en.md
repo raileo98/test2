@@ -1,3 +1,27 @@
+# Xia to speak on National Security Education Day
+
+![Xia Baolong will attend the opening ceremony of the National Security Education Day and deliver a keynote speech via video link. Photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800299_2_20250414152154.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Beijing's top official overseeing Hong Kong and Macau affairs, Xia Baolong, is scheduled to deliver a keynote speech via video link at the 10th National Security Education Day on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800299-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800299-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800299-20250414.htm)
+
+---
+
 # Don't judge healthcare reform by fee hikes, Lo says
 
 ![Health chief Lo Chung-mau insisted the reform is not meant to generate extra revenue but intended to focus resources on helping those who most require medical attention. Photo: Legco](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800289_1_20250414133802.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1437,5 @@ A transport worker convicted of rioting and wounding with intent in Yuen Long in
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799406-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799406-20250408.htm)
-
----
-
-# YouTuber's flash visit 'shows HK is fun'
-
-![Rosanna Law says anyone can have fun in Hong Kong as long as they follow the rules. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799398_1_20250408122906.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-YouTube streamer IShowSpeed's flash visit to the city last week shows that Hong Kong is safe, fun and open, according to Secretary for Culture, Sports and Tourism Rosanna Law.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799398-20250408.htm)
 
 ---

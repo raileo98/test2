@@ -1,3 +1,27 @@
+# President Xi arrives in Vietnam for state visit
+
+![The president's plane arrives at Noi Bai International Airport in Hanoi. Photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800302_1_20250414152705.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+President Xi Jinping arrived in Hanoi on Monday to start a state visit to Vietnam.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800302-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800302-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800302-20250414.htm)
+
+---
+
 # China exports up 12.4pc, beating forecasts
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800270_1_20250414121620.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1435,5 @@ China on Sunday sent a new communication test satellite into orbit from the Wenc
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm)
-
----
-
-# Chinese rescue team arrives in Myanmar
-
-![Beijing has dispatched a total of 82 rescuers to Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798044_1_20250329201348.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-A Chinese rescue team arrived at Yangon International Airport in Myanmar on Saturday to assist in disaster relief efforts.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm)
 
 ---

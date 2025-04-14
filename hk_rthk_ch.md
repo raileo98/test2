@@ -1,3 +1,73 @@
+# 全運會沙灘排球測試賽本周末維園舉行　港燈與多個部門舉行演練
+
+  
+
+第15屆全運會沙灘排球項目測試賽將在本月18至20日在維園舉行，港燈聯同全運會香港賽區統籌辦公室、康文署、機電署等政府部門，上星期三舉行跨部門緊急復電演練，模擬電力供應發生故障以及緊急復修。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800307-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800307-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800307-20250414.htm)
+
+---
+
+# 美元兌一籃子貨幣走弱
+
+![美元指數較早時報99.235，跌近0.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800303_1_20250414150732.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+美元兌一籃子貨幣繼續走弱，美元指數一度觸及99.209，較早時報99.235，跌幅近0.7%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800303-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800303-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800303-20250414.htm)
+
+---
+
+# 行會成員明早出席全民國家安全教育日開幕禮　行會不舉行會議
+
+  
+
+行政會議非官守議員將應邀出席明早舉行的「全民國家安全教育日」開幕典禮暨主題講座，行政會議明日不舉行會議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800306-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800306-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800306-20250414.htm)
+
+---
+
 # 滬深股市升幅有限　滬股全日升近1%
 
 ![內地股市收市升幅有限。上證指數收市報3262點，升24點，升幅0.76%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800305_1_20250414151116.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -383,7 +453,7 @@
 
 # 有議員關注優化醫療費用減免機制複雜　盧寵茂：會盡量解說
 
-![盧寵茂表示，政府和醫管局會盡量解說，但總體改革方向是堅定的。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800280_1_20250414133844.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800280_1_20250414133844.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 醫務衞生局局長盧寵茂表示，當局上月已公布公共醫療收費改革方案，當中包括加強醫療保障措施，優化醫療費用減免機制，放寬申請資格，令以往可能不獲減免的基層市民在新機制下，有機會獲部分或全數減免。另外亦會引入每年1萬元住院及門診費用的上限，以及擴大自費藥械安全網及放寬申請資格。

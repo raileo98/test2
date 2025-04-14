@@ -1,3 +1,27 @@
+# 美元兌一籃子貨幣走弱
+
+![美元指數較早時報99.235，跌近0.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800303_1_20250414150732.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+美元兌一籃子貨幣繼續走弱，美元指數一度觸及99.209，較早時報99.235，跌幅近0.7%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800303-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800303-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800303-20250414.htm)
+
+---
+
 # 滬深股市升幅有限　滬股全日升近1%
 
 ![內地股市收市升幅有限。上證指數收市報3262點，升24點，升幅0.76%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800305_1_20250414151116.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800034-20250412.htm)
-
----
-
-# 金價升約2%　資金流入黃金避險
-
-![現貨金較早報每盎司3235.89美元，上升近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800031_1_20250412065952.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-金價突破每盎司3200美元，本周升逾6%，美元下跌，加上貿易戰陰霾引發對經濟衰退的擔憂，資金流入黃金避險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800031-20250412.htm)
 
 ---

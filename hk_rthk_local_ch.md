@@ -1,3 +1,49 @@
+# 全運會沙灘排球測試賽本周末維園舉行　港燈與多個部門舉行演練
+
+  
+
+第15屆全運會沙灘排球項目測試賽將在本月18至20日在維園舉行，港燈聯同全運會香港賽區統籌辦公室、康文署、機電署等政府部門，上星期三舉行跨部門緊急復電演練，模擬電力供應發生故障以及緊急復修。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800307-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800307-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800307-20250414.htm)
+
+---
+
+# 行會成員明早出席全民國家安全教育日開幕禮　行會不舉行會議
+
+  
+
+行政會議非官守議員將應邀出席明早舉行的「全民國家安全教育日」開幕典禮暨主題講座，行政會議明日不舉行會議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800306-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800306-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800306-20250414.htm)
+
+---
+
 # 有人工智能初創公司稱世界互聯網大會亞太峰會有助推廣香港品牌
 
   
@@ -143,7 +189,7 @@
 
 # 有議員關注優化醫療費用減免機制複雜　盧寵茂：會盡量解說
 
-![盧寵茂表示，政府和醫管局會盡量解說，但總體改革方向是堅定的。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800280_1_20250414133844.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800280_1_20250414133844.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 醫務衞生局局長盧寵茂表示，當局上月已公布公共醫療收費改革方案，當中包括加強醫療保障措施，優化醫療費用減免機制，放寬申請資格，令以往可能不獲減免的基層市民在新機制下，有機會獲部分或全數減免。另外亦會引入每年1萬元住院及門診費用的上限，以及擴大自費藥械安全網及放寬申請資格。
@@ -1391,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800139-20250413.htm)
-
----
-
-# 陳茂波：香港在動盪時期會保持開放　願意建立新聯繫和新夥伴關係
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800137_1_20250413130954.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-財政司司長陳茂波表示，因貿易戰及科技碎片化的關係，全球格局正出現變化，正重塑產業鏈、供應鏈和夥伴關係等，很多企業在新常態下要尋求新合作夥伴，探索新市場，並要採用更靈活的商業模式。他說，香港在動盪時期會保持開放，歡迎世界各地的企業和人才，本港願意建立新聯繫和新夥伴關係，強調本港會確保自由港地位，保持自由貿易政策不變，會堅定保持資金、貨物、資訊和人才的自由流動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800137-20250413.htm)
-
----
-
-# 陳國基：消防處在維護國家安全方面擔當舉足輕重角色
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800136_2_20250413125046.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-消防處響應「全民國家安全教育日」，在將軍澳消防及救護學院舉行開放日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800136-20250413.htm)
 
 ---
