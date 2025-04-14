@@ -1,3 +1,27 @@
+# 習近平晤范明政　強調要共同反對霸權主義、單邊主義
+
+![習近平與越南總理范明政會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800365_1_20250415001321.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+在越南國事訪問的國家主席習近平與越南總理范明政會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800365-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800365-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800365-20250415.htm)
+
+---
+
 # 習近平就深化中越命運共同體建設提出六點舉措
 
 ![習近平與越共中央總書記蘇林舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800364_1_20250414234220.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800294-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800294-20250414.htm)
-
----
-
-# 轉數快擬周日凌晨1時至上午11時進行系統提升
-
-![轉數快擬周日凌晨1時至上午11時系統提升，金管局已要求銀行及儲值支付工具營運商預早通知客戶。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800293_1_20250414142332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-香港銀行同業結算公司計劃星期日凌晨1時至上午11時，為轉數快系統進行系統提升，轉數快系統將於上述時段內暫停服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm)
 
 ---
