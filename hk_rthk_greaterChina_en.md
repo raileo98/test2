@@ -1,3 +1,27 @@
+# China, Vietnam ink cooperation deals during Xi's visit
+
+![President Xi Jinping meets Vietnam's National Assembly chairman Tran Thanh Man in Hanoi. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800358_1_20250414215829.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+China and Vietnam on Monday signed dozens of cooperation agreements, strengthening ties between the two countries after President Xi Jinping warned that protectionism leads nowhere and that a trade war would have no winners.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800358-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800358-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800358-20250414.htm)
+
+---
+
 # China 'fully backs HK ramping up digital transition'
 
 ![Zheng Yanxiong, the director of the central government's liaison office in Hong Kong, said that the SAR plays a critical role in driving the internet industry's development in the region. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800295_2_20250414142819.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ Rescuers from China have found six survivors so far in earthquake-rattled Myanma
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm)
-
----
-
-# China discovers major oilfield in South China Sea
-
-![CNOOC says the new oilfield is around 170 km off the coast of Shenzhen. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798194_1_20250331091600.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-The China National Offshore Oil Corporation (CNOOC) has discovered an oilfield in the South China Sea with proven reserves exceeding 100 million tonnes, Xinhua news agency reported on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798194-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798194-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798194-20250331.htm)
 
 ---
