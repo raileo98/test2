@@ -1,3 +1,26 @@
+# 孫玉菡：有信心油尖旺區會有社區客廳　目前有待落實細節
+
+  
+
+勞工及福利局局長孫玉菡表示，油尖旺區劏房戶略多於深水埗，但目前未有社區客廳，主要因為以往物色合適地方有難度，不過有些有心人主動聯絡政府，他要求對方盡量在油尖旺區提供地方，有信心油尖旺區將會有社區客廳，甚至不只一間，目前有待落實細節，相信會有突破，談妥後會交代。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800288-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800288-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800288-20250414.htm)
+
+---
+
 # 港股下午初段維持逾2%升幅
 
 ![恒生指數較早時報21394點，升479點，升幅2.29%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800282_1_20250414130757.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
@@ -47,6 +70,7 @@
 
 # 有議員關注優化醫療費用減免機制複雜　盧寵茂：會盡量解說
 
+![盧寵茂表示，政府和醫管局會盡量解說，但總體改革方向是堅定的。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800280_1_20250414133844.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 醫務衞生局局長盧寵茂表示，當局上月已公布公共醫療收費改革方案，當中包括加強醫療保障措施，優化醫療費用減免機制，放寬申請資格，令以往可能不獲減免的基層市民在新機制下，有機會獲部分或全數減免。另外亦會引入每年1萬元住院及門診費用的上限，以及擴大自費藥械安全網及放寬申請資格。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800129-20250413.htm)
-
----
-
-# 許正宇：本港金融系統久經歷練　有信心香港可立於不敗之地
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800127_2_20250413104711.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-財經事務及庫務局局長許正宇表示，美國實施關稅政策，對全球經濟百害而無一利，但香港股票市場穩健，交易結算有序，反映即使宏觀環境複雜，最重要是「人亂我不亂」。他認為，本港金融系統久經歷練，監管系統能夠抵禦和察覺風險，整體市場運作有序，現時需持續鞏固本港市場的安全、穩定和可預見性，有信心香港可立於不敗之地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800127-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800127-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800127-20250413.htm)
 
 ---
