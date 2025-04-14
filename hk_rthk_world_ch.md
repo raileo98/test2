@@ -1,3 +1,27 @@
+# 習近平抵越南國事訪問　冀與越南領袖就兩黨兩國關係問題交換意見
+
+![習近平乘專機抵達河內國際機場。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800332_1_20250414175126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+中共中央總書記、國家主席習近平展開東南亞三國的國事訪問行程，中午左右抵達首站越南首都河內，越南國家主席梁強等黨政領導人到機場迎接。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm)
+
+---
+
 # 林劍：美方一再渲染中國威脅論　以此為藉口控制拉美國家不會得逞
 
 ![林劍表示，中方與拉美和加勒比國家交往，始終秉持平等相待、互利共贏原則。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800317_1_20250414162604.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800065-20250412.htm)
-
----
-
-# 金磚成員呼籲共同反對單邊主義和貿易保護主義
-
-![中方在會議上指出，美方的對等關稅政策，對世界經濟造成持續衝擊。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800063_1_20250412130953.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-2025年金磚國家經貿聯絡組第二次會議周四至周五以視像形式舉行，金磚成員就美國對等關稅政策深入交換意見，對相關措施引發的貿易緊張局勢表示嚴正關切，並呼籲共同反對單邊主義和貿易保護主義。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800063-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800063-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800063-20250412.htm)
 
 ---

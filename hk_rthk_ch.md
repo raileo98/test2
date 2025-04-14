@@ -1,3 +1,27 @@
+# 習近平抵越南國事訪問　冀與越南領袖就兩黨兩國關係問題交換意見
+
+![習近平乘專機抵達河內國際機場。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800332_1_20250414175126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+中共中央總書記、國家主席習近平展開東南亞三國的國事訪問行程，中午左右抵達首站越南首都河內，越南國家主席梁強等黨政領導人到機場迎接。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm)
+
+---
+
 # 雲南昆明一間商店發生火警8人死亡
 
 ![雲南昆明一間商店發生火警8人死亡](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800330_1_20250414174246.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -117,8 +141,9 @@
 
 ---
 
-# 屯門區下午４時空氣質素健康指數達10+　健康風險達嚴重水平
+# 屯門區下午空氣質素健康指數達10+　健康風險達嚴重水平
 
+![環保署提醒當健康風險級別處於「嚴重」水平時，兒童及長者和患有心臟病或呼吸系統疾病的人士，應避免戶外體力消耗和在戶外逗留。（環保署網頁截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800327_1_20250414175419.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 受乾燥的大陸氣流及沙塵天氣影響，本港空氣質素欠佳。根據環保署公布的空氣質素健康指數，在下午4時，屯門區空氣質素健康指數達到10+，健康風險級別達「嚴重」水平，其餘各區的指數亦達9或10，健康風險級別為「甚高」。
