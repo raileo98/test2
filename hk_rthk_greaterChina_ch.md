@@ -1,3 +1,23 @@
+# 夏寶龍批評美國加徵關稅蠻橫霸道　非要港關稅而是要香港的命
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800410-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800410-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800410-20250415.htm)
+
+---
+
 # 習近平：中越雙方要增強戰略定力　共同反對單邊霸凌行徑
 
 ![習近平同越共中央總書記蘇林舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800373_1_20250415041846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1413,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800084-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800084-20250412.htm)
-
----
-
-# 內地多地極端天氣　中央氣象台發布大風、強對流、沙塵暴等預警
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800082_1_20250412181355.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-內地多處出現惡劣天氣，較強冷空氣繼續影響中國中東部地區，中央氣象台繼續發布大風橙色預警、強對流天氣黃色預警、暴雪黃色預警和沙塵暴藍色預警，其中北京已進入風力最強時段，多個景區關閉，陸空交通受阻，全國有至少3200班航班取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800082-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800082-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800082-20250412.htm)
 
 ---

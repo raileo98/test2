@@ -1,3 +1,75 @@
+# Bournemouth beat Fulham to boost European hopes
+
+![Bournemouth secured a 1-0 victory against Fulham, marking their first win in seven league matches. Photo: Action Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800394_1_20250415082114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+Antoine Semenyo struck in the first minute as Bournemouth boosted their hopes of qualifying for continental competition with a 1-0 Premier League victory over fellow European hopefuls Fulham.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800394-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800394-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800394-20250415.htm)
+
+---
+
+# Dallas scoop Bueckers with No1 pick in WNBA draft
+
+![Paige Bueckers poses with WNBA commissioner Cathy Engelbert after being selected with the number one overall pick to the Dallas Wings. Photo: Imagn Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800393_1_20250415081721.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Paige Bueckers was chosen by the Dallas Wings with the number one pick in the WNBA draft on Monday, crowning a successful season that saw her lead the University of Connecticut to the US college championship this month.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800393-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800393-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800393-20250415.htm)
+
+---
+
+# China accuses NSA of cyberattacks on Harbin Games
+
+![Performers take part in the closing ceremony of the Harbin 2025 Asian Winter Games in Harbin. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800402_1_20250415092131.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+  
+
+Police in Harbin, in northeast Heilongjiang province, said on Tuesday they were pursuing three operatives affiliated with the US National Security Agency (NSA) over suspected cyberattacks against China.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800402-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800402-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800402-20250415.htm)
+
+---
+
 # Blue Origin blasts all-female crew into space
 
 ![Pop star Katy Perry emerges from the capsule after blasting off into space on a Blue Origin rocket as part of the all-female crew. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800397_1_20250415085946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -432,7 +504,7 @@ Beijing's top official overseeing Hong Kong and Macau affairs, Xia Baolong, is s
 
 # Don't judge healthcare reform by fee hikes, Lo says
 
-![Health chief Lo Chung-mau insisted the reform is not meant to generate extra revenue but intended to focus resources on helping those who most require medical attention. Photo: Legco](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800289_1_20250414133802.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800289_1_20250414133802.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 The health secretary says it is unreasonable to judge upcoming changes in public hospital charges simply by focusing on fee increases for certain services, stressing that an extra 1.1 million people will be eligible for partial or full fee waivers under the proposal.
@@ -1365,77 +1437,5 @@ At least 69 people were killed this week in unusually intense thunderstorms acro
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800092-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800092-20250412.htm)
-
----
-
-# Travel disruption as gales sweep northern China
-
-![Scooters and bicycles were knocked over by the wind in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800091_1_20250412192121.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-A sweeping cold front has brought fierce winds across northern China, prompting widespread weather warnings, transport suspensions and emergency response measures.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800091-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800091-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800091-20250412.htm)
-
----
-
-# China commits to safeguarding multilateral trade
-
-![Wang Wentao said the fabrication of 'reciprocal tariffs' out of thin air by the United States is a typical practice of unilateral bullying. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800090_1_20250412190951.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-China is committed to safeguarding an open, inclusive, transparent and non-discriminatory multilateral trading system, Commerce Minister Wang Wentao has told Director-General of the World Trade Organization (WTO) Ngozi Okonjo-Iweala.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800090-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800090-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800090-20250412.htm)
-
----
-
-# HK to boost scrutiny of talent pass applications
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800073_1_20250412160554.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Director of Immigration Benson Kwok says more officers will be deployed to verify documents submitted as part of Top Talent Pass Scheme applications, following reports of false information being provided on occasions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800073-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800073-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800073-20250412.htm)
 
 ---

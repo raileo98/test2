@@ -1,3 +1,74 @@
+# 伊朗稱美國必須切實有效地解除對伊朗制裁
+
+  
+
+伊朗表示，美國必須切實有效地解除對伊朗的制裁，又形容美國一方面對伊朗施壓，一方面尋求同伊朗談判，行為矛盾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800411-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800411-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800411-20250415.htm)
+
+---
+
+# 《環看天下》：習近平訪東南亞三國　分析：中國力量區內不可或缺
+
+![中共中央總書記、國家主席習近平在越共中央駐地同越共中央總書記蘇林舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800406_1_20250415094222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+中共中央總書記、國家主席習近平本星期展開對越南、馬來西亞、柬埔寨的國事訪問，是他今年首次出訪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm)
+
+---
+
+# 聯合國報告：美國貿易政策或對最脆弱經濟體造成重創
+
+![報告指出，「對等關稅」措施可能對發展中經濟體和最不發達經濟體造成嚴重打擊。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800404_1_20250415100848.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+聯合國貿易和發展會議發表報告，表示美國近期推出的貿易政策正在改變全球貿易格局，並可能對最脆弱經濟體造成重創。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm)
+
+---
+
 # 古特雷斯對以色列部隊襲擊加沙一間醫院表示深感震驚
 
 ![古特雷斯重申，根據國際人道法，傷患和病人、醫務人員及包括醫院在內的醫療設施必須受到尊重和保護。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800391_1_20250415081705.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1364,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800128-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800128-20250413.htm)
-
----
-
-# 剛果民主共和國譴責反政府武裝M23運動襲擊平民造成至少52死
-
-![聲明譴責反政府武裝M23運動，在戈馬市對平民發動襲擊。圖為M23運動成員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800125_1_20250413093346.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-剛果民主共和國發表聲明，強烈譴責反政府武裝M23運動，在東部北基伍省首府戈馬市對平民發動襲擊，造成至少52人死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800125-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800125-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800125-20250413.htm)
-
----
-
-# 美國將手機等產品排除對等關稅外　新華社文章強調貿易戰無贏家
-
-![分析指蘋果（圖）、英偉達及微軟等科技巨頭可以暫時鬆一口氣。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800123_1_20250413073234.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國政府將智能手機、電腦、晶片等產品，排除在對等關稅之外，措施適用於本月5日以後進入美國的電子產品，已經支付的對等關稅可以尋求退款。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800123-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800123-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800123-20250413.htm)
-
----
-
-# 以色列指以軍攻勢很快擴至加沙大部分地區　形容結束戰爭最後時刻
-
-![以軍指已於加沙南部完成將拉法（圖）與加沙其他地區隔開的「莫拉格走廊」建設，完全包圍拉法地區。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800121_1_20250413073028.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-以色列國防部長卡茨發表聲明說，以軍攻勢將很快擴展到加沙地帶大部分地區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800121-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800121-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800121-20250413.htm)
 
 ---

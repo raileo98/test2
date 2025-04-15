@@ -144,7 +144,7 @@ Beijing's top official overseeing Hong Kong and Macau affairs, Xia Baolong, is s
 
 # Don't judge healthcare reform by fee hikes, Lo says
 
-![Health chief Lo Chung-mau insisted the reform is not meant to generate extra revenue but intended to focus resources on helping those who most require medical attention. Photo: Legco](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800289_1_20250414133802.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800289_1_20250414133802.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 The health secretary says it is unreasonable to judge upcoming changes in public hospital charges simply by focusing on fee increases for certain services, stressing that an extra 1.1 million people will be eligible for partial or full fee waivers under the proposal.

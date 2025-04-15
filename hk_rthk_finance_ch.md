@@ -1,3 +1,51 @@
+# 內地股市初段向下
+
+![上證綜合指數較早時報3250點，跌12點，跌幅0.39%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800408_1_20250415094227.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+  
+
+滬深股市在開市初段向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800408-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800408-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800408-20250415.htm)
+
+---
+
+# 人行開展1645億元人民幣逆回購
+
+![人行公開市場開展1645億元人民幣7日期逆回購，單日淨回籠29億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800405_1_20250415093727.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+人民銀行公開市場開展1645億元人民幣7日期逆回購，利率維持在1.5厘。對沖逆回購到期量1674億元後，公開市場單日淨回籠29億元；連同今日到期的1000億元中期借貸便利（MLF），單日淨回籠1029億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800405-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800405-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800405-20250415.htm)
+
+---
+
 # 恒指競價時段升186點
 
 ![恒生指數競價時段報21603點，升186點，升幅0.87%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800403_1_20250415092415.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm)
-
----
-
-# 內地股市半日升近1%
-
-![上證綜合指數報3266點，升27點，升幅0.86%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800263_1_20250414114038.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-滬深股市半日升近1%，各板塊普遍上升，以互聯網電商、海南相關股份升幅較大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800263-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800263-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800263-20250414.htm)
-
----
-
-# 恒指半日升504點　科指升近3%
-
-![恒生指數中午收市報21419點，升504點，升幅2.4%，半日主板成交額近1543億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800269_1_20250414121147.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-港股連升5個交易日，恒生指數高見21517點，升逾600點，其後升幅曾收窄至逾300點，中午收市報21419點，升504點，升幅2.4%，半日主板成交額近1543億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800269-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800269-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800269-20250414.htm)
 
 ---

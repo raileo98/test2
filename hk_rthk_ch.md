@@ -1,3 +1,250 @@
+# 夏寶龍：對等關稅撼動不了中央政府　向美國求饒換來和平極其幼稚
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800414-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800414-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800414-20250415.htm)
+
+---
+
+# 李家超稱不能忘記黑暴慘痛　國安法5周年香港在世界舞台展光芒
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800413-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800413-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800413-20250415.htm)
+
+---
+
+# 伊朗稱美國必須切實有效地解除對伊朗制裁
+
+  
+
+伊朗表示，美國必須切實有效地解除對伊朗的制裁，又形容美國一方面對伊朗施壓，一方面尋求同伊朗談判，行為矛盾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800411-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800411-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800411-20250415.htm)
+
+---
+
+# 夏寶龍批評美國加徵關稅蠻橫霸道　非要港關稅而是要香港的命
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800410-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800410-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800410-20250415.htm)
+
+---
+
+# 夏寶龍：必須牢記修例風波慘痛教訓
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800409-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800409-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800409-20250415.htm)
+
+---
+
+# 內地股市初段向下
+
+![上證綜合指數較早時報3250點，跌12點，跌幅0.39%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800408_1_20250415094227.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+  
+
+滬深股市在開市初段向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800408-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800408-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800408-20250415.htm)
+
+---
+
+# 有官立小學於全民國家安全教育日舉行升旗禮　有學生升旗手感自豪
+
+![香港升旗隊總會在銅鑼灣一間官立小學舉行學校升旗禮。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800407_1_20250415094408.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+今日是全民國家安全教育日，香港升旗隊總會在銅鑼灣一間官立小學舉行學校升旗禮。民政及青年事務局、教育局、警務處等部門派代表出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800407-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800407-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800407-20250415.htm)
+
+---
+
+# 《環看天下》：習近平訪東南亞三國　分析：中國力量區內不可或缺
+
+![中共中央總書記、國家主席習近平在越共中央駐地同越共中央總書記蘇林舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800406_1_20250415094222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+中共中央總書記、國家主席習近平本星期展開對越南、馬來西亞、柬埔寨的國事訪問，是他今年首次出訪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm)
+
+---
+
+# 人行開展1645億元人民幣逆回購
+
+![人行公開市場開展1645億元人民幣7日期逆回購，單日淨回籠29億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800405_1_20250415093727.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+人民銀行公開市場開展1645億元人民幣7日期逆回購，利率維持在1.5厘。對沖逆回購到期量1674億元後，公開市場單日淨回籠29億元；連同今日到期的1000億元中期借貸便利（MLF），單日淨回籠1029億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800405-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800405-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800405-20250415.htm)
+
+---
+
+# 聯合國報告：美國貿易政策或對最脆弱經濟體造成重創
+
+![報告指出，「對等關稅」措施可能對發展中經濟體和最不發達經濟體造成嚴重打擊。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800404_1_20250415100848.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+聯合國貿易和發展會議發表報告，表示美國近期推出的貿易政策正在改變全球貿易格局，並可能對最脆弱經濟體造成重創。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm)
+
+---
+
+# 恒指競價時段升186點
+
+![恒生指數競價時段報21603點，升186點，升幅0.87%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800403_1_20250415092415.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
+  
+
+港股在競價時段上升，恒生指數報21603點，升186點，升幅0.87%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800403-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800403-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800403-20250415.htm)
+
+---
+
 # 台股初段升近1%
 
 ![台灣加權指數較早時報19678點，升164點，升幅0.85%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800399_1_20250415090532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -48,6 +295,7 @@
 
 # 李家超：要做好四點工作　應對國家安全挑戰
 
+![李家超以「持續築牢國家安全屏障  夯實高質量發展的安全根基」為題在多份報章撰文。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800400_1_20250415094240.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 今天是第十個全民國家安全教育日，行政長官李家超在多份報章撰文指出，《維護國家安全條例》與香港國安法已築牢了維護國家的法律屏障，但香港仍面對挑戰，因為地緣政治局勢日趨複雜，環球經濟增長放緩，外部勢力干預滲透，竄逃海外反中亂港分子肆意抹黑攻擊，本土恐怖主義和孤狼式襲擊等威脅不容忽視。
@@ -1173,269 +1421,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800341-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800341-20250414.htm)
-
----
-
-# 中方冀英國政府公平公正對待在英投資經營中資企業
-
-![林劍說，希望英國政府公平公正對待在英投資經營的中資企業，保護其正當合法權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800339_1_20250414184838.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-在北京，外交部回應英國政府表示，將從中國敬業集團手中接管英國鋼鐵公司，發言人林劍說，據他了解，敬業集團是一家中國的民營企業，基於市場化的原則，同英方開展合作。對於目前英鋼經營遇到的困難，雙方應本著互利的原則商談解決。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm)
-
----
-
-# 4人疑經緊急出口非法進入Coldplay演唱會場館　3人被捕
-
-![3人涉嫌「串謀詐騙」被捕，案件由東九龍總區科技及財富罪案組第二隊跟進調查。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800338_1_20250414214937.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-英國著名樂隊Coldplay日前完成在啟德體育園主場館的四場演出，在最後一場的演唱會，4名男女懷疑經由場館的一個緊急出口非法進入場內，警方拘捕涉案的其中3名男子，他們獲准保釋候查，下月向警方報到。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800338-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800338-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800338-20250414.htm)
-
----
-
-# 王勇︰中央支持香港深度融入全球數字化發展的時代洪流
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800337_1_20250414183550.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-世界互聯網大會亞太峰會，首次在本港舉行。全國政協副主席王勇在開幕式致辭時說，開放合作是歷史的潮流，經濟全球化的趨勢絕不會被逆轉，要堅持真正的多邊主義。他又指，中央支持香港，深度融入全球數字化發展的時代洪流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800337-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800337-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800337-20250414.htm)
-
----
-
-# 渠務署稱有信心處理水浸問題
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800331_1_20250414182622.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-渠務署說，天文台預測今年全港總降雨量介乎2100至2700毫米，署方說，已提升處理抵禦極端天氣能力，有信心處理到水浸問題，又指現時全港水浸黑點餘下四個，其中兩個已經做了工程或者正進行工程，有信心水浸風險會消除。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800331-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800331-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800331-20250414.htm)
-
----
-
-# 多區空氣質素健康指數達10+　健康風險級別為嚴重
-
-![環保署一般監測站錄得健康風險級別為甚高至嚴重。（環保署網頁截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800334_1_20250414180927.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-受乾燥的大陸氣流及沙塵天氣影響，本港空氣質素傍晚欠佳。截至下午5時，屯門、大埔及北區的一般監測站、銅鑼灣的路邊監測站，空氣質素健康指數為10+，代表健康風險為嚴重。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800334-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800334-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800334-20250414.htm)
-
----
-
-# 習近平抵越南國事訪問　冀與越南領袖就兩黨兩國關係問題交換意見
-
-![習近平乘專機抵達河內國際機場。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800332_1_20250414175126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-中共中央總書記、國家主席習近平展開東南亞三國的國事訪問行程，中午左右抵達首站越南首都河內，越南國家主席梁強等黨政領導人到機場迎接。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm)
-
----
-
-# 雲南昆明一間商店發生火警8人死亡
-
-![雲南昆明一間商店發生火警8人死亡](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800330_1_20250414174246.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-雲南昆明一間商店發生火警，造成8人死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800330-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800330-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800330-20250414.htm)
-
----
-
-# 金管局：3月外匯基金境外資產減少240億元
-
-![本港3月外匯基金境外資產減少240億元，降至34159億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800322_1_20250414165628.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-金管局公布，3月外匯基金境外資產減少240億元，降至34159億元；貨幣基礎19771億元，包括負債證明書、政府發行的流通紙幣及硬幣、銀行體系結餘，以及已發行外匯基金票據及債券。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800322-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800322-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800322-20250414.htm)
-
----
-
-# 外電推算3月央行口徑外匯佔款減少逾660億元人民幣
-
-![外電推算3月央行口徑外匯佔款減少近661.6億元人民幣，連續多月減少。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800321_1_20250414165127.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
-  
-
-外電根據人民銀行數據計算，3月底央行口徑外匯佔款餘額21.8萬億元人民幣，據此計算當月央行口徑外匯佔款減少近661.6億元人民幣，連續多月減少。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800321-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800321-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800321-20250414.htm)
-
----
-
-# 世界旅遊城市聯合會香山旅遊峰會首次在香港舉辦
-
-![峰會吸引全球40多個國家及地區超過400名代表來港參與，參加人數破歷年紀錄。（世界旅遊城市聯合會網頁截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800329_1_20250414180149.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-世界旅遊城市聯合會香山旅遊峰會即日起至星期四首次在香港舉辦，吸引全球40多個國家及地區超過400名代表來港參與，參加人數破歷年紀錄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800329-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800329-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800329-20250414.htm)
-
----
-
-# 在岸人民幣創近兩周新高　升逾220點子
-
-![在岸人民幣兌美元收報7.3021兌1美元，升224點子。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800326_1_20250414171457.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
-  
-
-美元指數持續低迷，在岸人民幣創近兩周新高，兌美元收報7.3021兌1美元，升224點子，交投活躍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800326-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800326-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800326-20250414.htm)
 
 ---

@@ -1,5 +1,110 @@
+# 夏寶龍：對等關稅撼動不了中央政府　向美國求饒換來和平極其幼稚
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800414-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800414-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800414-20250415.htm)
+
+---
+
+# 李家超稱不能忘記黑暴慘痛　國安法5周年香港在世界舞台展光芒
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800413-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800413-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800413-20250415.htm)
+
+---
+
+# 夏寶龍批評美國加徵關稅蠻橫霸道　非要港關稅而是要香港的命
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800410-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800410-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800410-20250415.htm)
+
+---
+
+# 夏寶龍：必須牢記修例風波慘痛教訓
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800409-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800409-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800409-20250415.htm)
+
+---
+
+# 有官立小學於全民國家安全教育日舉行升旗禮　有學生升旗手感自豪
+
+![香港升旗隊總會在銅鑼灣一間官立小學舉行學校升旗禮。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800407_1_20250415094408.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+今日是全民國家安全教育日，香港升旗隊總會在銅鑼灣一間官立小學舉行學校升旗禮。民政及青年事務局、教育局、警務處等部門派代表出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800407-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800407-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800407-20250415.htm)
+
+---
+
 # 李家超：要做好四點工作　應對國家安全挑戰
 
+![李家超以「持續築牢國家安全屏障  夯實高質量發展的安全根基」為題在多份報章撰文。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800400_1_20250415094240.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 今天是第十個全民國家安全教育日，行政長官李家超在多份報章撰文指出，《維護國家安全條例》與香港國安法已築牢了維護國家的法律屏障，但香港仍面對挑戰，因為地緣政治局勢日趨複雜，環球經濟增長放緩，外部勢力干預滲透，竄逃海外反中亂港分子肆意抹黑攻擊，本土恐怖主義和孤狼式襲擊等威脅不容忽視。
@@ -1319,125 +1424,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800195-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800195-20250413.htm)
-
----
-
-# 劉光源：香港科技創新之光正加速綻放
-
-![劉光源說，中國始終以人類命運共同體理念引領國際科技合作，選擇中國就是選擇未來。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800193_1_20250413223629.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-第二屆香港世界青年科學大會開幕式在會展舉行。中聯辦副主任劉光源致辭指，去年國家科技創新大步前行，為全球科技進步、世界經濟發展注入了強勁動力。他又說，中國始終以人類命運共同體理念引領國際科技合作。選擇中國就是選擇未來，投資中國就是投資明天，與中國同行就是與機遇同行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800193-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800193-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800193-20250413.htm)
-
----
-
-# 天文台料周中沙塵天氣情況會逐漸緩解
-
-![天文台說，華中至華南一帶的沙塵天氣報告可以觀測到沙塵天氣南下。（天文台網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800191_1_20250413213122.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-受一股東北季候風相關的沙塵氣流影響，本港空氣質素欠佳。天文台表示，是次東北季候風的強度在4月較為罕見，除了為中國多個城市帶來大風天氣外，亦將北方的沙塵往南輸送。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800191-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800191-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800191-20250413.htm)
-
----
-
-# 世界互聯網大會亞太峰會明天開幕　李家超：展示創科領域最新發展
-
-![李家超說，香港一直是國際自由港以及國家與世界之間的商業橋樑。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800190_1_20250413210317.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-行政長官李家超表示，世界互聯網大會亞太峰會首次在港舉辦，明日將會開幕，雲集約30個國家和地區約1000名商界領袖、政府部級等人員、學者、協會領袖和其他知名人士，共同探討人工智能和數碼科技的發展。他今晚出席歡迎晚宴，歡迎他們蒞臨香港參與峰會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800190-20250413.htm)
-
----
-
-# 海關機場偵破兩宗毒品案件檢獲約1190萬元懷疑毒品
-
-![海關檢獲共約12公斤懷疑氯胺酮及約7公斤懷疑可卡因。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800185_1_20250413194937.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-海關昨日在機場破獲兩宗涉及旅客販運毒品的案件，檢獲共約12公斤懷疑氯胺酮及約7公斤懷疑可卡因，估計市值共約1190萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800185-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800185-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800185-20250413.htm)
-
----
-
-# 12人躋身搶包山決賽　下月角逐「包山王」及「包山后」
-
-![康文署表示，12名健兒成功躋身下月5日晚舉行的「搶包山決賽」。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800181_1_20250413184413.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-康文署表示，12名健兒成功躋身下月5日晚舉行的「搶包山決賽」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800181-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800181-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800181-20250413.htm)
 
 ---

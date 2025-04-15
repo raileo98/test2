@@ -1,3 +1,27 @@
+# China accuses NSA of cyberattacks on Harbin Games
+
+![Performers take part in the closing ceremony of the Harbin 2025 Asian Winter Games in Harbin. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800402_1_20250415092131.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+  
+
+Police in Harbin, in northeast Heilongjiang province, said on Tuesday they were pursuing three operatives affiliated with the US National Security Agency (NSA) over suspected cyberattacks against China.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800402-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800402-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800402-20250415.htm)
+
+---
+
 # China, Vietnam ink cooperation deals during Xi's visit
 
 ![President Xi Jinping meets Vietnam's National Assembly chairman Tran Thanh Man in Hanoi. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800358_1_20250414215829.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ China on Monday reaffirmed its resolute opposition to moves that infringe upon a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm)
-
----
-
-# Chinese rescuers find six quake survivors in Myanmar
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798255_1_20250331151517.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-Rescuers from China have found six survivors so far in earthquake-rattled Myanmar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm)
 
 ---

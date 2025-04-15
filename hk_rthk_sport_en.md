@@ -1,3 +1,51 @@
+# Bournemouth beat Fulham to boost European hopes
+
+![Bournemouth secured a 1-0 victory against Fulham, marking their first win in seven league matches. Photo: Action Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800394_1_20250415082114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+Antoine Semenyo struck in the first minute as Bournemouth boosted their hopes of qualifying for continental competition with a 1-0 Premier League victory over fellow European hopefuls Fulham.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800394-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800394-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800394-20250415.htm)
+
+---
+
+# Dallas scoop Bueckers with No1 pick in WNBA draft
+
+![Paige Bueckers poses with WNBA commissioner Cathy Engelbert after being selected with the number one overall pick to the Dallas Wings. Photo: Imagn Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800393_1_20250415081721.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Paige Bueckers was chosen by the Dallas Wings with the number one pick in the WNBA draft on Monday, crowning a successful season that saw her lead the University of Connecticut to the US college championship this month.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800393-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800393-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800393-20250415.htm)
+
+---
+
 # Amorim says losses hurt worst as crunch match looms
 
 ![Ruben Amorim shouts instructions at Manchester United players during the match against Newcastle. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800244_1_20250414103509.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1389,54 +1437,5 @@ Barcelona will face rivals Real Madrid in the Copa del Rey final after Ferran To
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm)
-
----
-
-# Stuttgart beat Leipzig to reach German Cup final
-
-![Stuttgart's Maximilian Mittelstädt celebrates after their 3-1 win over RB Leipzig. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798718_1_20250403054223.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Stuttgart set up a German Cup final clash with third-division Arminia Bielefeld after a 3-1 win over RB Leipzig.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798718-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798718-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798718-20250403.htm)
-
----
-
-# Liverpool beat Everton as title looms; City cruise
-
-![Diogo Jota scored the only goal of the match in Liverpool's win over Everton. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798717_1_20250403053524.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-![Jack Grealish scored his first league goal since December 2023 in the victory for City. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798717_2_20250403053524.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Liverpool moved closer to the Premier League title with a 1-0 win in the Merseyside derby against Everton, while Manchester City beat Leicester 2-0 to bolster their bid to reach the Champions League.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798717-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798717-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798717-20250403.htm)
 
 ---
