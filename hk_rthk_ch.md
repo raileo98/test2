@@ -1,4 +1,4 @@
-# 天文台上午錄得最高氣溫31.3度　今年以來最高紀錄
+# 天文台上午錄得最高氣溫31.1度　今年以來最高紀錄
 
   
 
@@ -287,7 +287,7 @@
 
 # 李家超稱不能忘記黑暴慘痛　國安法5周年香港在世界舞台展光芒
 
-![李家超稱，不能忘記黑暴慘痛。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800413_1_20250415104027.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800413_1_20250415104027.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 行政長官李家超表示，香港國安法公布實施5年後的今天，在維護國家安全條例立法生效一年後的今天，香港在世界舞台上展現光芒。不過，世界百年未有之大變局將加速演進，香港未來面對國家安全的風險會更風高浪急，本港要時刻警惕2019年的黑暴餘波仍未結束，反中亂港分子仍妄圖死灰復燃，仍然軟對抗，煽動厭惡和憎恨，要時刻警惕海內外破壞力量對抗事態還未結束。

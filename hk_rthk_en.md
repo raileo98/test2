@@ -1,3 +1,27 @@
+# Xia Baolong: United States after our very survival
+
+![Xia Baolong says the US tariffs are "extremely arrogant and shameless".](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800428_1_20250415112731.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Beijing's top official overseeing SAR affairs on Tuesday slammed the United States for imposing heavy tariffs on Hong Kong, calling the move "extremely arrogant and shameless".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800428-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800428-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800428-20250415.htm)
+
+---
+
 # Judge stops US move to revoke legal status of migrants
 
 ![The Trump administration has been moving quickly to deport migrants such as this group of Venezuelans back to their countries of origin or any place that accepts them. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800431_1_20250415114340.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1413,29 +1437,5 @@ Officials warned on Sunday that air pollution in certain areas of Hong Kong will
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800131-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800131-20250413.htm)
-
----
-
-# McIlroy puts in blistering third round to lead Masters
-
-![Rory McIlroy reacts after holing his putt on the 18th green. Photo Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800122_1_20250413072334.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Rory McIlroy raced out to the best start the Masters has seen in its 91-year history, with six straight 3s on his scorecard that shot him into the lead on Saturday and left him 18 holes away from that coveted green jacket and the career Grand Slam.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800122-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800122-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800122-20250413.htm)
 
 ---
