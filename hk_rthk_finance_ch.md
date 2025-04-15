@@ -1,3 +1,119 @@
+# 日股半日升近1%
+
+![日經平均指數上午收市報34285點，升302點，升幅0.89%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800417_1_20250415103356.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本股市半日升近1%，日經平均指數上午收市報34285點，升302點，升幅0.89%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800417-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800417-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800417-20250415.htm)
+
+---
+
+# 澳洲央行議紀錄：下月會議考慮減息前景
+
+![澳洲央行會議紀錄顯示，5月會議將是重新審視貨幣政策制定的合適時機。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800416_1_20250415102610.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+澳洲央行4月貨幣政策會議紀錄顯示，央行認為，如果為應對美國關稅帶來的全球不確定性而在4月減息，屬為時尚早，但央行將在5月會議上重新考慮減息前景。美國對等關稅在澳洲央行4月議息會議後才公布。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800416-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800416-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800416-20250415.htm)
+
+---
+
+# 李家超稱關稅戰改變世界貿易秩序　香港有危有機
+
+![李家超表示，關稅戰改變世界貿易秩序，香港有危有機。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800415_1_20250415104053.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800415-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800415-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800415-20250415.htm)
+
+---
+
+# 夏寶龍：關鍵時刻出賣國家利益絕不會有好下場　必將背負歷史罵名
+
+  
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話時指出，中國人民從來不吃霸道霸凌那一套，包括香港同胞在內的全體中國人民是嚇不倒、壓不垮。中國人不惹事，也不怕事，施壓、威脅和訛詐不是同中國打交道的正確方式。他形容，朋友來了有好酒，敵人來了有獵槍，中國人從來沒有怕過誰。他指出，75年前帝國主義的侵略把戰火燒到了新中國家門口，中國人民深知對待侵略者就得用他們聽得懂的語言同他們對話，這就是以戰止戰、以武止戈，用勝利贏得和平，贏得尊重，形容打得一拳開，免得百拳來。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800414-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800414-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800414-20250415.htm)
+
+---
+
+# 夏寶龍批評美國加徵關稅蠻橫霸道　非要港關稅而是要香港的命
+
+![夏寶龍批評美國加徵關稅蠻橫霸道。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800410_1_20250415103933.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話，指歷史和現實告訴大家，外部勢力搞亂香港，以港遏華的圖謀不會改變，也絕不可能得逞。外部勢力對香港插手干預，從沒有停止過香港回歸以來發生的種種亂象，背後都有他們的影子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800410-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800410-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800410-20250415.htm)
+
+---
+
 # 內地股市初段向下
 
 ![上證綜合指數較早時報3250點，跌12點，跌幅0.39%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800408_1_20250415094227.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
@@ -43,6 +159,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800405-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800405-20250415.htm)
+
+---
+
+# 聯合國報告：美國貿易政策或對最脆弱經濟體造成重創
+
+![報告指出，「對等關稅」措施可能對發展中經濟體和最不發達經濟體造成嚴重打擊。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800404_1_20250415100848.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+聯合國貿易和發展會議發表報告，表示美國近期推出的貿易政策正在改變全球貿易格局，並可能對最脆弱經濟體造成重創。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm)
 
 ---
 
@@ -1294,149 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800292-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800292-20250414.htm)
-
----
-
-# 陳茂波：關稅戰影響世界貿易秩序　香港聯動更多內地企業拼船出海
-
-![陳茂波表示，香港會用好「一國兩制」下「內聯外通」的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800291_1_20250414142032.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-財政司司長陳茂波表示，美國單邊發動的關稅戰正在影響世界的貿易秩序，環球產業鏈、供應鏈正面臨巨大的割裂風險。在美國的霸凌極限施壓下，香港會用好「一國兩制」下「內聯外通」的獨特優勢，擔當好「超級聯繫人」和「超級增值人」的角色。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800291-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800291-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800291-20250414.htm)
-
----
-
-# 分析：內地或需進一步發債直接支持基建及消費應對貿易戰
-
-![吳卓殷指出上月內地出口仍錄得增長，可能反映企業因應關稅提早出貨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800286_1_20250414133323.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-內地3月以美元計價出口按年增長12.4%，創5個月以來最快增速；進口下跌4.3%。首季出口按年增長5.8%，進口下跌7%，貿易順差約2730億美元；期內對美國出口按年增長4.5%，自美國進口按年跌1.4%，期內中國對美國貿易順差766.5億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800286-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800286-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800286-20250414.htm)
-
----
-
-# 港股下午初段維持逾2%升幅
-
-![恒生指數較早時報21394點，升479點，升幅2.29%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800282_1_20250414130757.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
-  
-
-港股下午初段維持逾2%升幅。恒生指數較早時報21394點，升479點，升幅2.29%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800282-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800282-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800282-20250414.htm)
-
----
-
-# 植田和男：美國關稅影響日本物價及經濟　央行將採取適當貨幣政策
-
-![植田和男表示，美國關稅政策為日本經濟帶來下行壓力，亦可能影響物價。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800254_1_20250414105555.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-日本央行總裁植田和男表示，受美國關稅政策影響，全球和日本的經濟不確定性已經大幅提升，相關政策可能通過多種渠道給全球和日本經濟帶來下行壓力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800254-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800254-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800254-20250414.htm)
-
----
-
-# 中國海關總署：首季中美雙邊貿易仍增長4%
-
-![呂大良（右）稱中國始終堅持擴大高水平對外開放，中國進口增長空間巨大。（盧紫青攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800276_1_20250414124311.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-中國海關總署副署長王令浚表示，今年首季度在美國政府濫施關稅的干擾和衝擊下，中美雙邊貿易仍保持增長，進出口規模1.11萬億元人民幣，增長4%。他說，中美經貿關係本質是互利共贏，具有強大内生動力，但美國以各種藉口宣布，包括中國在内所有貿易夥伴濫施關稅，將不可避免地對全球包括中美在内的貿易造成負面影響，導致全球商品貿易量萎縮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm)
-
----
-
-# 全國政協副主席王勇提出要促進共同發展繁榮　堅持真正多邊主義
-
-![王勇提出要促進共同發展繁榮，堅持真正的多邊主義。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800273_1_20250414125532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-世界互聯網大會亞太峰會首次一連兩日在灣仔會展舉行，全國政協副主席王勇表示，當前虛擬空間不平靜，舊的風險挑戰未消除，新的安全變量仍在不斷湧現。他提出要促進共同發展繁榮，堅持真正的多邊主義。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm)
 
 ---

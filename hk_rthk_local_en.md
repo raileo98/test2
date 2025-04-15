@@ -1,3 +1,27 @@
+# National security awareness 'has hit high levels'
+
+![Eric Chan says high quality economic and social development can only be achieved with a high level of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800412_1_20250415100822.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Chief Secretary Eric Chan said on Tuesday society's awareness of national security has reached new heights.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800412-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800412-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800412-20250415.htm)
+
+---
+
 # Betting activity needs to be regulated: Alice Mak
 
 ![The Hong Kong Jockey Club is working on plans towards legalising basketball betting. File Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800347_1_20250414202618.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1413,29 +1437,5 @@ A senior official with the Hong Kong Trade Development Council (HKTDC) on Wednes
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799560-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799560-20250409.htm)
-
----
-
-# Chai-yan, elder daughter of CY Leung, dies at 33
-
-![Chai-yan, elder daughter of CY Leung, dies at 33](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799548_1_20250409101920.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Leung Chai-yan, the elder daughter of former SAR chief executive CY Leung, has died at the age of 33.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799548-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799548-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799548-20250409.htm)
 
 ---

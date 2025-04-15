@@ -1,5 +1,26 @@
+# 鄭雁雄指忘卻修例風波慘痛教訓危險　維護國安只有進行式無局外人
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800418-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800418-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800418-20250415.htm)
+
+---
+
 # 李家超稱關稅戰改變世界貿易秩序　香港有危有機
 
+![李家超表示，關稅戰改變世界貿易秩序，香港有危有機。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800415_1_20250415104053.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
   
 
@@ -18,9 +39,12 @@
 
 ---
 
-# 夏寶龍：對等關稅撼動不了中央政府　向美國求饒換來和平極其幼稚
+# 夏寶龍：關鍵時刻出賣國家利益絕不會有好下場　必將背負歷史罵名
 
   
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話時指出，中國人民從來不吃霸道霸凌那一套，包括香港同胞在內的全體中國人民是嚇不倒、壓不垮。中國人不惹事，也不怕事，施壓、威脅和訛詐不是同中國打交道的正確方式。他形容，朋友來了有好酒，敵人來了有獵槍，中國人從來沒有怕過誰。他指出，75年前帝國主義的侵略把戰火燒到了新中國家門口，中國人民深知對待侵略者就得用他們聽得懂的語言同他們對話，這就是以戰止戰、以武止戈，用勝利贏得和平，贏得尊重，形容打得一拳開，免得百拳來。
+
   
 
 
@@ -40,6 +64,7 @@
 
 # 李家超稱不能忘記黑暴慘痛　國安法5周年香港在世界舞台展光芒
 
+![李家超稱，不能忘記黑暴慘痛。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800413_1_20250415104027.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
   
 
@@ -60,7 +85,11 @@
 
 # 夏寶龍批評美國加徵關稅蠻橫霸道　非要港關稅而是要香港的命
 
+![夏寶龍批評美國加徵關稅蠻橫霸道。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800410_1_20250415103933.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話，指歷史和現實告訴大家，外部勢力搞亂香港，以港遏華的圖謀不會改變，也絕不可能得逞。外部勢力對香港插手干預，從沒有停止過香港回歸以來發生的種種亂象，背後都有他們的影子。
+
   
 
 
@@ -80,6 +109,7 @@
 
 # 夏寶龍：必須牢記修例風波慘痛教訓　始終保持警醒引以為戒
 
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800409_1_20250415103701.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話，指過去10年是香港在維護國家安全方面，鬥爭最為激烈的十年。香港歷經由亂到治，邁向由治及興，走過極不平凡、極不尋常的歷程。
@@ -1397,31 +1427,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800217-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800217-20250414.htm)
-
----
-
-# 消委會與金管局推VR遊戲提升防騙意識
-
-![玩家頭戴VR設備及手持控制器，按語音或圖像指示，在預設情境中作出選擇。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_1_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-![校長沈立平表示，遊戲有助學生加深記憶。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_2_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-![黃鳳嫺表示，現時電子支付盛行，應該透過不同方法，盡早教授長者及學生正確使用信用卡的知識。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800215_3_20250414074004.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-消委會聯同金管局推出一系列虛擬實境VR角色體驗遊戲，對象包括長者及特殊需要人士，讓玩家建立正確的信用卡消費觀念，提升他們的防騙意識。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800215-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800215-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800215-20250414.htm)
 
 ---

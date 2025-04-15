@@ -1,3 +1,27 @@
+# National security awareness 'has hit high levels'
+
+![Eric Chan says high quality economic and social development can only be achieved with a high level of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800412_1_20250415100822.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Chief Secretary Eric Chan said on Tuesday society's awareness of national security has reached new heights.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800412-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800412-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800412-20250415.htm)
+
+---
+
 # Bournemouth beat Fulham to boost European hopes
 
 ![Bournemouth secured a 1-0 victory against Fulham, marking their first win in seven league matches. Photo: Action Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800394_1_20250415082114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1413,29 +1437,5 @@ The United States and Iran opened high-stakes talks on Tehran's nuclear programm
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800093-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800093-20250412.htm)
-
----
-
-# At least 69 killed in thunderstorms in India, Nepal
-
-![Dark clouds gather in the sky before a thunderstorm in Nagaon District, Assam, India. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800092_1_20250412200340.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-At least 69 people were killed this week in unusually intense thunderstorms across eastern India's Bihar state and in neighbouring Nepal, officials said on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800092-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800092-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800092-20250412.htm)
 
 ---

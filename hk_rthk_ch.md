@@ -1,5 +1,74 @@
+# 日股半日升近1%
+
+![日經平均指數上午收市報34285點，升302點，升幅0.89%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800417_1_20250415103356.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本股市半日升近1%，日經平均指數上午收市報34285點，升302點，升幅0.89%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800417-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800417-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800417-20250415.htm)
+
+---
+
+# 鄭雁雄指忘卻修例風波慘痛教訓危險　維護國安只有進行式無局外人
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800418-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800418-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800418-20250415.htm)
+
+---
+
+# 澳洲央行議紀錄：下月會議考慮減息前景
+
+![澳洲央行會議紀錄顯示，5月會議將是重新審視貨幣政策制定的合適時機。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800416_1_20250415102610.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+澳洲央行4月貨幣政策會議紀錄顯示，央行認為，如果為應對美國關稅帶來的全球不確定性而在4月減息，屬為時尚早，但央行將在5月會議上重新考慮減息前景。美國對等關稅在澳洲央行4月議息會議後才公布。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800416-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800416-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800416-20250415.htm)
+
+---
+
 # 李家超稱關稅戰改變世界貿易秩序　香港有危有機
 
+![李家超表示，關稅戰改變世界貿易秩序，香港有危有機。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800415_1_20250415104053.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
   
 
@@ -18,9 +87,12 @@
 
 ---
 
-# 夏寶龍：對等關稅撼動不了中央政府　向美國求饒換來和平極其幼稚
+# 夏寶龍：關鍵時刻出賣國家利益絕不會有好下場　必將背負歷史罵名
 
   
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話時指出，中國人民從來不吃霸道霸凌那一套，包括香港同胞在內的全體中國人民是嚇不倒、壓不垮。中國人不惹事，也不怕事，施壓、威脅和訛詐不是同中國打交道的正確方式。他形容，朋友來了有好酒，敵人來了有獵槍，中國人從來沒有怕過誰。他指出，75年前帝國主義的侵略把戰火燒到了新中國家門口，中國人民深知對待侵略者就得用他們聽得懂的語言同他們對話，這就是以戰止戰、以武止戈，用勝利贏得和平，贏得尊重，形容打得一拳開，免得百拳來。
+
   
 
 
@@ -40,6 +112,7 @@
 
 # 李家超稱不能忘記黑暴慘痛　國安法5周年香港在世界舞台展光芒
 
+![李家超稱，不能忘記黑暴慘痛。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800413_1_20250415104027.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
   
 
@@ -60,6 +133,7 @@
 
 # 伊朗稱美國必須切實有效地解除對伊朗制裁
 
+![伊朗外交部發言人巴加埃說，美國必須切實有效地解除對伊朗的制裁。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800411_1_20250415103511.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 伊朗表示，美國必須切實有效地解除對伊朗的制裁，又形容美國一方面對伊朗施壓，一方面尋求同伊朗談判，行為矛盾。
@@ -83,7 +157,11 @@
 
 # 夏寶龍批評美國加徵關稅蠻橫霸道　非要港關稅而是要香港的命
 
+![夏寶龍批評美國加徵關稅蠻橫霸道。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800410_1_20250415103933.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話，指歷史和現實告訴大家，外部勢力搞亂香港，以港遏華的圖謀不會改變，也絕不可能得逞。外部勢力對香港插手干預，從沒有停止過香港回歸以來發生的種種亂象，背後都有他們的影子。
+
   
 
 
@@ -103,6 +181,7 @@
 
 # 夏寶龍：必須牢記修例風波慘痛教訓　始終保持警醒引以為戒
 
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800409_1_20250415103701.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話，指過去10年是香港在維護國家安全方面，鬥爭最為激烈的十年。香港歷經由亂到治，邁向由治及興，走過極不平凡、極不尋常的歷程。
@@ -1348,77 +1427,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800342-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800342-20250414.htm)
-
----
-
-# 麥美娟：政府不鼓勵賭博　視乎公眾諮詢結果規範籃球博彩活動
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800344_1_20250414212225.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-政府正就規範籃球博彩活動的建議方案展開公眾諮詢，諮詢期至下月2日。民政及青年事務局局長麥美娟說，政府一貫政策是不鼓勵賭博，但社會對賭博有切實且持續的需求，如不予規管，很可能會導致非法賭博活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800344-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800344-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800344-20250414.htm)
-
----
-
-# 商會倡本港由「轉口貿易樞紐」轉型為「全球供應鏈服務中心」
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800343_1_20250414212045.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-香港中華出入口商會指出，香港作為國際貿易樞紐，全球貿易格局正深刻變化，本港面對其他地區競爭、地緣政治威脅及貿易中介功能弱化等問題，商會提出本港要由「轉口貿易樞紐」轉型為「全球供應鏈服務中心」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800343-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800343-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800343-20250414.htm)
-
----
-
-# 尹錫悅出席涉嫌內亂罪刑事審判首場公審　反駁檢方指控不符合法理
-
-![尹錫悅乘坐警衛車輛抵達首爾中央地方法院。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800340_1_20250414185240.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-南韓前總統尹錫悅親身出席涉嫌發動內亂案的刑事審判首場公審，否認指控。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800340-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800340-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800340-20250414.htm)
 
 ---
