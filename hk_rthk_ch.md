@@ -1,3 +1,74 @@
+# 台股初段升近1%
+
+![台灣加權指數較早時報19678點，升164點，升幅0.85%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800399_1_20250415090532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+台灣股市在開市初段上升，加權指數較早時報19678點，升164點，升幅0.85%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800399-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800399-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800399-20250415.htm)
+
+---
+
+# 人民幣兌美元中間價微升
+
+![人民幣中間價報7.2096兌1美元，較上日收市升14點子。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800401_1_20250415091929.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
+  
+
+人民幣中間價報7.2096兌1美元，較上日收市升14點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800401-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800401-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800401-20250415.htm)
+
+---
+
+# 李家超：要做好四點工作　應對國家安全挑戰
+
+  
+
+今天是第十個全民國家安全教育日，行政長官李家超在多份報章撰文指出，《維護國家安全條例》與香港國安法已築牢了維護國家的法律屏障，但香港仍面對挑戰，因為地緣政治局勢日趨複雜，環球經濟增長放緩，外部勢力干預滲透，竄逃海外反中亂港分子肆意抹黑攻擊，本土恐怖主義和孤狼式襲擊等威脅不容忽視。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800400-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800400-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800400-20250415.htm)
+
+---
+
 # 聯儲局理事沃勒：關稅或導致通脹於較高情況下減息以避免經濟衰退
 
 ![聯儲局理事沃勒表示，關稅政策對美國經濟造成重大衝擊，可能導致聯儲局在通脹仍然高企的情況下減息，以避免經濟衰退。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800387_1_20250415075002.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -72,7 +143,7 @@
 
 # 古特雷斯對以色列部隊襲擊加沙一間醫院表示深感震驚
 
-![古特雷斯重申，根據國際人道法，傷患和病人、醫務人員及包括醫院在內的醫療設施必須受到尊重和保護。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800391_1_20250415081705.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![古特雷斯重申，根據國際人道法，傷患和病人、醫務人員及包括醫院在內的醫療設施必須受到尊重和保護。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800391_1_20250415081705.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 聯合國秘書長古特雷斯發聲明，對以色列部隊襲擊加沙一間醫院表示深感震驚。
@@ -96,6 +167,7 @@
 
 # 陳國基稱過去十年見證國家安全教育成長及發展
 
+![保安局帶領轄下紀律部隊今早8時在香港警察學院聯合舉行升旗儀式。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800389_1_20250415084742.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 今日是「全民國家安全教育日」，保安局帶領轄下紀律部隊今早8時在香港警察學院聯合舉行升旗儀式，由政務司司長陳國基主禮，保安局局長鄧炳強、警務處處長周一鳴、海關關長陳子達等紀律部隊首長出席。
@@ -1365,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800326-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800326-20250414.htm)
-
----
-
-# 屯門區下午空氣質素健康指數達10+　健康風險達嚴重水平
-
-![環保署提醒當健康風險級別處於「嚴重」水平時，兒童及長者和患有心臟病或呼吸系統疾病的人士，應避免戶外體力消耗和在戶外逗留。（環保署網頁截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800327_1_20250414175419.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-受乾燥的大陸氣流及沙塵天氣影響，本港空氣質素欠佳。根據環保署公布的空氣質素健康指數，在下午4時，屯門區空氣質素健康指數達到10+，健康風險級別達「嚴重」水平，其餘各區的指數亦達9或10，健康風險級別為「甚高」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800327-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800327-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800327-20250414.htm)
-
----
-
-# 34歲男子感染侵入性腦膜炎雙球菌　情況穩定
-
-![一名34歲男子感染侵入性腦膜炎雙球菌，現時情況穩定。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800324_1_20250414171721.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-一名34歲男子感染侵入性腦膜炎雙球菌，現時情況穩定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800324-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800324-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800324-20250414.htm)
-
----
-
-# 岑浩輝發表施政報告　澳門永久居民繼續獲派發1萬元
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800323_1_20250414170832.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-澳門今年第四季將調升長者及殘疾人士津貼。敬老金將由目前每年9000元調升至每年1萬澳門元，養老金每月發放金額由現時3740元增至3900澳門元，並且全年增加發放多1個月，即共13個月；殘疾人士津貼與普通殘疾津貼由每年9000元增至1萬澳門元，特別殘疾津貼由每年18000元增至2萬澳門元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800323-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800323-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800323-20250414.htm)
 
 ---

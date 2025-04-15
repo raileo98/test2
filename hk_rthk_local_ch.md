@@ -1,5 +1,29 @@
+# 李家超：要做好四點工作　應對國家安全挑戰
+
+  
+
+今天是第十個全民國家安全教育日，行政長官李家超在多份報章撰文指出，《維護國家安全條例》與香港國安法已築牢了維護國家的法律屏障，但香港仍面對挑戰，因為地緣政治局勢日趨複雜，環球經濟增長放緩，外部勢力干預滲透，竄逃海外反中亂港分子肆意抹黑攻擊，本土恐怖主義和孤狼式襲擊等威脅不容忽視。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800400-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800400-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800400-20250415.htm)
+
+---
+
 # 陳國基稱過去十年見證國家安全教育成長及發展
 
+![保安局帶領轄下紀律部隊今早8時在香港警察學院聯合舉行升旗儀式。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800389_1_20250415084742.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 今日是「全民國家安全教育日」，保安局帶領轄下紀律部隊今早8時在香港警察學院聯合舉行升旗儀式，由政務司司長陳國基主禮，保安局局長鄧炳強、警務處處長周一鳴、海關關長陳子達等紀律部隊首長出席。
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800181-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800181-20250413.htm)
-
----
-
-# 今早相對濕度創1984年以來4月最低紀錄　沙塵氣流或持續兩天
-
-![環保署預測，今次沙塵氣流對香港的影響可能會持續一至兩天。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800179_1_20250413184057.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-受一股東北季候風相關的沙塵氣流影響，本港空氣質素欠佳。環保署預測，今次沙塵氣流對香港的影響可能會持續一至兩天。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800179-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800179-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800179-20250413.htm)
 
 ---

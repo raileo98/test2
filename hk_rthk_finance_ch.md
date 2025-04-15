@@ -1,3 +1,75 @@
+# 恒指競價時段升186點
+
+![恒生指數競價時段報21603點，升186點，升幅0.87%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800403_1_20250415092415.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
+  
+
+港股在競價時段上升，恒生指數報21603點，升186點，升幅0.87%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800403-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800403-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800403-20250415.htm)
+
+---
+
+# 台股初段升近1%
+
+![台灣加權指數較早時報19678點，升164點，升幅0.85%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800399_1_20250415090532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+台灣股市在開市初段上升，加權指數較早時報19678點，升164點，升幅0.85%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800399-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800399-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800399-20250415.htm)
+
+---
+
+# 人民幣兌美元中間價微升
+
+![人民幣中間價報7.2096兌1美元，較上日收市升14點子。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800401_1_20250415091929.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
+  
+
+人民幣中間價報7.2096兌1美元，較上日收市升14點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800401-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800401-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800401-20250415.htm)
+
+---
+
 # 聯儲局理事沃勒：關稅或導致通脹於較高情況下減息以避免經濟衰退
 
 ![聯儲局理事沃勒表示，關稅政策對美國經濟造成重大衝擊，可能導致聯儲局在通脹仍然高企的情況下減息，以避免經濟衰退。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800387_1_20250415075002.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -238,6 +310,249 @@
 
 ---
 
+# 習近平：中越雙方要增強戰略定力　共同反對單邊霸凌行徑
+
+![習近平同越共中央總書記蘇林舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800373_1_20250415041846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![習近平與越南國會主席陳青敏會面。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800373_2_20250415041846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![習近平與越南總理范明政會面。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800373_3_20250415041846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+在越南國事訪問的中共中央總書記、國家主席習近平同越共中央總書記蘇林舉行會談。習近平強調，面對變亂交織的國際形勢，中越兩國堅持和平發展，深化友好合作，為世界帶來寶貴的穩定性和確定性。中越雙方要增強戰略定力，共同反對單邊霸凌行徑，維護全球自由貿易體制和產業鏈供應鏈穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800373-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800373-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800373-20250415.htm)
+
+---
+
+# 全女班飛行　Katy Perry在內6人完成太空之旅
+
+![Katy Perry完成太空之旅後步出太空艙。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800371_1_20250415033223.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![「新謝潑德號」火箭在得州發射場升空。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800371_2_20250415033223.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國樂壇天后Katy Perry和另外5名女性，完成太空飛行，成為超過60年以來首次全女班太空之旅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800371-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800371-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800371-20250415.htm)
+
+---
+
+# 特朗普：將對進口藥物徵收關稅
+
+![特朗普說，預計在不久的將來會對進口藥品徵收關稅。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800366_1_20250415005226.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國總統特朗普表示，預計在不久的將來會對進口藥品徵收關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm)
+
+---
+
+# 習近平晤范明政　強調要共同反對霸權主義、單邊主義
+
+![習近平與越南總理范明政會面。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800365_2_20250415041937.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+在越南國事訪問的國家主席習近平與越南總理范明政會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800365-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800365-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800365-20250415.htm)
+
+---
+
+# 習近平就深化中越命運共同體建設提出六點舉措
+
+![習近平與越共中央總書記蘇林舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800364_1_20250414234220.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+在越南國事訪問的中共中央總書記、國家主席習近平與越共中央總書記蘇林舉行會談，就深化中越命運共同體建設提出六點舉措，包括妥善處理海上問題，擴大海上合作，下決心啟動共同開發，推動盡快達成「南海行為準則」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800364-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800364-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800364-20250414.htm)
+
+---
+
+# 習近平晤蘇林：要共同反對單邊霸凌行徑　維護全球產供鏈穩定
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800362_1_20250414225450.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+正在越南國事訪問的中共中央總書記、國家主席習近平，在首都河內與越共中央總書記蘇林會面。蘇林先為習近平舉行隆重歡迎儀式，習近平在蘇林陪同下檢閱儀仗隊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800362-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800362-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800362-20250414.htm)
+
+---
+
+# 香港機場獲選全球最佳機場第6名　當局稱會鞏固國際航空樞紐地位
+
+![運輸及物流局表示，香港國際機場第14次成為國際機場協會的年度全球最繁忙貨運機場。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800361_1_20250414230059.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+運輸及物流局表示，香港國際機場第14次成為國際機場協會的年度全球最繁忙貨運機場，去年處理的總貨量達490萬公噸；機場亦在國際專業航空運輸研究機構Skytrax的年度旅客意見調查中，獲選為全球最佳機場第6名，比去年上升5名。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800361-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800361-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800361-20250414.htm)
+
+---
+
+# 卓永興：去年推計劃以休閒活動增農戶收入　擬類似方法促魚場發展
+
+![卓永興說，政府在新界古洞南設立農業園，第一期已經陸續投入運作，第二期亦正在籌劃中。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800356_1_20250414230419.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+政務司副司長卓永興說，政府去年推出了「農＋樂」農場計劃，便利主要從事商業農耕的農場，提供休閒活動作輔助業務，增加農戶收入，當局正研究採用類似的方式，促進內陸休閒魚場的發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800356-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800356-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800356-20250414.htm)
+
+---
+
+# 習近平：中越兩國堅持和平發展　為世界帶來寶貴穩定性
+
+![習近平在蘇林陪同下檢閱儀仗隊。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800360_1_20250414223808.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+中共中央總書記、國家主席習近平展開東南亞三國的國事訪問行程，中午抵達首站越南首都河內，越共中央總書記蘇林為習近平舉行隆重歡迎儀式，習近平在蘇林陪同下檢閱儀仗隊，兩人之後舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800360-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800360-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800360-20250414.htm)
+
+---
+
+# 首次全女班太空旅行　參與者包括樂壇天后Katy Perry
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800357_1_20250414223559.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+亞馬遜創辦人貝索斯旗下商業太空公司「藍色起源」，將樂壇天后Katy Perry在內6人送上太空，是首次全女班太空旅行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800357-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800357-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800357-20250414.htm)
+
+---
+
 # 美股初段升近1%至2%
 
 ![道瓊斯指數較早時報40587點，升375點，升幅0.93%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800355_1_20250414213842.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
@@ -262,6 +577,30 @@
 
 ---
 
+# 國務院港澳辦：施政報告充分展現澳門特區政府改革創新施政理念
+
+![國務院港澳辦表示，岑浩輝首份施政報告，深入貫徹國家主席習近平去年12月視察澳門系列重要講話精神。（鄭月明攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800354_1_20250414214755.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+國務院港澳辦表示，澳門行政長官岑浩輝發表上任後首份施政報告，深入貫徹國家主席習近平去年12月視察澳門系列重要講話精神，充分展現新一屆澳門特區政府改革創新、實幹擔當、銳意進取的施政理念，全力支援澳門特區政府和社會各界勇擔新時代「一國兩制」實踐的使命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm)
+
+---
+
 # OPEC下調今年全球石油需求增長預測　受關稅影響
 
 ![OPEC下調今年全球石油需求增長預測，受到首季數據和美國關稅影響。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800351_1_20250414205809.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -283,6 +622,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800351-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800351-20250414.htm)
+
+---
+
+# 石破茂：日本不打算在對美貿易談判中作重大讓步　不急於達成協議
+
+![石破茂表示，日本不打算在談判中作出重大讓步，亦不急於達成協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800352_1_20250414211059.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本與美國將於星期四在華盛頓展開貿易談判，預計會涉及關稅、非關稅壁壘和匯率等議題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm)
 
 ---
 
@@ -1075,365 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800269-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800269-20250414.htm)
-
----
-
-# 中興通訊稱人工智能面臨發展瓶頸　需尋求突破
-
-![中興通訊董事長方榕稱目前AI面臨發展瓶頸，需要圍繞模型架構、算力互聯和系統集成等尋求突破。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800262_1_20250414113333.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-中興通訊董事長方榕表示，過去2、3年人工智能（AI）技術突飛猛進，多項能力測試中接近甚至超越人類水平，但在AI技術實現大規模應用方面，仍要克服一系列挑戰，包括算力普惠、AI應用普及等核心問題，以及安全私隱和科技倫理挑戰。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800262-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800262-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800262-20250414.htm)
-
----
-
-# 內地3月出口以美元計價按年增長12.4%　創5個月最快增速
-
-![按美元計價，內地3月出口按年增長12.4%，創5個月以來最快增速；進口下跌4.3%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800258_1_20250414111140.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-中國海關總署公布，以美元計價，內地3月出口按年增長12.4%，創5個月以來最快增速；進口下跌4.3%，3月貿易順差1026.4億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800258-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800258-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800258-20250414.htm)
-
----
-
-# 鄭雁雄：香港定能為推動構建網絡空間命運共同體作出更大貢獻
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800260_1_20250414120056.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-世界互聯網大會亞太峰會早上在香港會展舉行，中聯辦主任鄭雁雄表示，香港是互聯網發展的先行地區，具有全球金融、航運、貿易中心的傳統優勢，亦有人工智能研發創科發展及人才等新優勢，更有制度創新、兩文三語、文化包容及內聯外通等獨特優勢，相信香港定能為推動構建網絡空間命運共同體作出新的更大貢獻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800260-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800260-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800260-20250414.htm)
-
----
-
-# 王令浚：美國實施所謂對等關稅是典型關稅霸凌行為
-
-![王令浚敦促美方立即糾正錯誤做法，按照相互尊重原則，通過平等對話解決貿易分歧。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800257_1_20250414124822.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-中國海關總署副署長王令浚表示，美國實施所謂的「對等關稅」，顛覆現有國際經濟秩序，是典型的關稅霸凌行為，嚴重違反世貿組織規則，並損害以規則為基礎的多邊貿易體制，衝擊全球經濟秩序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800257-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800257-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800257-20250414.htm)
-
----
-
-# 莊榮文：人工智能等發展不斷突破　經濟發展等產生重大深遠影響
-
-![莊榮文形容人工智能等新技術為一把雙刃劍，建議應加強網絡安全等。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800255_1_20250414124505.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-世界互聯網大會首次在香港舉辦亞太峰會。國家互聯網信息辦公室主任、世界互聯網大會理事長莊榮文致辭表示，當前人工智能等新技術發展不斷突破，正為經濟發展、社會進步、國際政治經濟格局等方面產生重大而深遠影響。中國科研機構和科技企業不斷推出人工智能大模型等創新成果，為中國、亞太地區和全球發展帶來強勁動力，亦為推動構建網絡空間命運共同體提供機遇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm)
-
----
-
-# 特朗普稱對等關稅沒「豁免 」　中方啟動「購在中國」系列活動
-
-![特朗普說將智能手機和電腦等產品，排除在對等關稅之外的措施是短暫的，強調沒有「豁免 」。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800253_1_20250414110923.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國總統特朗普說，將智能手機和電腦等產品，排除在對等關稅之外的措施將是短暫的，強調措施根本沒有「豁免 」，這些電子產品只是被轉移到另一關稅類別，仍會面臨關稅。他又說，會對半導體行業進行國家安全關稅調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm)
-
----
-
-# 全國政協副主席王勇：將全力支持香港深度融入全球數字化發展
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800250_1_20250414111139.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-世界互聯網大會首次舉辦亞太峰會，今日起一連兩日在灣仔會展舉行。全國政協副主席王勇表示，中國政府將全力支持香港深度融入全球數字化發展的時代洪流，充分把握數字經濟蓬勃興起的黃金機遇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm)
-
----
-
-# 有餐飲業稱復活假期訂座情況不理想　憂市民外遊影響生意
-
-![黃家和說根據過往經驗，在市民外遊影響下，對餐飲業生意有頗嚴重打擊。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800249_1_20250414110835.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-本周五起一連四日為復活節假期，香港餐飲聯業協會會長黃家和在本台節目《千禧年代》表示，目前訂座情況不理想，根據過往這幾年經驗，在市民外遊影響下，對餐飲業生意有頗嚴重打擊，餐飲業於去年復活節的生意比平日下跌逾3成，有些甚至是下跌一半以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800249-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800249-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800249-20250414.htm)
-
----
-
-# 中國海關總署：中國將堅持真正多邊主義
-
-![王令浚重申中國將同各方一道堅持真正多邊主義，共同維護以世界貿易組織為核心的多邊貿易體制。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800247_1_20250414104005.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-中國海關總署副署長王令浚表示，近期美國政府在全球範圍濫施關稅，逆潮流而動，不僅遭到相關國家普遍反對，亦遭到國際組織批評和反對。中國第一時間發表聲明，認為美國的做法將對全球貿易和經濟增長前景產生重大影響，導致全球商品貿易量萎縮。世貿組織呼籲成員國團結一致，通過世貿組織平台進行建設性對話，尋求合作解決方案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800247-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800247-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800247-20250414.htm)
-
----
-
-# 入境處料復活節假期604萬人次進出香港　本周五陸路出境較繁忙
-
-![入境處料陸路出境較為繁忙的日子為本月18日，出境人次約75萬9千人次；入境高峰期為本月21日，入境人次約61萬8千人次。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800248_1_20250414110959.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-入境處預計今年復活節假期期間，即4月17日至4月21日，約有604萬人次包括香港居民及訪客，經各海、陸、空管制站進出香港。經入境處與深圳出入境邊防檢查總站等內地部門協商後，預計約有505萬人次會經各陸路邊境管制站進出香港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800248-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800248-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800248-20250414.htm)
-
----
-
-# 現貨金再創新高
-
-![現貨金再創新高，一度高見每盎司3245.42美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800246_1_20250414103932.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
-  
-
-現貨金再創新高，一度高見每盎司3245.42美元，較早時報3233.85美元，跌幅近0.1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800246-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800246-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800246-20250414.htm)
-
----
-
-# 日股半日升逾1%
-
-![日經平均指數上午收市報34115點，升529點，升幅1.58%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800245_1_20250414103513.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-日本股市半日升逾1%。日經平均指數上午收市報34115點，升529點，升幅1.58%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800245-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800245-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800245-20250414.htm)
-
----
-
-# 中國海關總署：美國關稅影響全球貿易　中方反制捍衛國際公平正義
-
-![中國海關總署表示，將嚴格依法實施各項對美的反制措施，維護國家主權安全發展利益。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800243_1_20250414102951.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=20)
-  
-
-中國海關總署副署長王令浚表示，近期美國政府濫施關稅，無可避免對全球，包括中美在內的貿易造成負面影響，中方第一時間堅決實施必要的反制措施，不只維護自身正當權益，亦是為了捍衛國際貿易規則和國際公平正義，中國將堅定不移推動高水平對外開放，推動與各國開展互利共贏的經貿合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800243-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800243-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800243-20250414.htm)
-
----
-
-# 順豐速運香港：停發SMS短訊　快件自取訊息改手機應用程式推送
-
-![順豐速運香港宣布今日起停止發送SMS短訊，所有快件自取訊息通知將全部改為透過官方手機應用程式推送。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800242_1_20250414104748.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-為減低偽冒訊息詐騙的風險，順豐速運香港宣布，由今日起將停止發送SMS短訊，所有快件自取訊息通知將全部改為透過官方手機應用程式推送。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm)
-
----
-
-# 陳國基：美國加關稅讓大家明白沒有足夠國安意識　後果可以很嚴重
-
-![陳國基強調美國加關稅有政治目的。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800241_1_20250414104622.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國向全球廣泛國家及地區加徵關稅，政務司司長陳國基形容是「下三流做法」，批評美國完全不講法律、不符合國際做法，「鍾意點做就點做」，有如「勒索」，強調美方加關稅有政治目的，影響了本港的股票市場及營商環境。他又指出，金融、股票、財政行動都是國家安全範圍內，今次美國加關稅正是一個好教材，讓大家明白沒有足夠的國安意識，後果可以很嚴重。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm)
 
 ---

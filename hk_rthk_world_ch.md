@@ -1,6 +1,6 @@
 # 古特雷斯對以色列部隊襲擊加沙一間醫院表示深感震驚
 
-![古特雷斯重申，根據國際人道法，傷患和病人、醫務人員及包括醫院在內的醫療設施必須受到尊重和保護。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800391_1_20250415081705.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![古特雷斯重申，根據國際人道法，傷患和病人、醫務人員及包括醫院在內的醫療設施必須受到尊重和保護。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800391_1_20250415081705.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 聯合國秘書長古特雷斯發聲明，對以色列部隊襲擊加沙一間醫院表示深感震驚。

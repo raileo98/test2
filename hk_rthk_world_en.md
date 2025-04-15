@@ -1,3 +1,27 @@
+# Blue Origin blasts all-female crew into space
+
+![Pop star Katy Perry emerges from the capsule after blasting off into space on a Blue Origin rocket as part of the all-female crew. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800397_1_20250415085946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Jeff Bezos’ Blue Origin launched his fiancee Lauren Sanchez into space on Monday with an all-female celebrity crew that included Katy Perry and Gayle King.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800397-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800397-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800397-20250415.htm)
+
+---
+
 # US$2 billion federal funding for Harvard frozen
 
 ![Demonstrators call on Harvard leadership to resist interference at its campus in Cambridge, Massachusetts. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800395_1_20250415083343.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@ US Health Secretary Robert F Kennedy Jr said he plans to tell the Centers for Di
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799385-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799385-20250408.htm)
-
----
-
-# World temps near record highs in March: scientists
-
-![The Copernicus Climate Change Service said Europe saw the hottest March ever recorded. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799381_1_20250408111344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-Global temperatures hovered at historic highs in March, Europe's climate monitor said on Tuesday, prolonging an extraordinary heat streak that has tested scientific expectations.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799381-20250408.htm)
 
 ---
