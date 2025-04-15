@@ -1,3 +1,26 @@
+# 陳國基稱過去十年見證國家安全教育成長及發展
+
+  
+
+今日是「全民國家安全教育日」，保安局帶領轄下紀律部隊今早8時在香港警察學院聯合舉行升旗儀式，由政務司司長陳國基主禮，保安局局長鄧炳強、警務處處長周一鳴、海關關長陳子達等紀律部隊首長出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800389-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800389-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800389-20250415.htm)
+
+---
+
 # 政府：入境處處理每宗入境個案會按照相關法律和政策處理
 
 ![特區政府發言人說，入境處在處理每宗入境個案時，會按照相關法律和政策處理。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800363_1_20250414230240.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800179-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800179-20250413.htm)
-
----
-
-# 周一鳴稱正就機械人應用於警務工作作初階研究
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800174_1_20250413182456.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-警務處處長周一鳴在本月初上任時表示，推動智慧警政是重點工作方向之一。他接受一個電視節目訪問時說，正就在日後在警務工作中，使用機械人、機械狗作初階研究。另外，警方將在短期內，試行以無人機在市區高空巡邏。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800174-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800174-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800174-20250413.htm)
 
 ---

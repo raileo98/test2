@@ -1,3 +1,75 @@
+# 聯儲局理事沃勒：關稅或導致通脹於較高情況下減息以避免經濟衰退
+
+![聯儲局理事沃勒表示，關稅政策對美國經濟造成重大衝擊，可能導致聯儲局在通脹仍然高企的情況下減息，以避免經濟衰退。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800387_1_20250415075002.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+美國聯儲局理事沃勒表示，關稅政策對美國經濟造成重大衝擊，可能導致聯儲局在通脹仍然高企的情況下減息，以避免經濟衰退。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800387-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800387-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800387-20250415.htm)
+
+---
+
+# 韓股初段上升
+
+![首爾綜合指數較早時報2464點，升8點，升幅0.35%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800392_1_20250415081421.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+韓股在開市初段向上，首爾綜合指數較早時報2464點，升8點，升幅0.35%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800392-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800392-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800392-20250415.htm)
+
+---
+
+# 日股初段升1%
+
+![日經平均指數較早時報34337點，升355點，升幅1.05%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800390_1_20250415081210.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+日本股市在開市初段升1%，日經平均指數較早時報34337點，升355點，升幅1.05%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800390-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800390-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800390-20250415.htm)
+
+---
+
 # 英特爾擬以44.6億美元出售可編程晶片業務51%股權
 
 ![英特爾公布，公司已同意以44.6億美元出售可編程晶片業務Altera的51%股權，交易預計將於今年下半年完成。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800384_1_20250415073113.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm)
-
----
-
-# 商務部等6部門啟動「購在中國」系列活動　提升中國市場吸引力
-
-![商務部等6部門啟動「購在中國」系列活動，持續提升中國消費市場吸引力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800239_1_20250414101327.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-商務部會同國家發展改革委、工業和信息化部、文化和旅游部、市場監管總局、體育總局，在海南第五届中國國際消費品博覽會啓動「購在中國」系列活動，通過打造具有國際影響力的標誌性擴消費活動品牌，擴大優質商品和服務供給，創新多元消費場景，推動商旅文體健深入融合，打造國際友好消費環境，進一步釋放多樣化、差異化消費潜力，推動消費提質升級，持續提升中國消費市場吸引力和美譽度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800239-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800239-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800239-20250414.htm)
-
----
-
-# 內地首季出口按年增長6.9%　進口下跌6%
-
-![中國海關總署統計，今年首季貨物貿易進出口按年增長1.3%，當中出口增長6.9%，進口下跌6%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800238_1_20250414100134.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-中國海關總署統計，今年首季貨物貿易進出口按年增長1.3%，當中出口增長6.9%，進口下跌6%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800238-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800238-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800238-20250414.htm)
-
----
-
-# 人行開展430億元人民幣逆回購
-
-![人民銀行開展430億元人民幣7日期逆回購操作，單日轉為淨回籠505億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800235_1_20250414093830.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-人民銀行開展430億元人民幣7日期逆回購操作，利率維持1.5厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800235-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800235-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800235-20250414.htm)
 
 ---

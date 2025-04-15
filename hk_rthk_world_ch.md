@@ -1,3 +1,27 @@
+# 古特雷斯對以色列部隊襲擊加沙一間醫院表示深感震驚
+
+![古特雷斯重申，根據國際人道法，傷患和病人、醫務人員及包括醫院在內的醫療設施必須受到尊重和保護。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800391_1_20250415081705.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+聯合國秘書長古特雷斯發聲明，對以色列部隊襲擊加沙一間醫院表示深感震驚。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800391-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800391-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800391-20250415.htm)
+
+---
+
 # 哈馬斯：收到新停火提議　將盡快回覆
 
 ![以軍空襲加沙北部傑巴利耶，救援人員從瓦礫中抬出死者遺體。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800377_1_20250415054405.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800121-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800121-20250413.htm)
-
----
-
-# 中方助建公路舉行通車啟用儀式　柬埔寨首相稱促進交通及貨物運輸
-
-![這條公路全長114.9公里是柬埔寨中東部公路網的重要組成部分。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800117_1_20250413052947.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-由上海建工集團股份有限公司承建的柬埔寨71C號國家公路，昨日在柬埔寨特本克蒙舉行通車啟用儀式，柬埔寨首相洪瑪奈、公共工程與運輸部大臣賓波尼及中國駐柬埔寨大使汪文斌等出席儀式。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800117-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800117-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800117-20250413.htm)
 
 ---
