@@ -1,9 +1,9 @@
-# US$2.2b funding freeze for defiant Harvard
+# 'Trump will not win tariff war against China'
 
-![Harvard University has refused to 'negotiate over its independence or its constitutional rights.' File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800424_1_20250415110434.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
+![Columbia professor Jeffrey Sachs says the US could face an uphill battle in its trade dispute with China. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800419_1_20250415112206.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
   
 
-Elite US university Harvard has been hit with a US$2.2 billion freeze in federal funding after rejecting a list of sweeping demands that the White House said was intended to crack down on campus anti-Semitism.
+Renowned American economist, Jeffrey Sachs, on Tuesday said US President Donald Trump would not win the trade war against China, as Beijing is no longer as dependent on US markets as it was in the past.
 
   
 
@@ -11,14 +11,38 @@ Elite US university Harvard has been hit with a US$2.2 billion freeze in federal
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800424-20250415.htm>
+<https://news.rthk.hk/rthk/en/component/k2/1800419-20250415.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800424-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800424-20250415.htm)
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800419-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800419-20250415.htm)
+
+---
+
+# Schools mark National Security Education Day
+
+![Hennessy Road Government Primary School (Causeway Bay) was the main venue for flag-raising ceremonies held at schools across the SAR. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800420_1_20250415111530.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Over 300 primary and secondary schools as well as kindergartens, involving nearly 160,000 students across Hong Kong, held flag-raising ceremonies to mark National Security Education Day on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800420-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800420-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800420-20250415.htm)
 
 ---
 
@@ -1413,29 +1437,5 @@ The United States wants a nuclear agreement "as soon as possible", Iran said aft
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800119-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800119-20250413.htm)
-
----
-
-# Piastri takes pole for Bahrain Grand Prix
-
-![Australia's Oscar Piastri of the McLaren F1 Team during qualifying. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800118_1_20250413060821.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-McLaren's Oscar Piastri celebrated pole position for the Bahrain Grand Prix, his 50th Formula One race, while dejected championship-leading teammate Lando Norris qualified sixth and said he had been "clueless on track".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800118-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800118-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800118-20250413.htm)
 
 ---

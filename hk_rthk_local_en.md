@@ -1,3 +1,27 @@
+# Schools mark National Security Education Day
+
+![Hennessy Road Government Primary School (Causeway Bay) was the main venue for flag-raising ceremonies held at schools across the SAR. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800420_1_20250415111530.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Over 300 primary and secondary schools as well as kindergartens, involving nearly 160,000 students across Hong Kong, held flag-raising ceremonies to mark National Security Education Day on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800420-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800420-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800420-20250415.htm)
+
+---
+
 # National security awareness 'has hit high levels'
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800412_1_20250415100822.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1437,5 @@ A commercial-sector lawmaker said on Wednesday US President Donald Trump's tarif
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799561-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799561-20250409.htm)
-
----
-
-# 'HK well-prepared to face any trade disruptions'
-
-![HKTDC's Irina Fan says Hong Kong's diversified trade links will help it withstand any pressure from new US tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799560_1_20250409111312.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-A senior official with the Hong Kong Trade Development Council (HKTDC) on Wednesday said the SAR would be resilient in the face of ongoing uncertainty from the new tariffs imposed by the Trump administration.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799560-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799560-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799560-20250409.htm)
 
 ---
