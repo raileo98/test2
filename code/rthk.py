@@ -32,7 +32,7 @@ setattr(CachedResponse, "lazy", False) # https://github.com/jawah/niquests/issue
 
 # 設置日誌
 logging.basicConfig(level=logging.INFO)
-logger = logging.getLogger(_name_)
+logger = logging.getLogger(__name__)
 
 # ------------------------------
 # 初始設定：檢查環境並顯示提示
