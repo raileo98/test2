@@ -26,8 +26,13 @@ from lxml.html.clean import Cleaner
 from feedgen.feed import FeedGenerator
 from urllib.parse import urlparse
 from requests_cache import CachedResponse
+import logging
 
 setattr(CachedResponse, "lazy", False) # https://github.com/jawah/niquests/issues/241
+
+# 設置日誌
+logging.basicConfig(level=logging.INFO)
+logger = logging.getLogger(_name_)
 
 # ------------------------------
 # 初始設定：檢查環境並顯示提示
