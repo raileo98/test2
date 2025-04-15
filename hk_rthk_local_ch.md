@@ -1,3 +1,23 @@
+# 李家超稱關稅戰改變世界貿易秩序　香港有危有機
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800415-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800415-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800415-20250415.htm)
+
+---
+
 # 夏寶龍：對等關稅撼動不了中央政府　向美國求饒換來和平極其幼稚
 
   
@@ -58,9 +78,12 @@
 
 ---
 
-# 夏寶龍：必須牢記修例風波慘痛教訓
+# 夏寶龍：必須牢記修例風波慘痛教訓　始終保持警醒引以為戒
 
   
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話，指過去10年是香港在維護國家安全方面，鬥爭最為激烈的十年。香港歷經由亂到治，邁向由治及興，走過極不平凡、極不尋常的歷程。
+
   
 
 
@@ -1400,29 +1423,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800215-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800215-20250414.htm)
-
----
-
-# 警隊於日內瓦國際發明展贏得5個國際獎項
-
-![團隊在瑞士舉辦的「第50屆日內瓦國際發明展」中贏得5個國際獎項。（警方社交網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800195_1_20250413224050.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-香港警務處網絡安全及科技罪案調查科及警察機動部隊總部團隊，於本月9日至13日在瑞士舉辦的「第50屆日內瓦國際發明展」中，4項發明項目共贏得5個國際獎項，當中包括「國際傳媒大獎」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800195-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800195-20250413.htm](https://news.rthk.hk/rthk/ch/component/k2/1800195-20250413.htm)
 
 ---
