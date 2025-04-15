@@ -1,3 +1,27 @@
+# 恒指半日升40點　科指跌0.9%
+
+![恒生指數開市報21603點已是半日高位，中午收市報21457點，升40點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800436_1_20250415121054.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
+  
+
+港股連升5日後缺乏方向，恒生指數開市即見半日高位，報21603點，高開186點，其後一度倒跌約70點，中午收市報21457點，升40點，半日主板成交額約1088億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800436-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800436-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800436-20250415.htm)
+
+---
+
 # 天文台上午錄得最高氣溫31.1度　今年以來最高紀錄
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800242-20250414.htm)
-
----
-
-# 陳國基：美國加關稅讓大家明白沒有足夠國安意識　後果可以很嚴重
-
-![陳國基強調美國加關稅有政治目的。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800241_1_20250414104622.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國向全球廣泛國家及地區加徵關稅，政務司司長陳國基形容是「下三流做法」，批評美國完全不講法律、不符合國際做法，「鍾意點做就點做」，有如「勒索」，強調美方加關稅有政治目的，影響了本港的股票市場及營商環境。他又指出，金融、股票、財政行動都是國家安全範圍內，今次美國加關稅正是一個好教材，讓大家明白沒有足夠的國安意識，後果可以很嚴重。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm)
 
 ---
