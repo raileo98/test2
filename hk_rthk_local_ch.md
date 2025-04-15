@@ -1,6 +1,33 @@
-# 鄭雁雄指忘卻修例風波慘痛教訓危險　維護國安只有進行式無局外人
+# 夏寶龍：香港看似平靜實則暗流湧動　安全形勢仍嚴峻複雜
 
   
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話，指現在鬥爭並沒有結束，香港社會面看似平靜，實則暗流湧動，安全形勢仍然十分嚴峻複雜。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800422-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800422-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800422-20250415.htm)
+
+---
+
+# 鄭雁雄指忘卻修例風波慘痛教訓危險　維護國安只有進行時無局外人
+
+![鄭雁雄表示，中央對特區打造高水平安全護航高質量發展提出了殷切希望。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800418_1_20250415110246.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行，中聯辦主任鄭雁雄表示，中央對特區打造高水平安全護航高質量發展提出了殷切希望，行政長官李家超對港澳辦主任夏寶龍講話的精神解讀準確、落實到位，駐港聯絡辦將全面落實好中央要求，全力支持行政長官和特區政府，將中央寄望變成實際行動。
+
   
 
 
@@ -66,6 +93,9 @@
 
 ![李家超稱，不能忘記黑暴慘痛。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800413_1_20250415104027.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
+
+行政長官李家超表示，香港國安法公布實施5年後的今天，在維護國家安全條例立法生效一年後的今天，香港在世界舞台上展現光芒。不過，世界百年未有之大變局將加速演進，香港未來面對國家安全的風險會更風高浪急，本港要時刻警惕2019年的黑暴餘波仍未結束，反中亂港分子仍妄圖死灰復燃，仍然軟對抗，煽動厭惡和憎恨，要時刻警惕海內外破壞力量對抗事態還未結束。
+
   
 
 
@@ -1403,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm)
-
----
-
-# 港大研究揭部分胃癌患者早期突變　冀助預防及早期檢測
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800217_1_20250414074929.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-港大醫學院發現，部分胃癌患者的胃部一些區域存在染色體異常，這些異常的染色體異常在病人年輕時已經出現，期望研究結果有助及早找出高風險人士預防患病。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800217-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800217-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800217-20250414.htm)
 
 ---

@@ -1,3 +1,51 @@
+# EV battery giant CATL records surge in Q1 profit
+
+![CATL had a bullish first quarter of 2025. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800423_1_20250415110403.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+The world's leading maker of electric vehicle batteries, CATL, posted a 32.9 percent jump in first quarter profit, even as demand for electric vehicles slows.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm)
+
+---
+
+# Local stocks rise at open
+
+![The Hang Seng Index rose 0.87 percent at the open on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800398_1_20250415090048.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+Hong Kong's Hang Seng Index rose 186 points, or 0.87 percent, to open at 21,603 points on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800398-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800398-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800398-20250415.htm)
+
+---
+
 # Stocks rally worldwide after Trump eases some tariffs
 
 ![Apple and other tech companies helped lift Wall Street after President Trump said he was exempting electronics from some of his stiff tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800379_1_20250415061332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
@@ -1388,53 +1436,5 @@ European Commission President Ursula von der Leyen described US President Donald
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm)
-
----
-
-# Hong Kong stocks fall more than 2pc on Trump tariffs
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798744_1_20250403092553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-Hong Kong stocks sank more than two percent in opening trades on Thursday after US President Donald Trump announced sweeping tariffs against trade partners, including 34 percent on imports from China.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm)
-
----
-
-# Tariffs target packages under US$800 from HK
-
-![US President Donald Trump holds a signed executive order on tariffs, in the Rose Garden at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798734_1_20250403084633.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-US President Donald Trump signed an executive order on Wednesday that closes a trade exemption known as "de minimis" that has allowed low-value packages from mainland China and Hong Kong to enter the United States, free of duties.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm)
 
 ---

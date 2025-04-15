@@ -1,6 +1,78 @@
+# US$2.2b funding freeze for defiant Harvard
+
+![Harvard University has refused to 'negotiate over its independence or its constitutional rights.' File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800424_1_20250415110434.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
+  
+
+Elite US university Harvard has been hit with a US$2.2 billion freeze in federal funding after rejecting a list of sweeping demands that the White House said was intended to crack down on campus anti-Semitism.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800424-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800424-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800424-20250415.htm)
+
+---
+
+# EV battery giant CATL records surge in Q1 profit
+
+![CATL had a bullish first quarter of 2025. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800423_1_20250415110403.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+The world's leading maker of electric vehicle batteries, CATL, posted a 32.9 percent jump in first quarter profit, even as demand for electric vehicles slows.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm)
+
+---
+
+# Local stocks rise at open
+
+![The Hang Seng Index rose 0.87 percent at the open on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800398_1_20250415090048.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+Hong Kong's Hang Seng Index rose 186 points, or 0.87 percent, to open at 21,603 points on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800398-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800398-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800398-20250415.htm)
+
+---
+
 # National security awareness 'has hit high levels'
 
-![Eric Chan says high quality economic and social development can only be achieved with a high level of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800412_1_20250415100822.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800412_1_20250415100822.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 Chief Secretary Eric Chan said on Tuesday society's awareness of national security has reached new heights.
@@ -528,7 +600,7 @@ Beijing's top official overseeing Hong Kong and Macau affairs, Xia Baolong, is s
 
 # Don't judge healthcare reform by fee hikes, Lo says
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800289_1_20250414133802.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![Health chief Lo Chung-mau insisted the reform is not meant to generate extra revenue but intended to focus resources on helping those who most require medical attention. Photo: Legco](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800289_1_20250414133802.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 The health secretary says it is unreasonable to judge upcoming changes in public hospital charges simply by focusing on fee increases for certain services, stressing that an extra 1.1 million people will be eligible for partial or full fee waivers under the proposal.
@@ -1365,77 +1437,5 @@ McLaren's Oscar Piastri celebrated pole position for the Bahrain Grand Prix, his
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800118-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800118-20250413.htm)
-
----
-
-# Trump grants tariff exclusions to smartphones and tech
-
-![Twenty product categories are listed including the broad 8471 code for all computers, laptops, disc drives and automatic data processing. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800115_1_20250413041711.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-US President Donald Trump's administration has granted exclusions from steep reciprocal tariffs to smartphones, computers and some other electronics imported largely from China.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800115-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800115-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800115-20250413.htm)
-
----
-
-# De Bruyne inspires Man City revival to crush Palace
-
-![Manchester City midfielder Kevin De Bruyne reacts as he is substituted during the match against Crystal Palace. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800099_1_20250412214141.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Kevin De Bruyne sparked Manchester City’s remarkable fightback from two goals down in a 5-2 win over Crystal Palace in the Premier League on Saturday that re-ignited his team’s Champions League qualification hopes.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800099-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800099-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800099-20250412.htm)
-
----
-
-# First US-Iran nuclear talks in years start in Oman
-
-![Iranians walk by anti-US murals on the walls of the former US embassy in Tehran, Iran. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800093_1_20250412200659.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-The United States and Iran opened high-stakes talks on Tehran's nuclear programme on Saturday, with President Donald Trump threatening military action if they fail to produce a deal.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800093-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800093-20250412.htm](https://news.rthk.hk/rthk/en/component/k2/1800093-20250412.htm)
 
 ---

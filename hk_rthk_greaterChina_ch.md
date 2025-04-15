@@ -1,3 +1,50 @@
+# 國家移民管理局：首季度1.63億人次出入境　按年升15.3%
+
+![林勇勝稱，今年首季度全國口岸累計出入境人次1億6300萬，較去年同期上升15.3%。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800425_1_20250415111312.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+國家移民管理局公布，今年首季度全國口岸累計出入境人次1億6300萬，較去年同期上升15.3%。其中，内地居民超過8027萬人次，按年增長15.4%；港澳台居民約6572萬人次，按年上升11.2%；外國人約1743萬人次，按年增長33.4%。另外，共查驗出入境交通運輸工具849萬5千架次，較去年同期上升15.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800425-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800425-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800425-20250415.htm)
+
+---
+
+# 夏寶龍：香港看似平靜實則暗流湧動　安全形勢仍嚴峻複雜
+
+  
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話，指現在鬥爭並沒有結束，香港社會面看似平靜，實則暗流湧動，安全形勢仍然十分嚴峻複雜。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800422-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800422-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800422-20250415.htm)
+
+---
+
 # 夏寶龍批評美國加徵關稅蠻橫霸道　非要港關稅而是要香港的命
 
 ![夏寶龍批評美國加徵關稅蠻橫霸道。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800410_1_20250415103933.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm)
-
----
-
-# 重慶300多人因雷暴誘發急性呼吸道疾病
-
-![雷暴哮喘患者在重慶醫科大學附屬第一醫院排隊求醫。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800087_1_20250412182528.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-新華社報道，重慶300多人因雷暴誘發呼吸道疾病急性發作，要到醫院求醫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800087-20250412.htm)
-
----
-
-# 內地多處出現極端大風　北京近700航班取消
-
-![北京市面大風，有單車等車輛被強風吹倒。(盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800084_1_20250412184125.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-一場範圍廣、強度高的大風天氣正影響全國多地，央視新聞報道，今明兩天強風將影響半數以上省份。今日截至下午2時，北京兩大機場共取消近700個航班。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800084-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800084-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800084-20250412.htm)
 
 ---

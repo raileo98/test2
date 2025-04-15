@@ -1,3 +1,27 @@
+# EV battery giant CATL records surge in Q1 profit
+
+![CATL had a bullish first quarter of 2025. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800423_1_20250415110403.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+The world's leading maker of electric vehicle batteries, CATL, posted a 32.9 percent jump in first quarter profit, even as demand for electric vehicles slows.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm)
+
+---
+
 # China accuses NSA of cyberattacks on Harbin Games
 
 ![Performers take part in the closing ceremony of the Harbin 2025 Asian Winter Games in Harbin. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800402_1_20250415092131.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
@@ -1411,29 +1435,5 @@ A peace agreement on ending the conflict in Ukraine should be fair, binding and 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798386-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798386-20250401.htm)
-
----
-
-# China condemns 'economic coercion'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798334_1_20250331215247.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-China on Monday reaffirmed its resolute opposition to moves that infringe upon and undermine other countries' legitimate rights and interests through economic coercion, hegemonic practices or bullying.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm)
 
 ---

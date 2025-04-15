@@ -1,3 +1,74 @@
+# 國家移民管理局：首季度1.63億人次出入境　按年升15.3%
+
+![林勇勝稱，今年首季度全國口岸累計出入境人次1億6300萬，較去年同期上升15.3%。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800425_1_20250415111312.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+國家移民管理局公布，今年首季度全國口岸累計出入境人次1億6300萬，較去年同期上升15.3%。其中，内地居民超過8027萬人次，按年增長15.4%；港澳台居民約6572萬人次，按年上升11.2%；外國人約1743萬人次，按年增長33.4%。另外，共查驗出入境交通運輸工具849萬5千架次，較去年同期上升15.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800425-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800425-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800425-20250415.htm)
+
+---
+
+# 夏寶龍：香港看似平靜實則暗流湧動　安全形勢仍嚴峻複雜
+
+  
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話，指現在鬥爭並沒有結束，香港社會面看似平靜，實則暗流湧動，安全形勢仍然十分嚴峻複雜。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800422-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800422-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800422-20250415.htm)
+
+---
+
+# 映恩生物首日掛牌股價升逾1倍　公司料最快明年首款藥物商業化
+
+![朱忠遠（右）稱公司未來將與更多跨國藥企合作，繼續推動臨床階段資產開發。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800421_1_20250415110508.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+映恩生物首日掛牌，開市價已較招股價94.6元高出超過90%，其後更突破200元，曾高見222元，升幅逾1.3倍，較早時報205.6元。股份招股反應熱烈，公開發售部分獲超額認購逾114倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800421-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800421-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800421-20250415.htm)
+
+---
+
 # 日股半日升近1%
 
 ![日經平均指數上午收市報34285點，升302點，升幅0.89%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800417_1_20250415103356.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -22,9 +93,13 @@
 
 ---
 
-# 鄭雁雄指忘卻修例風波慘痛教訓危險　維護國安只有進行式無局外人
+# 鄭雁雄指忘卻修例風波慘痛教訓危險　維護國安只有進行時無局外人
 
+![鄭雁雄表示，中央對特區打造高水平安全護航高質量發展提出了殷切希望。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800418_1_20250415110246.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行，中聯辦主任鄭雁雄表示，中央對特區打造高水平安全護航高質量發展提出了殷切希望，行政長官李家超對港澳辦主任夏寶龍講話的精神解讀準確、落實到位，駐港聯絡辦將全面落實好中央要求，全力支持行政長官和特區政府，將中央寄望變成實際行動。
+
   
 
 
@@ -114,6 +189,9 @@
 
 ![李家超稱，不能忘記黑暴慘痛。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800413_1_20250415104027.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
+
+行政長官李家超表示，香港國安法公布實施5年後的今天，在維護國家安全條例立法生效一年後的今天，香港在世界舞台上展現光芒。不過，世界百年未有之大變局將加速演進，香港未來面對國家安全的風險會更風高浪急，本港要時刻警惕2019年的黑暴餘波仍未結束，反中亂港分子仍妄圖死灰復燃，仍然軟對抗，煽動厭惡和憎恨，要時刻警惕海內外破壞力量對抗事態還未結束。
+
   
 
 
@@ -1355,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800350-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800350-20250414.htm)
-
----
-
-# 陳美寶：政府與物流業界團結一致應對挑戰　協助業界配合市場轉型
-
-![陳美寶（左三）說，政府與業界團結一致應對挑戰，協助業界配合市場轉型。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800348_1_20250414214408.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-美國宣布對不同貿易夥伴採取對等關稅，特區政府表示，將與物流業界循五大策略應對，包括開拓新興市場、加強與粵港澳大灣區港口協作共同開拓新貨源、豁免部分貨物的出入口許可證要求以吸引更多中轉貨物、深化與國際港口和船舶合作，以及擴大航運及航空網絡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800348-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800348-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800348-20250414.htm)
-
----
-
-# 伊朗外交部：周六與美國舉行次輪間接會談　外長將先訪俄羅斯
-
-![在美伊首輪間接會談，伊朗外長阿拉格齊（左）透過阿曼外交大臣巴德爾（右）向美方傳遞政府立場。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800346_1_20250414202212.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-伊朗外交部發言人巴加埃表示，伊朗與美國在本星期六就解除制裁及核問題舉行第二輪間接會談前，外交部長阿拉格齊將會先到訪俄羅斯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm)
-
----
-
-# 德國政府：美國關稅政策導致出口面臨相當大阻力
-
-![德國經濟部表示，關稅政策，令德國出口和工業生產面臨相當大的阻力。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800342_1_20250414190532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-德國經濟部表示，由於美國總統特朗普的關稅政策，德國出口和工業生產面臨相當大的阻力，貿易發展的不確定性極高，在貿易保護主義抬頭下，預計需求不會復蘇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800342-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800342-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800342-20250414.htm)
 
 ---

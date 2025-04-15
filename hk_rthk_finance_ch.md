@@ -1,3 +1,27 @@
+# 映恩生物首日掛牌股價升逾1倍　公司料最快明年首款藥物商業化
+
+![朱忠遠（右）稱公司未來將與更多跨國藥企合作，繼續推動臨床階段資產開發。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800421_1_20250415110508.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+映恩生物首日掛牌，開市價已較招股價94.6元高出超過90%，其後更突破200元，曾高見222元，升幅逾1.3倍，較早時報205.6元。股份招股反應熱烈，公開發售部分獲超額認購逾114倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800421-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800421-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800421-20250415.htm)
+
+---
+
 # 日股半日升近1%
 
 ![日經平均指數上午收市報34285點，升302點，升幅0.89%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800417_1_20250415103356.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm)
-
----
-
-# 台股微跌收市
-
-![台灣加權指數收報19513點，跌15點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800292_1_20250414142315.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-台灣股市微跌收市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800292-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800292-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800292-20250414.htm)
 
 ---
