@@ -1,3 +1,27 @@
+# Judge stops US move to revoke legal status of migrants
+
+![The Trump administration has been moving quickly to deport migrants such as this group of Venezuelans back to their countries of origin or any place that accepts them. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800431_1_20250415114340.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+A federal judge has blocked US President Donald Trump's administration from quickly revoking the legal status of hundreds of thousands of immigrants from Venezuela, Cuba, Nicaragua and Haiti.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800431-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800431-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800431-20250415.htm)
+
+---
+
 # 'Trump will not win tariff war against China'
 
 ![Columbia professor Jeffrey Sachs says the US could face an uphill battle in its trade dispute with China. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800419_1_20250415112206.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -1413,29 +1437,5 @@ Rory McIlroy raced out to the best start the Masters has seen in its 91-year his
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800122-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800122-20250413.htm)
-
----
-
-# US and Iran to meet again after rare talks
-
-![Iranian Foreign Minister Abbas Araghchi briefly spoke face-to-face with US special envoy Steve Witkoff (pictured). File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800119_1_20250413063740.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-The United States wants a nuclear agreement "as soon as possible", Iran said after rare talks on Saturday, as US President Donald Trump threatens military action if they fail to reach a deal.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800119-20250413.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800119-20250413.htm](https://news.rthk.hk/rthk/en/component/k2/1800119-20250413.htm)
 
 ---

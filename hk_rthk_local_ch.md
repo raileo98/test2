@@ -1,3 +1,27 @@
+# 董經緯：中國不是過去的中國　犯我安全者必遭回擊
+
+![董經緯說，國家利益高於一切，反華勢力亡我之心不死，鬥爭較量沒有窮期。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800429_1_20250415114309.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行，中央駐港維護國家安全公署署長董經緯表示，當下霸權國家極限施壓，大國博弈日趨激烈，但香港加快由治及興、積極融入國家發展大局。香港國安及法治體系健全完善，國家安全屏障不斷得以夯實，特別是政權安全、制度安全、意識形態安全，以及重點領域安全得到有力維護。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800429-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800429-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800429-20250415.htm)
+
+---
+
 # 夏寶龍：香港看似平靜實則暗流湧動　安全形勢仍嚴峻複雜
 
 ![夏寶龍表示，每個人、每個社團、每一個企業，每一個組織都要與香港同胞一道，與全國人民一起保衛香港，保衛國家。（國務院港澳辦）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800422_1_20250415111712.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800230-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800230-20250414.htm)
-
----
-
-# 本港多間機構在第50屆「日內瓦國際發明展」獲獎
-
-![「日內瓦國際發明展」今年有超過1000項來自45個國家及地區的創新發明，由國際專家評判團選出各獎項。（網站截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800229_1_20250414100050.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-本港多間機構在第50屆「日內瓦國際發明展」中獲獎，其中香港大學贏得32個獎項，包括1個特別大獎、7個評判特別嘉許金獎、8個金獎、9個銀獎及7個銅獎，獲獎項目包括可在社區廣泛執行早期疾病檢測的多模態醫學篩查平台 、隨身AI血壓計。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800229-20250414.htm)
 
 ---

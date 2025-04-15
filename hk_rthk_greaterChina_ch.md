@@ -1,3 +1,27 @@
+# 董經緯：中國不是過去的中國　犯我安全者必遭回擊
+
+![董經緯說，國家利益高於一切，反華勢力亡我之心不死，鬥爭較量沒有窮期。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800429_1_20250415114309.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行，中央駐港維護國家安全公署署長董經緯表示，當下霸權國家極限施壓，大國博弈日趨激烈，但香港加快由治及興、積極融入國家發展大局。香港國安及法治體系健全完善，國家安全屏障不斷得以夯實，特別是政權安全、制度安全、意識形態安全，以及重點領域安全得到有力維護。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800429-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800429-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800429-20250415.htm)
+
+---
+
 # 國家移民管理局：首季度1.63億人次出入境　按年升15.3%
 
 ![林勇勝稱，今年首季度全國口岸累計出入境人次1億6300萬，較去年同期上升15.3%。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800425_2_20250415112943.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800094-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800094-20250412.htm)
-
----
-
-# 中國駐緬甸大使館：大地震導致8名中國公民死亡
-
-![中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800089_1_20250412184342.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-新華社報道，中國駐緬甸大使館確認，截至下午5時，緬甸大地震已造成8名中國公民死亡、13人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm](https://news.rthk.hk/rthk/ch/component/k2/1800089-20250412.htm)
 
 ---

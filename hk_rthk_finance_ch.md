@@ -1,3 +1,51 @@
+# 內地股市半日偏軟
+
+![滬深股市半日走勢偏軟，上證綜合指數上午收市報3260點，跌2點。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800430_1_20250415113940.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+滬深股市半日走勢偏軟，軍工電子、免稅店相關股份跌幅較大；美容護理、食品加工製造、電商板塊升幅較大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800430-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800430-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800430-20250415.htm)
+
+---
+
+# 國家移民管理局：首季度1.63億人次出入境　按年升15.3%
+
+![林勇勝稱，今年首季度全國口岸累計出入境人次1億6300萬，較去年同期上升15.3%。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800425_2_20250415112943.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+國家移民管理局公布，今年首季度全國口岸累計出入境人次1億6300萬，較去年同期上升15.3%。其中，内地居民超過8027萬人次，按年增長15.4%；港澳台居民約6572萬人次，按年上升11.2%；外國人約1743萬人次，按年增長33.4%。另外，共查驗出入境交通運輸工具849萬5千架次，較去年同期上升15.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800425-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800425-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800425-20250415.htm)
+
+---
+
 # 映恩生物首日掛牌股價升逾1倍　公司料最快明年首款藥物商業化
 
 ![朱忠遠（右）稱公司未來將與更多跨國藥企合作，繼續推動臨床階段資產開發。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800421_1_20250415110508.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -163,6 +211,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800408-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800408-20250415.htm)
+
+---
+
+# 《環看天下》：習近平訪東南亞三國　分析：中國力量區內不可或缺
+
+![中共中央總書記、國家主席習近平在越共中央駐地同越共中央總書記蘇林舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800406_1_20250415094222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+中共中央總書記、國家主席習近平本星期展開對越南、馬來西亞、柬埔寨的國事訪問，是他今年首次出訪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm)
 
 ---
 
@@ -1366,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800298-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800298-20250414.htm)
-
----
-
-# 日股收市升幅收窄至近400點
-
-![日經指數收報33982點，升396點，升幅1.2%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800297_1_20250414144316.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-日股反彈。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800297-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800297-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800297-20250414.htm)
-
----
-
-# 韓正︰中國堅定不移打造一流營商環境　為各國企業提供更優質服務
-
-![韓正在海南海口出席一系列活動。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800296_1_20250414143517.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-國家副主席韓正表示，中國將堅定不移推動海南自由貿易港建設，充分發揮海南自由貿易港對外開放的重要門戶作用，讓各國企業更好參與中國新發展格局。中國將堅定不移打造一流營商環境，為各國企業提供更優質的服務保障，歡迎全球投資者積極投資中國、投資海南自由貿易港，共享中國發展機遇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm)
-
----
-
-# 轉數快擬周日凌晨1時至上午11時進行系統提升
-
-![轉數快擬周日凌晨1時至上午11時系統提升，金管局已要求銀行及儲值支付工具營運商預早通知客戶。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800293_1_20250414142332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-香港銀行同業結算公司計劃星期日凌晨1時至上午11時，為轉數快系統進行系統提升，轉數快系統將於上述時段內暫停服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800293-20250414.htm)
 
 ---

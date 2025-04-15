@@ -1,3 +1,75 @@
+# 美國商務部對進口半導體及藥物展開國家安全調查
+
+![特朗普曾多次表示，計劃向藥物及半導體另設進口關稅。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800427_1_20250415113421.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+美國商務部對進口半導體及藥物展開國家安全調查。外界估計，調查是為向這兩類產品徵收關稅鋪路。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800427-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800427-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800427-20250415.htm)
+
+---
+
+# 內地股市半日偏軟
+
+![滬深股市半日走勢偏軟，上證綜合指數上午收市報3260點，跌2點。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800430_1_20250415113940.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+滬深股市半日走勢偏軟，軍工電子、免稅店相關股份跌幅較大；美容護理、食品加工製造、電商板塊升幅較大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800430-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800430-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800430-20250415.htm)
+
+---
+
+# 董經緯：中國不是過去的中國　犯我安全者必遭回擊
+
+![董經緯說，國家利益高於一切，反華勢力亡我之心不死，鬥爭較量沒有窮期。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800429_1_20250415114309.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行，中央駐港維護國家安全公署署長董經緯表示，當下霸權國家極限施壓，大國博弈日趨激烈，但香港加快由治及興、積極融入國家發展大局。香港國安及法治體系健全完善，國家安全屏障不斷得以夯實，特別是政權安全、制度安全、意識形態安全，以及重點領域安全得到有力維護。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800429-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800429-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800429-20250415.htm)
+
+---
+
 # 國家移民管理局：首季度1.63億人次出入境　按年升15.3%
 
 ![林勇勝稱，今年首季度全國口岸累計出入境人次1億6300萬，較去年同期上升15.3%。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800425_2_20250415112943.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1366,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm)
-
----
-
-# 高盛首季收入升6%　勝預期
-
-![高盛上季收入升6%至150.6億美元，高於預期。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800349_1_20250414203344.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-投資銀行高盛上季盈利45.8億美元，按年升近17%。經調整每股盈利14.12美元，高過市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800349-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800349-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800349-20250414.htm)
-
----
-
-# 港交所稱旗下碳信用交易市場平台正探索其他潛在產品　以擴生態圈
-
-![周冠英表示，港交所的碳信用交易市場平台Core Climate正在探索其他潛在產品，以擴大市場生態圈。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800345_1_20250414201636.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-港交所首席可持續發展總監周冠英表示，雖然港交所的碳信用交易市場平台Core Climate，提供的產品目前以碳信用為主，但亦正在探索其他潛在產品，以擴大市場生態圈，為市場參與者提供更多選擇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800345-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800345-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800345-20250414.htm)
-
----
-
-# 蔡若蓮：協助香港高校探索創新辦學模式　推動大灣區內校園合作
-
-![蔡若蓮說，特區政府會協助香港高等院校探索採用更靈活及創新的辦學模式。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800350_1_20250414214456.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-教育局局長蔡若蓮說，特區政府會繼續積極參與及推動大灣區高等教育合作，協助香港高等院校探索採用更靈活及創新的辦學模式，推動其香港及大灣區內地城市校園的更緊密合作，致力培育國家發展所需的優秀人才。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800350-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800350-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800350-20250414.htm)
 
 ---
