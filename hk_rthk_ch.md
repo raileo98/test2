@@ -1,6 +1,6 @@
 # 國家移民管理局：首季度1.63億人次出入境　按年升15.3%
 
-![林勇勝稱，今年首季度全國口岸累計出入境人次1億6300萬，較去年同期上升15.3%。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800425_1_20250415111312.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![林勇勝稱，今年首季度全國口岸累計出入境人次1億6300萬，較去年同期上升15.3%。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800425_2_20250415112943.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 國家移民管理局公布，今年首季度全國口岸累計出入境人次1億6300萬，較去年同期上升15.3%。其中，内地居民超過8027萬人次，按年增長15.4%；港澳台居民約6572萬人次，按年上升11.2%；外國人約1743萬人次，按年增長33.4%。另外，共查驗出入境交通運輸工具849萬5千架次，較去年同期上升15.5%。
@@ -146,6 +146,9 @@
 
 ![李家超表示，關稅戰改變世界貿易秩序，香港有危有機。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800415_1_20250415104053.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
+
+行政長官李家超表示，美國打擊中國和香港特區的肆意妄為已變成狂態。近期以貿易作武器，對香港施加145%的所謂對等關稅，李家超批評美方荒謬亦計錯數，因本港是零關稅，對等的話應該是零，認為展現美國滿口歪理。
+
   
 
 
