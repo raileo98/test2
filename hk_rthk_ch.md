@@ -1,3 +1,26 @@
+# 天文台上午錄得最高氣溫31.3度　今年以來最高紀錄
+
+  
+
+本港天文台今早錄得最高氣溫31.1度 ，是今年以來最高紀錄 。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800432-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800432-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800432-20250415.htm)
+
+---
+
 # 美國商務部對進口半導體及藥物展開國家安全調查
 
 ![特朗普曾多次表示，計劃向藥物及半導體另設進口關稅。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800427_1_20250415113421.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -168,7 +191,7 @@
 
 # 鄭雁雄指忘卻修例風波慘痛教訓危險　維護國安只有進行時無局外人
 
-![鄭雁雄表示，中央對特區打造高水平安全護航高質量發展提出了殷切希望。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800418_1_20250415110246.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800418_1_20250415110246.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行，中聯辦主任鄭雁雄表示，中央對特區打造高水平安全護航高質量發展提出了殷切希望，行政長官李家超對港澳辦主任夏寶龍講話的精神解讀準確、落實到位，駐港聯絡辦將全面落實好中央要求，全力支持行政長官和特區政府，將中央寄望變成實際行動。
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800351-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800351-20250414.htm)
-
----
-
-# 石破茂：日本不打算在對美貿易談判中作重大讓步　不急於達成協議
-
-![石破茂表示，日本不打算在談判中作出重大讓步，亦不急於達成協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800352_1_20250414211059.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-日本與美國將於星期四在華盛頓展開貿易談判，預計會涉及關稅、非關稅壁壘和匯率等議題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm)
 
 ---

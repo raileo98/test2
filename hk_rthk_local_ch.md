@@ -1,3 +1,26 @@
+# 天文台上午錄得最高氣溫31.3度　今年以來最高紀錄
+
+  
+
+本港天文台今早錄得最高氣溫31.1度 ，是今年以來最高紀錄 。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800432-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800432-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800432-20250415.htm)
+
+---
+
 # 董經緯：中國不是過去的中國　犯我安全者必遭回擊
 
 ![董經緯說，國家利益高於一切，反華勢力亡我之心不死，鬥爭較量沒有窮期。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800429_1_20250415114309.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -48,7 +71,7 @@
 
 # 鄭雁雄指忘卻修例風波慘痛教訓危險　維護國安只有進行時無局外人
 
-![鄭雁雄表示，中央對特區打造高水平安全護航高質量發展提出了殷切希望。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800418_1_20250415110246.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800418_1_20250415110246.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行，中聯辦主任鄭雁雄表示，中央對特區打造高水平安全護航高質量發展提出了殷切希望，行政長官李家超對港澳辦主任夏寶龍講話的精神解讀準確、落實到位，駐港聯絡辦將全面落實好中央要求，全力支持行政長官和特區政府，將中央寄望變成實際行動。
@@ -1412,31 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800241-20250414.htm)
-
----
-
-# 有學校舉辦不同活動加強國民國安教育　學生稱長知識添趣味
-
-![升旗隊每星期都有訓練。（周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800230_1_20250414091222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-![學校舉辦有獎問答遊戲，每星期根據不同主題準備選擇題。（周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800230_2_20250414091222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-![副校長袁見明說學校透過不同方式教授國民教育，期望學生自主學習。 （周國安攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800230_4_20250414091222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-明日迎來第十個「全民國家安全教育日」，有學校經常舉辦多項活動，讓學生認識國家，包括設立升旗隊、舉辦問答比賽等，亦設立「校史室暨國民教育資料館」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800230-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800230-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800230-20250414.htm)
 
 ---
