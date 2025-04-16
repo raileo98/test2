@@ -29,6 +29,7 @@ from requests_cache import CachedResponse
 import logging
 
 setattr(CachedResponse, "lazy", False) # https://github.com/jawah/niquests/issues/241
+niquests.packages.urllib3.util.ssl_.IS_FIPS = False # "Preemptively disabled QUIC (HTTP/3 included) with interpreter built with FIPS-compliant SSL module.   Our QUIC implementation isn't FIPS-compliant for the moment. To force using non-FIPS QUIC implementation,   please patch ``urllib3.util.ssl_.IS_FIPS`` and set it to ``False``." from https://github.com/jawah/urllib3.future/blob/4e1f7a3ef05af11399535e6f2a416ee37bde9d95/CHANGES.rst#L183
 
 # 設置日誌
 logging.basicConfig(level=logging.INFO)
