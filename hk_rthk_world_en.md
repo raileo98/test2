@@ -1,3 +1,51 @@
+# White House limits newswire access to Trump
+
+![About 10 outlets follow the US president wherever he goes, whether it is a meeting in the Oval Office or trips at home or abroad. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800653_1_20250416174532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Wire services including Reuters and Bloomberg News will no longer hold a permanent slot in the small pool of reporters who cover US President Donald Trump, the White House has said, as it moves to exert greater control over who gets to ask him questions and report on his statements in real time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800653-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800653-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800653-20250416.htm)
+
+---
+
+# Top UK court goes with 'biological' in gender ruling
+
+![The issue has drawn protests from both sides of the divide ahead of the Supreme Court ruling in London. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800652_1_20250416174355.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+The United Kingdom's top court on Wednesday upheld an appeal by a campaign group on whether transgender women are legally women under equality legislation, ruling that the law referred to a "biological woman and biological sex".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800652-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800652-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800652-20250416.htm)
+
+---
+
 # Good chance for US-UK trade deal: Vance
 
 ![US Vice President JD Vance spoke of the potential of a big trade deal between the US and Britain. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800604_1_20250416120717.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1387,53 +1435,5 @@ The United States has backtracked on emergency food aid cuts it announced for 14
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799695-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799695-20250410.htm)
-
----
-
-# Israel says it's seizing 'large areas' of Gaza
-
-![Palestinian rescuers work at the site of an Israeli strike on a residential area in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799691_1_20250410071647.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
-  
-
-Israel said on Wednesday its troops were seizing "large areas" in Gaza and making the Palestinian territory "smaller and more isolated", as an air strike on a residential block killed at least 23 people.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799691-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799691-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799691-20250410.htm)
-
----
-
-# France cuts growth forecast for 2025 on tariff fears
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799688_1_20250410064059.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-The French government has cut its growth forecast for 2025 because of the uncertainty over world trade, the economy minister said on Wednesday just hours after US President Donald Trump paused a massive hike in tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799688-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799688-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799688-20250410.htm)
 
 ---

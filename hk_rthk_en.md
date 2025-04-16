@@ -1,3 +1,27 @@
+# Top UK court goes with 'biological' in gender ruling
+
+![The issue has drawn protests from both sides of the divide ahead of the Supreme Court ruling in London. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800652_1_20250416174355.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+The United Kingdom's top court on Wednesday upheld an appeal by a campaign group on whether transgender women are legally women under equality legislation, ruling that the law referred to a "biological woman and biological sex".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800652-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800652-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800652-20250416.htm)
+
+---
+
 # Parking, traffic tickets could soon cost more: source
 
 ![According to an RTHK source, metered parking spaces could be increased to HK$4 per 15 minutes, double the current rate. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800648_1_20250416165928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ The European Union on Monday announced a new three-year financial support packag
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800386-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800386-20250415.htm)
-
----
-
-# Stocks rally worldwide after Trump eases some tariffs
-
-![Apple and other tech companies helped lift Wall Street after President Trump said he was exempting electronics from some of his stiff tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800379_1_20250415061332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-Stocks rose worldwide on Monday after US President Donald Trump relaxed some of his tariffs, for now at least, and as stress from within the US bond market seems to be easing.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800379-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800379-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800379-20250415.htm)
 
 ---
