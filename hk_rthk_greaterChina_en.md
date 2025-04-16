@@ -1,3 +1,27 @@
+# Beijing picks veteran as trade envoy
+
+![Li Chenggang has served as ambassador to the World Trade Organization and deputy permanent representative to the United Nations in Geneva. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800622_1_20250416134648.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+China said on Wednesday that it has appointed a new trade envoy as the world's second-largest economy pushes back against US President Donald Trump's swingeing tariffs on imports that sent global markets tumbling.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800622-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800622-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800622-20250416.htm)
+
+---
+
 # More cities in China chalking up home price gains
 
 ![Shenzhen is among first-tier cities in China that saw property prices rise. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800599_1_20250416115925.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
@@ -1411,29 +1435,5 @@ China urged the United States to correct its wrongful imposition of reciprocal t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm)
-
----
-
-# 'Not the season' as MH370 search suspended
-
-![Relatives of the missing MH370 passengers gather in Beijing last month on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798795_1_20250403145825.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-The latest search for Malaysia Airlines flight MH370 has been suspended as it is "not the season", the country's transport minister said, more than a decade after the plane went missing.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm)
 
 ---

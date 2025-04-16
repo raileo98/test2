@@ -1,3 +1,50 @@
+# NBA季後賽附加賽　勇士及魔術分別勝出晉級
+
+![占美畢拿及史堤芬居里是今場勇士贏波功臣。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800618_1_20250416132713.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+NBA季後賽附加賽，金州勇士121:116擊敗孟菲斯灰熊，晉身季後賽，將會面對西岸二號種子休斯敦火箭。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800618-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800618-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800618-20250416.htm)
+
+---
+
+# 李成鋼獲任命為商務部國際貿易談判代表兼副部長
+
+  
+
+國務院任免一批國家工作人員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800621-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800621-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800621-20250416.htm)
+
+---
+
 # 小鵬汽車：香港擁有非常多人才　具有全球視野和思維
 
 ![顧宏地（右）稱香港作為國際化及資本市場高地，公司需要佔有一席之地。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800619_1_20250416133946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -740,7 +787,7 @@
 
 ---
 
-# 內地首季經濟按年增長5.4%　經濟實現良好開局
+# 內地首季經濟按年增長5.4%　實現良好開局
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800576_1_20250416095735.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   

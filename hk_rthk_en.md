@@ -1,3 +1,27 @@
+# Beijing picks veteran as trade envoy
+
+![Li Chenggang has served as ambassador to the World Trade Organization and deputy permanent representative to the United Nations in Geneva. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800622_1_20250416134648.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+China said on Wednesday that it has appointed a new trade envoy as the world's second-largest economy pushes back against US President Donald Trump's swingeing tariffs on imports that sent global markets tumbling.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800622-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800622-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800622-20250416.htm)
+
+---
+
 # Barcelona, PSG into Champions League final four
 
 ![Barcelona's Robert Lewandowski celebrates after an own goal by Borussia Dortmund's Ramy Bensebaini. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800620_1_20250416134150.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@ Financial Secretary Paul Chan said on Monday the global trade war could endanger
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800336-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800336-20250414.htm)
-
----
-
-# Katy Perry in all-woman trip to edge of space
-
-![Set for the latest Blue Origin launch are, clockwise from left, Lauren Sanchez, former Nasa scientist Amanda Nguyen, Katy Perry, TV presenter Gale King, former Nasa scientist Aisha Bowe and film producer Kerianne Flynn. Photo: courtesy of Blue Origin](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800335_1_20250414181137.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-Pop star Katy Perry will be the biggest name in an all-woman group set to touch the edge of space on Monday, roaring into the cosmos on one of billionaire Jeff Bezos' rockets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800335-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800335-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800335-20250414.htm)
 
 ---
