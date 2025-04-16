@@ -1,3 +1,75 @@
+# 韓股收市跌1.2%
+
+![首爾綜合指數2447點，跌29點，跌幅1.21%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800630_1_20250416143846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+南韓股市下挫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800630-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800630-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800630-20250416.htm)
+
+---
+
+# 日股跌1%收市
+
+![日經指數收報33920點，跌347點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800629_1_20250416143504.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+東京股市下挫約1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800629-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800629-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800629-20250416.htm)
+
+---
+
+# 財政部發布今年超長期特別國債發行下周四啟動
+
+![財政部發布今年超長期特別國債發行通知，下周四啟動，歷時近半年，共將發行21期。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800628_1_20250416143009.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+財政部發布今年超長期特別國債發行通知，下周四啟動，10月上旬結束，歷時近半年，共將發行21期，當中20年佔6期，30年及50年分別佔12期及3期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800628-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800628-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800628-20250416.htm)
+
+---
+
 # 台股低收近2%
 
 ![台灣加權指數收報19468點，跌389點，跌幅1.96%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800626_1_20250416142219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)

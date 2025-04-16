@@ -1,3 +1,51 @@
+# 韓股收市跌1.2%
+
+![首爾綜合指數2447點，跌29點，跌幅1.21%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800630_1_20250416143846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+南韓股市下挫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800630-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800630-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800630-20250416.htm)
+
+---
+
+# 日股跌1%收市
+
+![日經指數收報33920點，跌347點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800629_1_20250416143504.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+東京股市下挫約1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800629-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800629-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800629-20250416.htm)
+
+---
+
 # 財政部發布今年超長期特別國債發行下周四啟動
 
 ![財政部發布今年超長期特別國債發行通知，下周四啟動，歷時近半年，共將發行21期。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800628_1_20250416143009.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1385,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800473-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800473-20250415.htm)
-
----
-
-# 陳子達稱面對新關稅政策　亞太區成員需加強商貿夥伴關係
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800470_1_20250415155545.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-香港海關與東盟秘書處聯合舉辦一連三日的電子商貿優化流程與典範實務會議。海關關長陳子達見記者時表示，最近全球性的新關稅政策已為世界貿易的未來，帶來很大挑戰及不確定性，在這個關鍵時刻，亞太區成員之間更加要團結一起，致力推動多邊協作，建立更緊密合作和互信，加強商貿夥伴關係，共同應對環球風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800470-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800470-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800470-20250415.htm)
-
----
-
-# 謝展寰料本港首個轉廢為能設施年底投入運作
-
-![謝展寰表示，本港計劃在2035年之前全面停止燃煤。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800469_1_20250415154753.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-環境及生態局局長謝展寰表示，目前香港有大約20%的電力來自燃煤發電，計劃在2035年之前全面停止燃煤，目前正與內地加強合作，增加輸入淨零排放的電力，包括提升內地與香港之間的輸送電力設施，以及規劃建立新的基建接收額外淨零排放能源。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800469-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800469-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800469-20250415.htm)
 
 ---
