@@ -1,3 +1,26 @@
+# 習近平與安華見證中馬官員交換合作文件包括建立外交國防對話機制
+
+  
+
+國家主席習近平與馬來西亞總理安華，見證兩國官員交換多份合作文件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800659-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800659-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800659-20250416.htm)
+
+---
+
 # 習近平晤安華　稱中馬關係正迎來新的黃金時代
 
   
@@ -454,7 +477,7 @@
 
 # 李強：要沉著冷靜應對外部衝擊帶來的困難挑戰　以更大力度擴內需
 
-![李強在北京調研。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800509_1_20250415203218.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800509_1_20250415203218.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 國務院總理李強在北京調研時強調，要沉著冷靜應對外部衝擊帶來的困難挑戰，以更大力度促進消費、擴大內需、做強國內大循環，進一步釋放國家超大規模市場的活力潛力。
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800287-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800287-20250414.htm)
-
----
-
-# 分析：內地或需進一步發債直接支持基建及消費應對貿易戰
-
-![吳卓殷指出上月內地出口仍錄得增長，可能反映企業因應關稅提早出貨。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800286_1_20250414133323.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-內地3月以美元計價出口按年增長12.4%，創5個月以來最快增速；進口下跌4.3%。首季出口按年增長5.8%，進口下跌7%，貿易順差約2730億美元；期內對美國出口按年增長4.5%，自美國進口按年跌1.4%，期內中國對美國貿易順差766.5億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800286-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800286-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800286-20250414.htm)
 
 ---

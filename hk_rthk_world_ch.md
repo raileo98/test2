@@ -1,3 +1,26 @@
+# 習近平與安華見證中馬官員交換合作文件包括建立外交國防對話機制
+
+  
+
+國家主席習近平與馬來西亞總理安華，見證兩國官員交換多份合作文件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800659-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800659-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800659-20250416.htm)
+
+---
+
 # 習近平晤安華　稱中馬關係正迎來新的黃金時代
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm)
-
----
-
-# 習近平抵越南國事訪問　冀與越南領袖就兩黨兩國關係問題交換意見
-
-![習近平乘專機抵達河內國際機場。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800332_1_20250414175126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-中共中央總書記、國家主席習近平展開東南亞三國的國事訪問行程，中午左右抵達首站越南首都河內，越南國家主席梁強等黨政領導人到機場迎接。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 旺角東失蹤外籍女子已尋回　女事主沒受傷案件沒可疑
+
+  
+
+較早前在旺角東失蹤的27歲外籍女子已被尋回，警方表示，女事主沒有受傷，案件沒有可疑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800660-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800660-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800660-20250416.htm)
+
+---
+
 # 有建造業個案貿然簽署表格　工程師學會前會長卜國明譴責不當行為
 
   
@@ -216,6 +239,7 @@
 # 有市民稱停收措施不便　將暫停寄郵包予美國親友
 
 ![香港郵政宣布暫停接收寄往美國內載貨品的郵遞服務，在尖沙咀一間郵局，有市民說會暫停寄件。（余思嵐攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800627_1_20250416144437.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+![香港郵政宣布暫停接收寄往美國內載貨品的郵遞服務，平郵即日起暫停，空郵方面則將於4月27日起暫停；其他只內載文件而沒有貨品的郵件則不受影響。（余思嵐攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800627_2_20250416182007.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 香港郵政宣布暫停接收寄往美國內載貨品的郵遞服務，平郵即日起暫停，空郵方面則將於4月27日起暫停；其他只內載文件而沒有貨品的郵件則不受影響。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800459-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800459-20250415.htm)
-
----
-
-# 陳國基指軟對抗手法多變領域廣　危害不亞於硬對抗
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800452_1_20250415145040.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-全民國家安全教育日開幕禮及主題講座，早上在會展舉行，主題講座題為「軟對抗的迷惑性和對安全和發展的破壞力」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800452-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800452-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800452-20250415.htm)
 
 ---

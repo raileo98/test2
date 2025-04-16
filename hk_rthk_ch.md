@@ -1,3 +1,49 @@
+# 旺角東失蹤外籍女子已尋回　女事主沒受傷案件沒可疑
+
+  
+
+較早前在旺角東失蹤的27歲外籍女子已被尋回，警方表示，女事主沒有受傷，案件沒有可疑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800660-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800660-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800660-20250416.htm)
+
+---
+
+# 習近平與安華見證中馬官員交換合作文件包括建立外交國防對話機制
+
+  
+
+國家主席習近平與馬來西亞總理安華，見證兩國官員交換多份合作文件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800659-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800659-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800659-20250416.htm)
+
+---
+
 # 有建造業個案貿然簽署表格　工程師學會前會長卜國明譴責不當行為
 
   
@@ -503,6 +549,7 @@
 # 有市民稱停收措施不便　將暫停寄郵包予美國親友
 
 ![香港郵政宣布暫停接收寄往美國內載貨品的郵遞服務，在尖沙咀一間郵局，有市民說會暫停寄件。（余思嵐攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800627_1_20250416144437.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+![香港郵政宣布暫停接收寄往美國內載貨品的郵遞服務，平郵即日起暫停，空郵方面則將於4月27日起暫停；其他只內載文件而沒有貨品的郵件則不受影響。（余思嵐攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800627_2_20250416182007.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 香港郵政宣布暫停接收寄往美國內載貨品的郵遞服務，平郵即日起暫停，空郵方面則將於4月27日起暫停；其他只內載文件而沒有貨品的郵件則不受影響。
