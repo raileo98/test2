@@ -1,3 +1,27 @@
+# 歐聯阿仙奴與國際米蘭分別晉級四強
+
+![阿仙奴晉級歐聯四強。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800715_1_20250417073500.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+歐聯四強全部產生。阿仙奴與國際米蘭分別取得最後兩個準決賽席位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800715-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800715-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800715-20250417.htm)
+
+---
+
 # 港股美國預託證券與本港收市比較個別發展
 
 ![滙控ADR較本港收市升逾1%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800712_1_20250417065108.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800635-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800635-20250416.htm)
-
----
-
-# 滬股倒升約0.3%收市　深股及創業板指數跌幅收窄
-
-![上證綜合指數一度跌1%，收市報3276點，升8點，升幅0.26%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800634_1_20250416151548.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-滬深股市尾市轉強，滬股更倒升收市。電源設備、蘋果概念股等板塊下跌；貴金屬、港口航運、旅遊及酒店板塊上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800634-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800634-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800634-20250416.htm)
 
 ---

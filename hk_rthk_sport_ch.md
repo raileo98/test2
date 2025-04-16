@@ -1,3 +1,27 @@
+# 歐聯阿仙奴與國際米蘭分別晉級四強
+
+![阿仙奴晉級歐聯四強。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800715_1_20250417073500.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+歐聯四強全部產生。阿仙奴與國際米蘭分別取得最後兩個準決賽席位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800715-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800715-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800715-20250417.htm)
+
+---
+
 # 中超浙江隊28歲外援布彭扎離世
 
 ![中超浙江隊28歲外援布彭扎離世](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800670_1_20250416203016.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1419,29 +1443,5 @@ NBA季後賽附加賽，金州勇士121:116擊敗孟菲斯灰熊，晉身季後�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798078-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798078-20250330.htm)
-
----
-
-# 德甲拜仁3:2挫聖保利
-
-![拜仁球員慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798066_1_20250330011528.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-德國甲組足球聯賽，拜仁慕尼黑主場3:2擊敗受降班威脅的聖保利。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798066-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798066-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798066-20250330.htm)
 
 ---

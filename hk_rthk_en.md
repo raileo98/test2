@@ -1,3 +1,27 @@
+# California sues US govt over Trump tariffs
+
+![Governor Newsom's office says California could lose billions of dollars in revenue if Trump's tariff policies shrink international trade. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800716_1_20250417073913.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+California is suing the federal government over Donald Trump's on-again-off-again tariffs, the governor and attorney general said on Wednesday, claiming the American president does not have the right to impose them.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800716-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800716-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800716-20250417.htm)
+
+---
+
 # Police warn of surge in online shopping fraud
 
 ![Police say there were 11,559 cases involving online shopping fraud last year - a more than 29 percent year-on-year increase. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800706_1_20250417055512.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@ Beijing's top official overseeing SAR affairs on Tuesday slammed the United Stat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800428-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800428-20250415.htm)
-
----
-
-# Judge stops US move to revoke legal status of migrants
-
-![The Trump administration has been moving quickly to deport migrants such as this group of Venezuelans back to their countries of origin or any place that accepts them. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800431_1_20250415114340.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-A federal judge has blocked US President Donald Trump's administration from quickly revoking the legal status of hundreds of thousands of immigrants from Venezuela, Cuba, Nicaragua and Haiti.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800431-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800431-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800431-20250415.htm)
 
 ---
