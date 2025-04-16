@@ -1,3 +1,51 @@
+# 港股美國預託證券與本港收市比較個別發展
+
+![滙控ADR較本港收市升逾1%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800712_1_20250417065108.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+港股美國預託證券（ADR）與本港收市比較個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800712-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800712-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800712-20250417.htm)
+
+---
+
+# 國際油價高收近2％
+
+![倫敦布蘭特期油和紐約期油收市升幅近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800711_1_20250417064940.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+國際油價升近2%，創約2星期收市高位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800711-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800711-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800711-20250417.htm)
+
+---
+
 # 現貨金突破3300美元創新高　紐約期金高收逾3%
 
 ![紐約期金收報每盎司3346.4美元，升幅逾3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800710_1_20250417062116.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800559-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800559-20250416.htm)
-
----
-
-# 現貨金突破3260美元創新高
-
-![現貨金一度觸及每盎司3266.65美元創新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800556_1_20250416082231.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-現貨金再創新高，一度觸及每盎司3266.65美元，較早時報3264.43美元，升幅1.14%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800556-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800556-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800556-20250416.htm)
-
----
-
-# 香港郵政即日起暫停接收寄美國平郵載貨郵件　空郵本月27日起停
-
-![香港郵政暫停寄往美國內載貨品的郵遞服務，平郵即日起暫停，空郵於4月27日起暫停。其他只內載文件而沒有貨品的郵件不受影響。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800561_2_20250416120423.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-香港郵政宣布暫停寄往美國內載貨品的郵遞服務，平郵方面即日起暫停，空郵方面則將於4月27日起暫停；至於其他只內載文件而沒有貨品的郵件則不受影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800561-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800561-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800561-20250416.htm)
 
 ---
