@@ -1,3 +1,27 @@
+# Frustration up over postal stop to US-bound parcels
+
+![Hongkong Post has suspended parcel services to the US via surface mail and will no longer offer air delivery services starting from April 27. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800602_1_20250416120157.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+Some locals have been left frustrated by Hongkong Post's announcement on Wednesday that it has suspended surface parcel deliveries to the United States with immediate effect.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800602-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800602-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800602-20250416.htm)
+
+---
+
 # Good chance for US-UK trade deal: Vance
 
 ![US Vice President JD Vance spoke of the potential of a big trade deal between the US and Britain. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800604_1_20250416120717.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1435,5 @@ Foreign investors' and workers’ confidence in Hong Kong remains positive despi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800325-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800325-20250414.htm)
-
----
-
-# Global tech leaders call for stronger collaboration
-
-![GSMA chief executive John Hoffman says China Mobile, China Telecom and China Unicom have helped in moves to unlock innovations in the mobile ecosystem. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800300_1_20250414160201.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Tech leaders from all over the world gathered in Hong Kong for the inaugural World Internet Conference Asia Pacific Summit on Monday, calling for stronger international partnerships in areas such as artificial intelligence, digital infrastructure and cybersecurity.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800300-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800300-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800300-20250414.htm)
 
 ---
