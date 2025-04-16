@@ -1,3 +1,27 @@
+# 中超浙江隊28歲外援布彭扎離世
+
+![中超浙江隊28歲外援布彭扎離世](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800670_1_20250416203016.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+加蓬足球協會證實，效力於中超浙江足球俱樂部的加蓬國腳布彭札意外離世，終年28歲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800670-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800670-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800670-20250416.htm)
+
+---
+
 # NBA季後賽附加賽　勇士及魔術分別勝出晉級
 
 ![占美畢拿及史堤芬居里是今場勇士贏波功臣。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800618_1_20250416132713.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1419,33 +1443,5 @@ NBA季後賽附加賽，金州勇士121:116擊敗孟菲斯灰熊，晉身季後�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798066-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798066-20250330.htm)
-
----
-
-# 七欖第二日賽事場內氣氛熱鬧　港隊男女子隊晉級銀劍賽決賽
-
-![賽事繼續吸引大批觀眾入場觀賽，不少人盛裝打扮。（游樹榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798021_3_20250329165525.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-![今日賽事在場館天幕打開下進行，場內氣氛熱鬧。（游樹榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798021_4_20250329165525.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-![李卡度賽後表示，場館天幕打開，令球場更光猛。（游樹榮攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798021_2_20250329165525.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-香港國際七人欖球賽在啟德體育園上演第二日賽事，繼續吸引大批觀眾入場觀賽，不少人盛裝打扮。
-  
-![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1798021_3_L_20250329165525.jpg)
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm)
 
 ---

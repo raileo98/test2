@@ -1,3 +1,27 @@
+# 商務部：美方將關稅工具化武器化已到毫無理性地步　中方不予理會
+
+![商務部稱，倘若美方執意繼續實質性侵害中方權益，中方將堅決反制，奉陪到底。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800671_1_20250416204255.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+  
+
+美國白宮網站發布關於關鍵礦產和衍生品232調查的有關事實清單，提到因為中國針對美國對等關稅採取報復措施，現在中國出口到美國的商品面臨最高達245%的關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800671-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800671-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800671-20250416.htm)
+
+---
+
 # 中國與埃及將舉行「文明之鷹-2025」空軍聯合訓練
 
 ![中國與埃及將舉行「文明之鷹-2025」空軍聯合訓練。 (國防部網頁截圖)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800667_1_20250416194337.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -48,6 +72,7 @@
 
 # 習近平與安華見證中馬官員交換合作文件包括建立外交國防對話機制
 
+![國家主席習近平與馬來西亞總理安華，見證兩國官員交換多份合作文件。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800659_1_20250416202518.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 國家主席習近平與馬來西亞總理安華，見證兩國官員交換多份合作文件。
@@ -380,7 +405,7 @@
 
 ---
 
-# 白宮重申特朗普對與中國達成協議持開始態度　球在中國一方
+# 白宮重申特朗普對與中國達成協議持開放態度　球在中國一方
 
 ![萊維特重申，總統特朗普已表明對與中國達成貿易協議持開放態度。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800537_1_20250416040856.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm)
-
----
-
-# 伊朗外交部：周六與美國舉行次輪間接會談　外長將先訪俄羅斯
-
-![在美伊首輪間接會談，伊朗外長阿拉格齊（左）透過阿曼外交大臣巴德爾（右）向美方傳遞政府立場。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800346_1_20250414202212.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-伊朗外交部發言人巴加埃表示，伊朗與美國在本星期六就解除制裁及核問題舉行第二輪間接會談前，外交部長阿拉格齊將會先到訪俄羅斯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm)
 
 ---

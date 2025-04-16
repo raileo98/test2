@@ -1,3 +1,27 @@
+# 陳揚帆辭任東方海外行政總裁　由張峰接任
+
+![陳揚帆辭任東方海外行政總裁，並由張峰接任，即日起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800669_1_20250416202228.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+東方海外公布，陳揚帆因工作崗位變動，辭任公司執行董事及行政總裁，並由張峰接任，即日起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800669-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800669-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800669-20250416.htm)
+
+---
+
 # 歐元區3月通脹率升幅回落至2.2%
 
 ![3月歐元區消費物價調和指數按年升2.2%，符合市場預期，較2月回落0.1個百分點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800663_1_20250416190221.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -1341,7 +1365,7 @@
 
 ---
 
-# 白宮重申特朗普對與中國達成協議持開始態度　球在中國一方
+# 白宮重申特朗普對與中國達成協議持開放態度　球在中國一方
 
 ![萊維特重申，總統特朗普已表明對與中國達成貿易協議持開放態度。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800537_1_20250416040856.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800526-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800526-20250416.htm)
-
----
-
-# 海關總署召開座談會　稱將加強政策供給　幫助企業解難題
-
-![海關總署表示，將著力提升通關便利化水平，幫助企業解難。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800521_1_20250415225152.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
-  
-
-中國海關總署召開進出口企業、行業協會商會座談會。海關總署署長孫梅君在會上表示，將著力提升通關便利化水平，加強政策供給，支持企業走出去；加強常態化溝通交流，幫助企業解難題、渡難關，穩訂單、拓市場，進一步促進外貿穩定發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800521-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800521-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800521-20250415.htm)
 
 ---

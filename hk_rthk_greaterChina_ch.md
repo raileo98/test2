@@ -1,3 +1,75 @@
+# 神舟二十號將於近日擇機發射
+
+![執行神舟二十號載人飛行任務的火箭船箭組合體，已轉運至發射區。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800672_1_20250416204843.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+神舟二十號載人飛船將於近日擇機實施發射，船箭組合體已轉運至發射區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800672-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800672-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800672-20250416.htm)
+
+---
+
+# 商務部：美方將關稅工具化武器化已到毫無理性地步　中方不予理會
+
+![商務部稱，倘若美方執意繼續實質性侵害中方權益，中方將堅決反制，奉陪到底。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800671_1_20250416204255.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+  
+
+美國白宮網站發布關於關鍵礦產和衍生品232調查的有關事實清單，提到因為中國針對美國對等關稅採取報復措施，現在中國出口到美國的商品面臨最高達245%的關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800671-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800671-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800671-20250416.htm)
+
+---
+
+# 中國地質調查局原局長鍾自然因受賄和故意洩露國家秘密判囚13年
+
+![中國地質調查局原局長鍾自然因受賄和故意洩露國家秘密判囚13年](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800668_1_20250416201928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+國家自然資源部前黨組成員，中國地質調查局前黨組書記、局長鍾自然受賄和故意洩露國家秘密案，在浙江省寧波市中級人民法院一審判監13年，罰款200萬元人民幣，沒收個人受賄犯罪財務及孳息，上繳國庫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800668-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800668-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800668-20250416.htm)
+
+---
+
 # 中國與埃及將舉行「文明之鷹-2025」空軍聯合訓練
 
 ![中國與埃及將舉行「文明之鷹-2025」空軍聯合訓練。 (國防部網頁截圖)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800667_1_20250416194337.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -48,6 +120,7 @@
 
 # 習近平與安華見證中馬官員交換合作文件包括建立外交國防對話機制
 
+![國家主席習近平與馬來西亞總理安華，見證兩國官員交換多份合作文件。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800659_1_20250416202518.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 國家主席習近平與馬來西亞總理安華，見證兩國官員交換多份合作文件。
@@ -1363,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm)
-
----
-
-# 外交部：特區政府有權依照相關法律及政策處理入境個案
-
-![林劍表示，香港特區政府有權依照相關的法律及政策，處理入境的個案。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800314_1_20250414160841.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-在北京，外交部回應一名英國國會議員被拒入境香港的事件，發言人林劍表示，香港特區政府已就此作出表態。他強調入境事務是一國主權範圍內的事，香港特區政府有權依照相關的法律及政策，處理入境的個案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800314-20250414.htm)
-
----
-
-# 中方對在涉藏問題表現惡劣美方人員對等採取簽證限制措施
-
-![外交部表示，中方決定對在涉藏問題上表現惡劣的美方人員，對等採取簽證限制措施。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800312_1_20250414155742.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-在北京，外交部發言人林劍表示，中方決定對在涉藏問題上表現惡劣的美方人員，對等採取簽證限制措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800312-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800312-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800312-20250414.htm)
-
----
-
-# 美國關稅政策反復修改　中方促美方放棄極限施壓並對話解決問題
-
-![林劍說，中方敦促美方放棄極限施壓的錯誤做法，在平等、尊重、互惠的基礎上，通過對話解決問題。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800310_1_20250414155936.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-在北京，外交部再次批評美方將關稅作為極限施壓、謀取私利的武器，將一己私利凌駕於國際社會公利，是典型的單邊主義、保護主義、經濟霸凌行徑，嚴重損害包括中歐在內的世界各國利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm)
 
 ---
