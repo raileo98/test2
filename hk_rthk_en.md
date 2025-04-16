@@ -1,3 +1,27 @@
+# AMD says US rule on chips to China will cost it US$800
+
+![AMD said the new US export control measure applies to MI308 graphics processing units designed for high-performance applications. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800718_1_20250417074230.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+Chip developer Advanced Micro Devices (AMD) on Wednesday said it expected new US licensing requirements for semiconductors exported to China to cost it as much as US$800 million.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800718-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800718-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800718-20250417.htm)
+
+---
+
 # California sues US govt over Trump tariffs
 
 ![Governor Newsom's office says California could lose billions of dollars in revenue if Trump's tariff policies shrink international trade. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800716_1_20250417073913.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ Chief Executive John Lee on Tuesday said Hong Kong will grasp the opportunities 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800433-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800433-20250415.htm)
-
----
-
-# Xia Baolong: United States after our very survival
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800428_1_20250415112731.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Beijing's top official overseeing SAR affairs on Tuesday slammed the United States for imposing heavy tariffs on Hong Kong, calling the move "extremely arrogant and shameless".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800428-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800428-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800428-20250415.htm)
 
 ---
