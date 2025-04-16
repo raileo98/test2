@@ -1,3 +1,27 @@
+# HK stocks hit as trade war shows no signs of abating
+
+![The benchmark Hang Seng Index ended down 1.91 percent at 21,056.98. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800647_1_20250416165556.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
+  
+
+Asian stocks swung on Wednesday after Nvidia's announcement of new US licensing rules on shipments of its new chip to China rattled investor confidence already shot by Donald Trump's sweeping trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800647-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800647-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800647-20250416.htm)
+
+---
+
 # Good chance for US-UK trade deal: Vance
 
 ![US Vice President JD Vance spoke of the potential of a big trade deal between the US and Britain. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800604_1_20250416120717.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1435,5 @@ Billionaire US presidential adviser Elon Musk said on Saturday he hoped Europe a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799077-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799077-20250406.htm)
-
----
-
-# Tariffs to raise inflation, cool growth: Fed Chair
-
-![Jerome Powell said on Friday that he expected the current uncertainty to decline in the coming months. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798991_1_20250405044209.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-US President Donald Trump's tariffs risk higher unemployment and will likely cause inflation to rise and growth to slow, Federal Reserve Chair Jerome Powell said on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm)
 
 ---

@@ -1,3 +1,27 @@
+# HK stocks hit as trade war shows no signs of abating
+
+![The benchmark Hang Seng Index ended down 1.91 percent at 21,056.98. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800647_1_20250416165556.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
+  
+
+Asian stocks swung on Wednesday after Nvidia's announcement of new US licensing rules on shipments of its new chip to China rattled investor confidence already shot by Donald Trump's sweeping trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800647-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800647-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800647-20250416.htm)
+
+---
+
 # Govt urged to beef up penalties for animal cruelty
 
 ![Animal welfare groups want tougher penalties for animal cruelty cases. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800640_1_20250416155930.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
@@ -1411,29 +1435,5 @@ Former Malaysian prime minister Abdullah Ahmad Badawi died on Monday, aged 85, h
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800359-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800359-20250414.htm)
-
----
-
-# China, Vietnam ink cooperation deals during Xi's visit
-
-![President Xi Jinping meets Vietnam's National Assembly chairman Tran Thanh Man in Hanoi. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800358_1_20250414215829.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-China and Vietnam on Monday signed dozens of cooperation agreements, strengthening ties between the two countries after President Xi Jinping warned that protectionism leads nowhere and that a trade war would have no winners.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800358-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800358-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800358-20250414.htm)
 
 ---
