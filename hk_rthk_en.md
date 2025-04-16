@@ -1,3 +1,27 @@
+# China and Malaysia to work together on trade
+
+![President Xi Jinping is in Malaysia as part of a three-nation Southeast Asian trip. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800666_1_20250416191212.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+  
+
+China and Malaysia will work together on trade, the economy and investment, President Xi Jinping and Malaysian Prime Minister Anwar Ibrahim said in the Malaysian capital on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800666-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800666-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800666-20250416.htm)
+
+---
+
 # Chinese EV maker XPeng eyes global expansion
 
 ![XPeng's founder He Xiaopeng says AI technology is key to the company's future. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800651_1_20250416182707.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1435,5 @@ Police in Harbin, in northeast Heilongjiang province, said on Tuesday they were 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800402-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800402-20250415.htm)
-
----
-
-# Blue Origin blasts all-female crew into space
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800397_1_20250415085946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Jeff Bezos’ Blue Origin launched his fiancee Lauren Sanchez into space on Monday with an all-female celebrity crew that included Katy Perry and Gayle King.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800397-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800397-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800397-20250415.htm)
 
 ---

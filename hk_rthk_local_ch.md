@@ -1,3 +1,49 @@
+# 運輸業輸入勞工計劃航空業第三輪批出2206個配額申請
+
+  
+
+運輸業輸入勞工計劃的航空業第三輪完成審批，34間合資格公司申請共3292個輸入勞工配額，涵蓋計劃下所有10個工種，包括地勤人員及機坪服務員等，經跨部門聯絡小組審批後，批出2206個配額申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800665-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800665-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800665-20250416.htm)
+
+---
+
+# 港鐵：本周六東涌綫東涌至欣澳站列車服務提前約2小時結束
+
+  
+
+港鐵公司提醒乘客，為配合東涌綫延綫第二次道岔安裝工序，本周六東涌綫東涌至欣澳站的列車服務將提前約2小時，即晚上11時許結束，屆時將安排免費接駁巴士往返東涌站及欣澳站。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800664-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800664-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800664-20250416.htm)
+
+---
+
 # 旺角東失蹤外籍女子已尋回　女事主沒受傷案件沒可疑
 
   
@@ -1386,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800464-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800464-20250415.htm)
-
----
-
-# 【足本重溫】港澳辦主任夏寶龍「全民國家安全教育日」視像講話
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800463_1_20250415151906.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-「全民國家安全教育日」開幕典禮暨主題講座早上在灣仔會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800463-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800463-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800463-20250415.htm)
-
----
-
-# 劉兆佳：美國將加強壓制抹黑　 黃大慧：需提高預警應對軟對抗
-
-![黃大慧（右）稱「軟對抗」表面上是提倡非暴力，但實際上是散播假消息迷惑公眾；劉兆佳（左）說，現今互聯網和社交媒體越來越發達，訊息傳遞無遠弗屆，維護國家安全無疑仍是香港要務。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800459_1_20250415145238.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-人民大學國際關係學院教授、國家安全交叉學科平台首席專家黃大慧表示，「軟對抗」表面上是提倡非暴力，但實際上是散播假消息迷惑公眾，軟對抗是西方國家認知戰理論的具體展現，近年已成為大國競爭和戰略博弈的新領域，是一場將公眾輿論武器化的意識形態戰爭。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800459-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800459-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800459-20250415.htm)
 
 ---

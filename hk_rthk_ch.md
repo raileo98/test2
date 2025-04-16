@@ -1,3 +1,73 @@
+# 運輸業輸入勞工計劃航空業第三輪批出2206個配額申請
+
+  
+
+運輸業輸入勞工計劃的航空業第三輪完成審批，34間合資格公司申請共3292個輸入勞工配額，涵蓋計劃下所有10個工種，包括地勤人員及機坪服務員等，經跨部門聯絡小組審批後，批出2206個配額申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800665-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800665-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800665-20250416.htm)
+
+---
+
+# 港鐵：本周六東涌綫東涌至欣澳站列車服務提前約2小時結束
+
+  
+
+港鐵公司提醒乘客，為配合東涌綫延綫第二次道岔安裝工序，本周六東涌綫東涌至欣澳站的列車服務將提前約2小時，即晚上11時許結束，屆時將安排免費接駁巴士往返東涌站及欣澳站。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800664-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800664-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800664-20250416.htm)
+
+---
+
+# 歐元區3月通脹率升幅回落至2.2%
+
+![3月歐元區消費物價調和指數按年升2.2%，符合市場預期，較2月回落0.1個百分點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800663_1_20250416190221.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+歐元區通脹率略為回落。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800663-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800663-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800663-20250416.htm)
+
+---
+
 # 中方：谷歌地圖更改標注不可能影響中國在南海主權和海洋權益
 
 ![中國駐菲律賓大使館表示，Google地圖更改相關地圖標注不可能影響中國在南海的主權和海洋權益。 （中國駐菲律賓大使館網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800661_1_20250416185332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)

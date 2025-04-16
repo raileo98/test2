@@ -1,3 +1,27 @@
+# China and Malaysia to work together on trade
+
+![President Xi Jinping is in Malaysia as part of a three-nation Southeast Asian trip. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800666_1_20250416191212.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+  
+
+China and Malaysia will work together on trade, the economy and investment, President Xi Jinping and Malaysian Prime Minister Anwar Ibrahim said in the Malaysian capital on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800666-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800666-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800666-20250416.htm)
+
+---
+
 # Beijing picks veteran as trade envoy
 
 ![Li Chenggang has served as ambassador to the World Trade Organization and deputy permanent representative to the United Nations in Geneva. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800622_1_20250416134648.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ China on Friday announced the imposition of tariffs of 34 percent on all goods f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm)
-
----
-
-# US should correct reciprocal tariffs: Foreign Ministry
-
-![Guo Jiakun says additional US tariffs on exports from China and other countries seriously violate World Trade Organization regulations. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798814_1_20250403164944.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-China urged the United States to correct its wrongful imposition of reciprocal tariffs and address economic and trade differences with China and other countries through negotiations, Foreign Ministry spokesman Guo Jiakun said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm)
 
 ---

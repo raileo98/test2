@@ -1,3 +1,27 @@
+# China and Malaysia to work together on trade
+
+![President Xi Jinping is in Malaysia as part of a three-nation Southeast Asian trip. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800666_1_20250416191212.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+  
+
+China and Malaysia will work together on trade, the economy and investment, President Xi Jinping and Malaysian Prime Minister Anwar Ibrahim said in the Malaysian capital on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800666-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800666-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800666-20250416.htm)
+
+---
+
 # German doctor charged over killing of 15 patients
 
 ![A patient in a palliative care ward in Berlin. Photo: DPA/AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800655_1_20250416175447.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@ Canadian Prime Minister Mark Carney is leaning into his banking background as hi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799735-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799735-20250410.htm)
-
----
-
-# Lego opens US$1bn factory in Vietnam
-
-![The new Vietnam factory is the Danish company's sixth worldwide and its second in Asia. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799734_1_20250410114928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Lego has opened a US$1 billion factory in Vietnam that it says will make toys without adding planet-warming gas to the atmosphere by relying entirely on clean energy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799734-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799734-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799734-20250410.htm)
 
 ---

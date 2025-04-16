@@ -1,3 +1,27 @@
+# 歐元區3月通脹率升幅回落至2.2%
+
+![3月歐元區消費物價調和指數按年升2.2%，符合市場預期，較2月回落0.1個百分點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800663_1_20250416190221.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+歐元區通脹率略為回落。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800663-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800663-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800663-20250416.htm)
+
+---
+
 # 經民聯提多項建議應對關稅戰　倡銀行向特殊需要客戶作體恤安排
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800654_1_20250416175438.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800521-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800521-20250415.htm)
-
----
-
-# 德國4月經濟景氣指數跌至負數　創俄烏戰事以來最大跌幅
-
-![德國4月經濟景氣指數，由3月的51.6急跌至負14。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800520_1_20250415221514.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-德國經濟研究機構ZEW表示，受到美國關稅引發的不確定性影響，4月經濟景氣指數，由3月的51.6急跌至負14，創2022年俄烏戰事以來最大跌幅。市場原本估計為9.5。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800520-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800520-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800520-20250415.htm)
 
 ---
