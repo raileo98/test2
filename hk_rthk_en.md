@@ -1,3 +1,27 @@
+# US Fed Chair warns tariffs may force it to choose goal
+
+![Jerome Powell says the US Federal Reserve could find itself in a "challenging scenario in which our dual-mandate goals are in tension." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800695_1_20250417024428.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Tariffs are likely to push up prices and could put the US Federal Reserve in the unenviable position of having to choose between tackling inflation and unemployment, the bank's chair said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800695-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800695-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800695-20250417.htm)
+
+---
+
 # WTO chief says 'very concerned' tariffs will cut trade
 
 ![WTO chief Ngozi Okonjo-Iweala says the body must "streamline its decision-making." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800694_1_20250417021537.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@ The world's leading maker of electric vehicle batteries, CATL, posted a 32.9 per
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm)
-
----
-
-# Local stocks rise at open
-
-![The Hang Seng Index rose 0.87 percent at the open on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800398_1_20250415090048.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-Hong Kong's Hang Seng Index rose 186 points, or 0.87 percent, to open at 21,603 points on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800398-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800398-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800398-20250415.htm)
 
 ---

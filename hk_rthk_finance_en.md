@@ -1,3 +1,27 @@
+# US Fed Chair warns tariffs may force it to choose goal
+
+![Jerome Powell says the US Federal Reserve could find itself in a "challenging scenario in which our dual-mandate goals are in tension." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800695_1_20250417024428.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Tariffs are likely to push up prices and could put the US Federal Reserve in the unenviable position of having to choose between tackling inflation and unemployment, the bank's chair said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800695-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800695-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800695-20250417.htm)
+
+---
+
 # WTO chief says 'very concerned' tariffs will cut trade
 
 ![WTO chief Ngozi Okonjo-Iweala says the body must "streamline its decision-making." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800694_1_20250417021537.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@ Financial markets in Hong Kong and across the border dived on Monday as markets 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm)
-
----
-
-# Nikkei plunges on Trump tariff concerns
-
-![A display shows the sharp decline in the Nikkei average stock price. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799177_1_20250407084857.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Japan's Nikkei share index plunged further on Monday, as US futures pointed to additional losses on Wall Street over President Donald Trump's punishing tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm)
 
 ---
