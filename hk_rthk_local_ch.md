@@ -1,3 +1,27 @@
+# 中區警區警務人員執勤期間遺失警方手機
+
+![中區警區警務人員執勤期間遺失警方手機](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800674_1_20250416211947.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+一名警務人員執勤期間遺失一部警察手提電話，案件列作「遺失政府財物」，由中區警區跟進調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800674-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800674-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800674-20250416.htm)
+
+---
+
 # 運輸業輸入勞工計劃航空業第三輪批出2206個配額申請
 
   
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800468-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800468-20250415.htm)
-
----
-
-# 政府公布生成式人工智能技術及應用指引　將定期更新內容
-
-![《香港生成式人工智能技術及應用指引》旨在為技術開發者、服務提供者及使用者。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800464_1_20250415155307.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-數字政策辦公室公布《香港生成式人工智能技術及應用指引》，有關指引旨在為技術開發者、服務提供者及使用者，提供應用生成式人工智能技術的實務操作指引，內容涵蓋生成式人工智能技術的應用範圍、應用局限、潛在風險與治理原則，包括需關注的資料洩露、模型偏見和錯誤等技術風險等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800464-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800464-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800464-20250415.htm)
 
 ---

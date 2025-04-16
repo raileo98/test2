@@ -1,3 +1,27 @@
+# 美國3月零售銷售按月增加1.4%
+
+![美國3月零售銷售按月增加1.4%，略好過預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800673_1_20250416205659.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+美國3月零售銷售按月增加1.4%，略好過預期，因為消費者在關稅政策實施前買車，帶動汽車購買量大幅增加。2月數據為升0.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800673-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800673-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800673-20250416.htm)
+
+---
+
 # 陳揚帆辭任東方海外行政總裁　由張峰接任
 
 ![陳揚帆辭任東方海外行政總裁，並由張峰接任，即日起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800669_1_20250416202228.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800527-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800527-20250416.htm)
-
----
-
-# 機場入境大堂第三季料推新e-道　合資格香港居民以容貌識別過關
-
-![復活節假期將至，入境處鼓勵家長與同行7歲或以上合資格子女使用e-道過關。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800526_1_20250416001208.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-入境處上月底起，容許年滿7歲並持有智能身份證和有效特區護照的兒童，毋須預先登記，便可在各管制站使用e-道服務，以容貌識別技術自助辦理出入境檢查手續。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800526-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800526-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800526-20250416.htm)
 
 ---

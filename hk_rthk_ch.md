@@ -1,3 +1,27 @@
+# 美國3月零售銷售按月增加1.4%
+
+![美國3月零售銷售按月增加1.4%，略好過預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800673_1_20250416205659.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+美國3月零售銷售按月增加1.4%，略好過預期，因為消費者在關稅政策實施前買車，帶動汽車購買量大幅增加。2月數據為升0.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800673-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800673-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800673-20250416.htm)
+
+---
+
 # 神舟二十號將於近日擇機發射
 
 ![執行神舟二十號載人飛行任務的火箭船箭組合體，已轉運至發射區。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800672_1_20250416204843.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
