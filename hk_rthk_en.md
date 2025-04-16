@@ -1,3 +1,27 @@
+# Electronic ticketing system set for driving offences
+
+![Mable Chan says the aim of digitalisation of traffic fixed penalty tickets is in line with the direction of developing Hong Kong into a smart city. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800611_1_20250416133557.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Secretary for Transport and Logistics Mable Chan said on Wednesday that an electronic regime of fixed-penalty tickets is expected to be implemented on June 15 in an attempt to increase the overall efficiency of traffic enforcement.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800611-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800611-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800611-20250416.htm)
+
+---
+
 # Ombudsman urges construction checks be stepped up
 
 ![Ombudsman Jack Chan has made 40 recommendations to three government departments. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800615_1_20250416131146.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -144,7 +168,7 @@ Beijing said on Wednesday the economy grew a forecast-beating 5.4 percent in the
 
 # Errant drivers to be brought to book in pilot scheme
 
-![The pilot traffic enforcement programme will begin on April 22. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800578_1_20250416100846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800578_1_20250416100846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 Police announced on Wednesday a new pilot programme to monitor traffic violations at four locations using security cameras starting on Tuesday, with the aim of enhancing road safety and enforcement efficiency.
@@ -1411,29 +1435,5 @@ Stocks rose on Monday as trade war fears were tempered by US President Donald Tr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800333-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800333-20250414.htm)
-
----
-
-# 20 more response teams for extreme floods
-
-![The Drainage Services Department says the increase in the number of emergency response teams will enable extreme flood events to be brought under control in one or two hours. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800328_1_20250414180657.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-The Drainage Services Department says the number of emergency response teams for extreme weather events will be increased this year from 160 to 180 for deployment in more than 30 operational stations.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800328-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800328-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800328-20250414.htm)
 
 ---

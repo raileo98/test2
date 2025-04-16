@@ -1,3 +1,27 @@
+# Electronic ticketing system set for driving offences
+
+![Mable Chan says the aim of digitalisation of traffic fixed penalty tickets is in line with the direction of developing Hong Kong into a smart city. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800611_1_20250416133557.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Secretary for Transport and Logistics Mable Chan said on Wednesday that an electronic regime of fixed-penalty tickets is expected to be implemented on June 15 in an attempt to increase the overall efficiency of traffic enforcement.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800611-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800611-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800611-20250416.htm)
+
+---
+
 # Ombudsman urges construction checks be stepped up
 
 ![Ombudsman Jack Chan has made 40 recommendations to three government departments. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800615_1_20250416131146.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -48,7 +72,7 @@ Some locals have been left frustrated by Hongkong Post's announcement on Wednesd
 
 # Errant drivers to be brought to book in pilot scheme
 
-![The pilot traffic enforcement programme will begin on April 22. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800578_1_20250416100846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800578_1_20250416100846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 Police announced on Wednesday a new pilot programme to monitor traffic violations at four locations using security cameras starting on Tuesday, with the aim of enhancing road safety and enforcement efficiency.
@@ -1413,29 +1437,5 @@ Authorities have said they will make it easier for people to cook freshly caught
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799779-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799779-20250410.htm)
-
----
-
-# Manufacturers call for support measures amid trade war
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799768_1_20250410151436.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-The Chinese Manufacturers' Association on Thursday urged the SAR administration to roll out support measures to help enterprises with stabilising their working capital amid the global trade war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm)
 
 ---
