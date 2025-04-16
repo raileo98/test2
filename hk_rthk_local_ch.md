@@ -1,3 +1,26 @@
+# 林健鋒：香港應主動「行多步」　深度融入國家發展大局
+
+  
+
+立法會二讀辯論本年度財政預算案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800639-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800639-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800639-20250416.htm)
+
+---
+
 # 星展與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款
 
 ![星展香港與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款。（公司提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800637_1_20250416152749.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800447-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800447-20250415.htm)
-
----
-
-# 新地：近日市場氣氛已趨穩定　本地住屋需求持續強勁
-
-![雷霆稱市場氣氛近日已趨穩定，相信聯儲局將為提振經濟而減息，對供樓人士有利。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800446_1_20250415134716.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-新鴻基地產副董事總經理雷霆表示，市場氣氛近日已趨穩定，相信聯儲局將為提振經濟而減息，對供樓人士有利，又認為本地住屋需求持續強勁，近期不少市民由租轉買，亦有部分買家買樓投資，相信今季一手交投較上季更旺。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800446-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800446-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800446-20250415.htm)
 
 ---

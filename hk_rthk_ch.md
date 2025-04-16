@@ -1,3 +1,26 @@
+# 林健鋒：香港應主動「行多步」　深度融入國家發展大局
+
+  
+
+立法會二讀辯論本年度財政預算案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800639-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800639-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800639-20250416.htm)
+
+---
+
 # 星展與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款
 
 ![星展香港與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款。（公司提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800637_1_20250416152749.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
