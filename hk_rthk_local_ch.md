@@ -70,11 +70,12 @@
 
 ---
 
-# 旺角東失蹤外籍女子已尋回　女事主沒受傷案件沒可疑
+# 旺角失蹤外籍女子已尋回　女事主沒受傷案件沒可疑
 
+![女事主下午在旺角砵蘭街被尋回。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800660_1_20250416212426.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
   
 
-較早前在旺角東失蹤的27歲外籍女子已被尋回，警方表示，女事主沒有受傷，案件沒有可疑。
+較早前在旺角失蹤的27歲外籍女子已被尋回，警方表示，女事主沒有受傷，案件沒有可疑。
 
   
 

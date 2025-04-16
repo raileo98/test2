@@ -1,3 +1,27 @@
+# 國台辦：「台獨打手、幫兇舉報專欄」已收逾3千封舉報郵件
+
+![朱鳳蓮說，「台獨打手、幫兇迫害台灣同胞惡劣行徑舉報專欄」已收到超過3000封舉報郵件。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800675_1_20250416212313.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+在北京，國台辦發言人朱鳳蓮在例行記者會表示，「台獨打手、幫兇迫害台灣同胞惡劣行徑舉報專欄」，已收到超過3000封舉報郵件，充分反映兩岸民眾對「台獨」打手、幫兇為非作歹的深惡痛絕。大陸將堅持以事實為依據、以法律為準繩，在核查相關舉報信息後，依法追責、依法嚴懲這些打手、幫兇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800675-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800675-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800675-20250416.htm)
+
+---
+
 # 中區警區警務人員執勤期間遺失警方手機
 
 ![中區警區警務人員執勤期間遺失警方手機](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800674_1_20250416211947.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -286,11 +310,12 @@
 
 ---
 
-# 旺角東失蹤外籍女子已尋回　女事主沒受傷案件沒可疑
+# 旺角失蹤外籍女子已尋回　女事主沒受傷案件沒可疑
 
+![女事主下午在旺角砵蘭街被尋回。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800660_1_20250416212426.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
   
 
-較早前在旺角東失蹤的27歲外籍女子已被尋回，警方表示，女事主沒有受傷，案件沒有可疑。
+較早前在旺角失蹤的27歲外籍女子已被尋回，警方表示，女事主沒有受傷，案件沒有可疑。
 
   
 

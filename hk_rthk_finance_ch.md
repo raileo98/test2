@@ -1,3 +1,27 @@
+# 美國3月工業生產按月下跌0.3%
+
+![美國3月工業生產按月下跌0.3%，市場原本估計下跌0.2%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800676_1_20250416212815.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+  
+
+美國3月工業生產按月下跌0.3%，跌幅多於市場預期的0.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800676-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800676-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800676-20250416.htm)
+
+---
+
 # 美國3月零售銷售按月增加1.4%
 
 ![美國3月零售銷售按月增加1.4%，略好過預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800673_1_20250416205659.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800537-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800537-20250416.htm)
-
----
-
-# 哈佛大學拒絕接受政府改革要求　特朗普威脅取消該校免稅地位
-
-![一批民眾在劍橋示威，要求哈佛大學管理層抵抗聯邦政府的干預。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800527_1_20250416004331.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-在美國哈佛大學拒絕接受政府提出的改革要求，以應對校內的反猶太主義後，總統特朗普威脅要取消該校的免稅地位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800527-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800527-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800527-20250416.htm)
 
 ---
