@@ -1,3 +1,27 @@
+# Rubio headed to Paris for Ukraine war talks
+
+![A diplomatic source says Marco Rubio and France's Foreign Minister will discuss "the war in Ukraine, the situation in the Middle East and the Iranian nuclear situation. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800684_1_20250416224136.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+US Secretary of State Marco Rubio was headed on Wednesday to Paris for talks on ending the war in Ukraine, his office said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800684-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800684-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800684-20250416.htm)
+
+---
+
 # China and Malaysia to work together on trade
 
 ![President Xi Jinping is in Malaysia as part of a three-nation Southeast Asian trip. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800666_1_20250416191212.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
@@ -1411,29 +1435,5 @@ Dominican Republic rescue workers ended the search for survivors of a nightclub 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799736-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799736-20250410.htm)
-
----
-
-# Far right targets Canada PM as election looms large
-
-![Mark Carney and his wife Diana Fox are targeted because of a photograph showing them with Jeffrey Epstein's convicted accomplice, Ghislaine Maxwell. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799735_1_20250410115043.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Canadian Prime Minister Mark Carney is leaning into his banking background as his country fights a trade war with the United States, but his financial ties have also made him a target for conspiracy theories.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799735-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799735-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799735-20250410.htm)
 
 ---

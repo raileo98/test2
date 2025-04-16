@@ -1,3 +1,27 @@
+# 加拿大央行：若美國關稅引發全球貿易戰　加拿大陷深度經濟衰退
+
+![加拿大央行指，若美國關稅引發全球貿易戰，加拿大將陷入深度經濟衰退。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800683_1_20250416221718.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+加拿大央行公布的一份預測顯示，如果美國關稅引發全球貿易戰，加拿大的通脹率將攀升，並將陷入深度經濟衰退。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800683-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800683-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800683-20250416.htm)
+
+---
+
 # 警方提醒市民慎防偽冒反詐騙協調中心及假冒金管局短訊
 
 ![警方及金管局強調不會就個人財務事宜聯絡市民。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800681_1_20250416220455.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)

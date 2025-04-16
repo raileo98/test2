@@ -1,3 +1,51 @@
+# 加拿大央行維持利率不變
+
+![加拿大央行維持利率在2.75厘不變，符合市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800680_1_20250416215920.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
+  
+
+加拿大央行宣布維持利率在2.75厘不變，符合市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800680-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800680-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800680-20250416.htm)
+
+---
+
+# 加拿大央行：若美國關稅引發全球貿易戰　加拿大陷深度經濟衰退
+
+![加拿大央行指，若美國關稅引發全球貿易戰，加拿大將陷入深度經濟衰退。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800683_1_20250416221718.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+加拿大央行公布的一份預測顯示，如果美國關稅引發全球貿易戰，加拿大的通脹率將攀升，並將陷入深度經濟衰退。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800683-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800683-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800683-20250416.htm)
+
+---
+
 # 道指初段跌近0.4%　納指跌逾1.6%
 
 ![道瓊斯指數較早時報40220點，跌148點，跌幅0.37%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800678_1_20250416214922.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800546-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800546-20250416.htm)
-
----
-
-# 道指低收155點　納指偏軟
-
-![美股3大指數先高後低，道瓊斯指數早段曾升近270點，其後跌幅逐步擴大，收市報40368點，跌155點，跌幅約0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800541_1_20250416054133.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美股3大指數先高後低，最終收市偏軟，市場聚焦美國關稅政策最新發展，以及企業業績表現。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800541-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800541-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800541-20250416.htm)
-
----
-
-# 英法德股市高收近1%或以上
-
-![德國DAX指數收市報21253點，升298點，升幅1.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800540_1_20250416052220.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-歐洲主要股市收市上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800540-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800540-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800540-20250416.htm)
 
 ---
