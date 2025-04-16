@@ -1,3 +1,27 @@
+# Frustration up over postal stop to US-bound parcels
+
+![Hongkong Post has suspended parcel services to the US via surface mail and will no longer offer air delivery services starting from April 27. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800602_1_20250416120157.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+Some locals have been left frustrated by Hongkong Post's announcement on Wednesday that it has suspended surface parcel deliveries to the United States with immediate effect.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800602-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800602-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800602-20250416.htm)
+
+---
+
 # Errant drivers to be brought to book in pilot scheme
 
 ![The pilot traffic enforcement programme will begin on April 22. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800578_1_20250416100846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1413,29 +1437,5 @@ Financial Secretary Paul Chan on Thursday slammed the latest US "reciprocal tari
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799756-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799756-20250410.htm)
-
----
-
-# Authorities doing more to tackle scams, mule accounts
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799754_1_20250410132043.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Authorities on Thursday said they are stepping up efforts to tackle scam syndicates and their use of mule accounts to launder funds.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799754-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799754-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799754-20250410.htm)
 
 ---

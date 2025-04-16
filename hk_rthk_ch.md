@@ -1,8 +1,8 @@
-# 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
+# 警方將於港島交通違例黑點試行運輸署監察系統進行錄影執法
 
   
 
-香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
+警方本月22日起，將在港島4個交通違例黑點，試行利用運輸署現行監察系統，進行錄影執法，記錄違例車輛的車牌號碼，並向司機發出定額罰款通知。
 
   
 
@@ -10,14 +10,60 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800606-20250416.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800606-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800606-20250416.htm)
+
+---
+
+# 衞生防護中心呼籲計劃外遊市民預防各種傳染病
+
+  
+
+因應復活節假期將至，衞生防護中心總監徐樂堅呼籲計劃外遊的市民，應預防感染各種傳染病，特別是麻疹、登革熱和諾如病毒感染。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800610-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800610-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800610-20250416.htm)
+
+---
+
+# 申訴專員公布查監管職安健報告　指有合資格者貿然簽表格確認安全
+
+  
+
+申訴專員公署公布就政府監管建造業職安健的主動調查行動報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800605-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800605-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800605-20250416.htm)
 
 ---
 
@@ -41,6 +87,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
+
+---
+
+# 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
+
+  
+
+香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
 
 ---
 

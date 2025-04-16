@@ -1,8 +1,8 @@
-# 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
+# 警方將於港島交通違例黑點試行運輸署監察系統進行錄影執法
 
   
 
-香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
+警方本月22日起，將在港島4個交通違例黑點，試行利用運輸署現行監察系統，進行錄影執法，記錄違例車輛的車牌號碼，並向司機發出定額罰款通知。
 
   
 
@@ -10,14 +10,60 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1800606-20250416.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800606-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800606-20250416.htm)
+
+---
+
+# 衞生防護中心呼籲計劃外遊市民預防各種傳染病
+
+  
+
+因應復活節假期將至，衞生防護中心總監徐樂堅呼籲計劃外遊的市民，應預防感染各種傳染病，特別是麻疹、登革熱和諾如病毒感染。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800610-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800610-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800610-20250416.htm)
+
+---
+
+# 申訴專員公布查監管職安健報告　指有合資格者貿然簽表格確認安全
+
+  
+
+申訴專員公署公布就政府監管建造業職安健的主動調查行動報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800605-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800605-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800605-20250416.htm)
 
 ---
 
@@ -41,6 +87,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
+
+---
+
+# 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
+
+  
+
+香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
 
 ---
 
@@ -1358,77 +1427,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800432-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800432-20250415.htm)
-
----
-
-# 董經緯：中國不是過去的中國　犯我安全者必遭回擊
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800429_1_20250415114309.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行，中央駐港維護國家安全公署署長董經緯表示，當下霸權國家極限施壓，大國博弈日趨激烈，但香港加快由治及興、積極融入國家發展大局。香港國安及法治體系健全完善，國家安全屏障不斷得以夯實，特別是政權安全、制度安全、意識形態安全，以及重點領域安全得到有力維護。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800429-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800429-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800429-20250415.htm)
-
----
-
-# 夏寶龍：香港看似平靜實則暗流湧動　安全形勢仍嚴峻複雜
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800422_1_20250415111712.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話，指現在鬥爭並沒有結束，香港社會面看似平靜，實則暗流湧動，安全形勢仍然十分嚴峻複雜。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800422-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800422-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800422-20250415.htm)
-
----
-
-# 鄭雁雄指忘卻修例風波慘痛教訓危險　維護國安只有進行時無局外人
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800418_1_20250415110246.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行，中聯辦主任鄭雁雄表示，中央對特區打造高水平安全護航高質量發展提出了殷切希望，行政長官李家超對港澳辦主任夏寶龍講話的精神解讀準確、落實到位，駐港聯絡辦將全面落實好中央要求，全力支持行政長官和特區政府，將中央寄望變成實際行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800418-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800418-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800418-20250415.htm)
 
 ---
