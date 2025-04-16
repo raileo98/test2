@@ -1,3 +1,26 @@
+# 政府建議調整電動私家車牌照費架構　分三年進行
+
+  
+
+運輸及物流局建議調整電動私家車牌照費架構，參照現行燃油車按引擎汽缸容量，按其額定功率的高低，分五個層級計算牌費。在建議的新牌照費架構下，電動私家車牌照費會維持低於燃油私家車的水平，而調整進程會建議分三年進行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800624-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800624-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800624-20250416.htm)
+
+---
+
 # NBA季後賽附加賽　勇士及魔術分別勝出晉級
 
 ![占美畢拿及史堤芬居里是今場勇士贏波功臣。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800618_1_20250416132713.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)

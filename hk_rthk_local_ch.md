@@ -1,3 +1,26 @@
+# 政府建議調整電動私家車牌照費架構　分三年進行
+
+  
+
+運輸及物流局建議調整電動私家車牌照費架構，參照現行燃油車按引擎汽缸容量，按其額定功率的高低，分五個層級計算牌費。在建議的新牌照費架構下，電動私家車牌照費會維持低於燃油私家車的水平，而調整進程會建議分三年進行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800624-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800624-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800624-20250416.htm)
+
+---
+
 # 小鵬汽車：香港擁有非常多人才　具有全球視野和思維
 
 ![顧宏地（右）稱香港作為國際化及資本市場高地，公司需要佔有一席之地。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800619_1_20250416133946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800437-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800437-20250415.htm)
-
----
-
-# 夏寶龍：美對港加徵關稅蠻橫霸道　關稅戰或貿易戰都沒甚麼好怕
-
-![夏寶龍表示，美國對香港加徵關稅蠻橫霸道，形容「不是要我們的稅，而是要我們的命」。（國務院港澳辦）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800438_1_20250415140449.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-第十個全民國家安全教育日開幕典禮暨主題講座早上在灣仔會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800438-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800438-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800438-20250415.htm)
 
 ---
