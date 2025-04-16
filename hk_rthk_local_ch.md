@@ -1,3 +1,26 @@
+# 復活節假周五展開　運輸署料大量市民及車輛出入境籲及早規劃行程
+
+  
+
+復活節4天假期星期五展開。運輸署預計期間會有大量市民及車輛經各陸路管制站往來內地及澳門，尤其是首天及最後一天，呼籲市民及早規劃行程，預留充裕交通時間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800650-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800650-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800650-20250416.htm)
+
+---
+
 # 恒指收市跌409點　科指受壓低收近4%
 
 ![恒指收市報21056點，跌409點，跌幅1.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800642_1_20250416161935.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -358,30 +381,6 @@
 
 ---
 
-# 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800603_1_20250416131219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
-
----
-
 # 立法會恢復二讀辯論預算案撥款條例草案
 
 ![立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800609_1_20250416131345.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -403,6 +402,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
+
+---
+
+# 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800603_1_20250416131219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
 
 ---
 
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800450-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800450-20250415.htm)
-
----
-
-# 有保險公司設綁架勒索保障最高賠1.5萬　消委會籲了解清楚條款
-
-![黃鳳嫻表示，保險公司基於數據和風險制定保險產品，如有需要就人身安全投保的遊客，需要在投保前詢問清楚有無相關條款。（郭志強攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800449_1_20250415135658.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-消委會調查市面上27個單次個人旅遊保險計劃，發現不同計劃的醫療費用的成人最高賠償額可相差1倍，涵蓋的保障範圍亦有頗大差異。另外，有22個計劃調低長者及兒童在醫療及意外的最高賠償額，最多調低達75%，甚至不能享用部分保障。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800449-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800449-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800449-20250415.htm)
 
 ---
