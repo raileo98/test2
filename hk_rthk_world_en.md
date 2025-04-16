@@ -1,3 +1,339 @@
+# Good chance for US-UK trade deal: Vance
+
+![US Vice President JD Vance spoke of the potential of a big trade deal between the US and Britain. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800604_1_20250416120717.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+US Vice President JD Vance on Tuesday said that there was a good chance the United States and Britain could strike a "great agreement" on trade due to Donald Trump's love of the country and its royal family.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800604-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800604-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800604-20250416.htm)
+
+---
+
+# Trump eyes new tariffs with critical minerals probe
+
+![China is the biggest supplier of rare metals in the world. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800595_1_20250416113435.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+US President Donald Trump has ordered a probe that may result in tariffs on critical minerals, rare-earth metals and associated products such as smartphones in an escalation of his dispute with global trade partners.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800595-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800595-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800595-20250416.htm)
+
+---
+
+# Biden slams Trump 'destruction' in speech
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800570_1_20250416092417.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Joe Biden, in his first major speech since leaving the White House, railed on Tuesday against his successor US President Donald Trump's frenetic government overhaul, claiming the "hatchet" effort put Americans' retirement benefits at risk.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800570-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800570-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800570-20250416.htm)
+
+---
+
+# Wine consumption falls heavily into the red
+
+![The International Organisation of Vine and Wine says consumers are paying 30 percent more for a bottle now than in 2019-2020. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800551_1_20250416073959.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Worldwide consumption of wine fell in 2024 to its lowest level in more than 60 years, the main trade body said on Tuesday, raising concerns about new risks from US tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800551-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800551-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800551-20250416.htm)
+
+---
+
+# Trump says ball in China's court on tariffs
+
+![Karoline Leavitt maintains that Donald Trump remains open to a deal with Beijing. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800536_1_20250416054647.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+US President Donald Trump believes it is up to China, not the United States, to come to the negotiating table on trade, the White House said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800536-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800536-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800536-20250416.htm)
+
+---
+
+# Hamas raises fears for Israeli-American hostage
+
+![Hamas said on Monday it had received a new truce offer from Israel that foresees the release of 10 living hostages, starting with soldier Edan Alexander. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800531_1_20250416025117.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Hamas said on Tuesday that after an Israeli airstrike it had "lost contact" with the captors of an Israeli-American hostage in Gaza, whose release takes centre stage in Israel's latest proposal for a renewed ceasefire.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800531-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800531-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800531-20250416.htm)
+
+---
+
+# French prisons hit by arson and gunfire attacks
+
+![Justice minister Gerald Darmanin says the attacks remind him of those carried out by gangsters to intimidate their rivals. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800530_1_20250416015453.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+France's justice minister on Tuesday said gun and arson attacks on at least six prisons around the country were acts of terrorism directed at security officials charged with guarding some of the nation's most hardened crime kingpins.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800530-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800530-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800530-20250416.htm)
+
+---
+
+# Khamenei says Iran-US talks going well
+
+![Iran's supreme leader, however, added that "the negotiations may or may not yield results." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800522_1_20250415234253.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Iran's supreme leader Ayatollah Ali Khamenei said on Tuesday he was satisfied with talks with arch-foe the United States but warned they could ultimately prove fruitless.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800522-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800522-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800522-20250415.htm)
+
+---
+
+# President Xi arrives in Malaysia for state visit
+
+![President Xi Jinping is greeted by Malaysian Prime Minister Anwar Ibrahim as he arrives in Kuala Lumpur. Photo: AFP/Malaysia's Department of Information](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800504_1_20250415195247.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+President Xi Jinping on Tuesday began a state visit to Malaysia.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800504-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800504-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800504-20250415.htm)
+
+---
+
+# Canton Fair passes 30,000 landmark in a first
+
+![A woman interacts with one of the many exhibits in the special zone for service robots at the Canton Fair in Guangzhou. Photo: Imaginechina via AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800494_1_20250415180113.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
+  
+
+The 137th edition of the China Import and Export Fair, also known as Canton Fair, kicked off on Tuesday, with the number of export exhibitors exceeding 30,000 for the first time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800494-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800494-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800494-20250415.htm)
+
+---
+
+# Visit to Vietnam fruitful albeit brief: Xi
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800485_2_20250415191049.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+President Xi Jinping has described his state visit to Vietnam as "fruitful albeit brief" as he wrapped up his two-day trip on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800485-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800485-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800485-20250415.htm)
+
+---
+
+# Singapore PM calls May 3 election in tariffs test
+
+![The general election, to be held on May 3, will be a key test for Prime Minister Lawrence Wong. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800466_1_20250415153003.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Singaporeans vote on May 3 in an election that will test Prime Minister Lawrence Wong's leadership, as the wealthy city-state faces a turbulent global economy upended by US tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800466-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800466-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800466-20250415.htm)
+
+---
+
+# Fukushima fine-tunes debris clearing operations
+
+![A bird's eye view of Fukushima nuclear power plant as Japanese engineers attempt to remove a second sample of radioactive debris. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800462_1_20250415151251.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+  
+
+Japanese engineers began on Tuesday a difficult operation to remove a second sample of radioactive debris from inside the stricken Fukushima nuclear plant.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800462-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800462-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800462-20250415.htm)
+
+---
+
+# US launches probes in prelude to new tariffs
+
+![Computer monitors that contain chips such as these made-in-China models being sold at a store in Washington, DC, may come under the US investigations. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800453_1_20250415142859.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+The Trump administration has taken its next steps towards imposing more tariffs on key imports, launching investigations into imports of computer chips, chip-making equipment and pharmaceuticals.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800453-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800453-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800453-20250415.htm)
+
+---
+
 # Judge stops US move to revoke legal status of migrants
 
 ![The Trump administration has been moving quickly to deport migrants such as this group of Venezuelans back to their countries of origin or any place that accepts them. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800431_1_20250415114340.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -24,7 +360,7 @@ A federal judge has blocked US President Donald Trump's administration from quic
 
 # Blue Origin blasts all-female crew into space
 
-![Pop star Katy Perry emerges from the capsule after blasting off into space on a Blue Origin rocket as part of the all-female crew. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800397_1_20250415085946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800397_1_20250415085946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 Jeff Bezos’ Blue Origin launched his fiancee Lauren Sanchez into space on Monday with an all-female celebrity crew that included Katy Perry and Gayle King.
@@ -166,6 +502,30 @@ Former Malaysian prime minister Abdullah Ahmad Badawi died on Monday, aged 85, h
 
 ---
 
+# China, Vietnam ink cooperation deals during Xi's visit
+
+![President Xi Jinping meets Vietnam's National Assembly chairman Tran Thanh Man in Hanoi. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800358_1_20250414215829.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+China and Vietnam on Monday signed dozens of cooperation agreements, strengthening ties between the two countries after President Xi Jinping warned that protectionism leads nowhere and that a trade war would have no winners.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800358-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800358-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800358-20250414.htm)
+
+---
+
 # Katy Perry in all-woman trip to edge of space
 
 ![Set for the latest Blue Origin launch are, clockwise from left, Lauren Sanchez, former Nasa scientist Amanda Nguyen, Katy Perry, TV presenter Gale King, former Nasa scientist Aisha Bowe and film producer Kerianne Flynn. Photo: courtesy of Blue Origin](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800335_1_20250414181137.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
@@ -187,6 +547,30 @@ Pop star Katy Perry will be the biggest name in an all-woman group set to touch 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800335-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800335-20250414.htm)
+
+---
+
+# President Xi arrives in Vietnam for state visit
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800302_1_20250414152705.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+President Xi Jinping arrived in Hanoi on Monday to start a state visit to Vietnam.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800302-20250414.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800302-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800302-20250414.htm)
 
 ---
 
@@ -1051,389 +1435,5 @@ The French government has cut its growth forecast for 2025 because of the uncert
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799688-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799688-20250410.htm)
-
----
-
-# Deaths mount in Dominican Republic nightclub disaster
-
-![Rescue teams working at the Jet Set nightclub a day after the collapse of its roof in Santo Domingo. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799679_1_20250410034524.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
-  
-
-Relatives of people trapped under the rubble of a Dominican Republic nightclub that collapsed, killing over 120, waited anxiously for news on Wednesday as hopes of finding their loved ones alive began to fade.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799679-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799679-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799679-20250410.htm)
-
----
-
-# Trump pauses tariffs for 90 days but hits China harder
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799675_1_20250410021956.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-US President Donald Trump abruptly backed down on Wednesday in his global trade war with a 90-day pause for most countries – but slapped even more levies against China in what has become a full-scale confrontation between the world's two largest economies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799675-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799675-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799675-20250410.htm)
-
----
-
-# EU greenlights first set of tariffs hitting back at US
-
-![Europe's response to Trump's latest tariffs salvo yet to be announced. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799659_1_20250409220122.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-The EU on Wednesday adopted its first measures hitting back at US President Donald Trump's tariffs, targeting more than 20 billion euros of US products including soybeans, motorcycles and beauty products.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799659-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799659-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799659-20250409.htm)
-
----
-
-# At least 20 killed in airstrike on southern Gaza
-
-![A mother and her son are left in mourning after an Israeli strike in Khan Younis in southern Gaza. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799632_1_20250409181114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Gaza's civil defence agency said an Israeli strike on a residential building in the Shujaiya area of Gaza City killed at least 20 people on Wednesday, as the military said they were looking into the attack.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799632-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799632-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799632-20250409.htm)
-
----
-
-# Hezbollah 'ready for talks on disarmament'
-
-![Israeli military exhibit seized Hezbollah weapons, without specifying when and where they were confiscated, near the border with Lebanon last year. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799628_1_20250409180051.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-As calls for Lebanon's Hezbollah to disarm gain momentum, a senior official from the group said it is ready to hold talks with the Lebanese president about its weapons if Israel withdraws from south Lebanon and stops its strikes.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799628-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799628-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799628-20250409.htm)
-
----
-
-# China 'verifying reports of nationals held in Ukraine'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799609_1_20250409161617.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-China said on Wednesday it is verifying reports of Chinese nationals being captured in Ukraine.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799609-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799609-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799609-20250409.htm)
-
----
-
-# China-US trade ties mutually beneficial: white paper
-
-![The white paper says the world anticipates China-US cooperation to generate more development opportunities. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799602_1_20250409154105.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-China-US economic and trade relations are mutually beneficial and win-win in nature, and cooperation benefits both sides while confrontation harms both, said a white paper released by the State Council Information Office on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799602-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799602-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799602-20250409.htm)
-
----
-
-# Universal to build first Europe theme park in UK: PM
-
-![Britain's Prime Minister Keir Starmer (right) welcomes President of the Comcast Corporation Mike Cavanagh to Downing Street, London. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799527_1_20250409081130.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-US media giant Comcast Corp will build its first Universal theme park and resort in Europe in Bedford, north of London, opening in 2031, the British government said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799527-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799527-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799527-20250409.htm)
-
----
-
-# Trump's sweeping global tariffs take effect
-
-![White House press secretary Karoline Leavitt said President Trump believed China wanted to make a deal over tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799523_1_20250409074554.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-US President Donald Trump's "reciprocal" tariffs on dozens of countries took effect on Wednesday, including massive 104 percent duties on Chinese goods, deepening his global trade war even as he prepared for negotiations with some nations.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799523-20250409.htm)
-
----
-
-# Trump signs order to 'turbocharge' coal mining in US
-
-![President Trump speaks next to coal industry workers, on the day he signs energy-related executive orders at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799521_1_20250409073316.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-US President Donald Trump on Tuesday signed executive orders to "turbocharge coal mining" in the country, seeking to "more than double" electricity production to keep up with power-hungry artificial intelligence technology.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799521-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799521-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799521-20250409.htm)
-
----
-
-# At least 98 dead in Dominican Republic roof collapse
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799520_1_20250409073023.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-Rescuers raced to find survivors on Tuesday among the rubble of a Dominican Republic nightclub where at least 98 people, including a Major League Baseball star, were killed when the roof collapsed.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799520-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799520-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799520-20250409.htm)
-
----
-
-# UN chief says Gaza transformed into 'killing field'
-
-![Antonio Guterres also raised the alarm about the situation in the West Bank. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799501_1_20250409013523.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-United Nations Secretary-General Antonio Guterres said on Tuesday that Gaza had become "a killing field," blaming Israel for blocking aid and failing in its "unequivocal obligations" to meet the needs of the Palestinian territory's residents.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799501-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799501-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799501-20250409.htm)
-
----
-
-# Musk slams Trump trade adviser as a 'moron'
-
-![Elon Musk says Peter Navarro "is dumber than a sack of bricks." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799497_1_20250409001640.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Elon Musk on Tuesday described Peter Navarro, a senior White House trade adviser, as "truly a moron" in a growing rift over Donald Trump's tariff policy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799497-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799497-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799497-20250409.htm)
-
----
-
-# Deadly nightclub disaster rocks Dominican Republic
-
-![Rescue staff find a survivor at the Jet Set nightclub in Santo Domingo. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799484_1_20250408221231.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Rescuers were on Tuesday racing to find survivers among the rubble of a Dominican Republic night club where at least 18 people died and dozens were hurt in an early-morning roof collapse.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799484-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799484-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799484-20250408.htm)
-
----
-
-# Singapore PM says tariffs 'not act of a friend'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799425_1_20250408152306.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-US President Donald Trump's tariffs on Singapore are "not actions one does to a friend", the city-state's leader said on Tuesday, adding the government will likely downgrade this year's economic growth forecast.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799425-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799425-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799425-20250408.htm)
-
----
-
-# Vance slammed over impolite 'Chinese peasants' remarks
-
-![J D Vance made the offensive remarks in defence of Donald Trump's tariffs move on television. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799420_1_20250408150703.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-China on Tuesday condemned US Vice President JD Vance as "ignorant and impolite", after he referred to Washington borrowing money from "Chinese peasants".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799420-20250408.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799420-20250408.htm](https://news.rthk.hk/rthk/en/component/k2/1799420-20250408.htm)
 
 ---

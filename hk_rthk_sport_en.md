@@ -1,3 +1,75 @@
+# Universal Studios, Venice Beach to host LA 2028 events
+
+![LA28 confirmed venues for surfing, triathlon, baseball, cricket and squash among other sports. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800552_1_20250416074358.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+An iconic Hollywood studio lot and the golden sands of Venice Beach are among an array of Los Angeles landmarks that will stage events for the 2028 Olympic Games, organisers said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800552-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800552-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800552-20250416.htm)
+
+---
+
+# HK junior fencing team wins bronze in Wuxi
+
+![The Hong Kong, China team defeated Hungary in the bronze-medal match. Photo: Fencing Association of Hong Kong, China's Facebook](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800547_1_20250416061147.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Hong Kong, China's junior men’s epee team made history at the World Cadets and Juniors Fencing Championships in Wuxi, clinching their first-ever bronze medal in the event - a landmark achievement for the SAR.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800547-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800547-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800547-20250416.htm)
+
+---
+
+# Howe will only return to Newcastle dugout when 100%
+
+![Eddie Howe, who is recovering from pneumonia, may miss several key matches. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800524_1_20250415235243.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Newcastle manager Eddie Howe will only return to lead the club when he is "100 percent" ready following a diagnosis of pneumonia, his assistant Jason Tindall said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800524-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800524-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800524-20250415.htm)
+
+---
+
 # Bournemouth beat Fulham to boost European hopes
 
 ![Bournemouth secured a 1-0 victory against Fulham, marking their first win in seven league matches. Photo: Action Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800394_1_20250415082114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -22,7 +94,7 @@ Antoine Semenyo struck in the first minute as Bournemouth boosted their hopes of
 
 ---
 
-# Dallas scoop Bueckers with No1 pick in WNBA draft
+# Dallas scoop Bueckers with No 1 pick in WNBA draft
 
 ![Paige Bueckers poses with WNBA commissioner Cathy Engelbert after being selected with the number one overall pick to the Dallas Wings. Photo: Imagn Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800393_1_20250415081721.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
@@ -1364,78 +1436,5 @@ Tennis world number one Jannik Sinner's former physical trainer Umberto Ferrara 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm)
-
----
-
-# SAR women's cycling team wins Tour of Thailand
-
-![The Hong Kong, China, team finished in an overall time of 19 hours, 43 minutes and 37 seconds. Photo courtesy of The Princess Maha Chakri Sirindhorn's Cup Tour of Thailand](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798818_1_20250403171524.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-The Hong Kong, China, women's cycling team rode their way to victory at the three-day women's Tour of Thailand, while rising star Ceci Lee claimed second place in the individual general classification.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm)
-
----
-
-# Heat sink Celtics for sixth straight win; Cavs roll on
-
-![Tyler Herro led the Heat with 25 points, as six other Miami players finished in double figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798766_1_20250403113553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-![Donovan Mitchell's 27 points led the Cavs to their 61st win on the season. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798766_2_20250403113553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-The Miami Heat ended Boston's nine-game NBA winning streak with a 124-103 victory that pushed the reigning champion Celtics further behind Eastern Conference leaders Cleveland, who rallied to beat New York.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798766-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798766-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798766-20250403.htm)
-
----
-
-# Barca oust Atlético, set up Clasico Copa del Rey final
-
-![Ferran Torres celebrates scoring the opening goal during the Spanish Copa del Rey semi-final second leg. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798723_1_20250403061233.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Barcelona will face rivals Real Madrid in the Copa del Rey final after Ferran Torres secured them a 1-0 win at Atlético Madrid, progressing 5-4 on aggregate from the semi-final tie.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm)
 
 ---

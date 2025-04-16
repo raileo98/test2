@@ -1,3 +1,51 @@
+# 全運會沙灘排球項目測試賽本月18至20日在維園舉行
+
+![第十五屆全國運動會沙灘排球項目測試賽於本月18至20日在銅鑼灣維園舉行。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800608_1_20250416122824.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+第十五屆全國運動會沙灘排球項目測試賽，將於本月18至20日在銅鑼灣維園舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800608-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800608-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800608-20250416.htm)
+
+---
+
+# 歐聯　巴黎聖日耳門及巴塞羅那分別晉級四強
+
+![聖日耳門（藍衫）兩回合計，以5:4僅勝維拉晉級。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800549_1_20250416072952.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+兩場歐聯八強次回合賽事，決出四強當中兩個席位。巴黎聖日耳門及巴塞羅那分別晉級。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800549-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800549-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800549-20250416.htm)
+
+---
+
 # 西甲馬德里體育會4:2華拉度列
 
 ![馬體會勝出之後聯賽榜排第3位。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800385_1_20250415073441.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1399,53 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm)
-
----
-
-# 巴西足總宣布解僱國家隊教練杜利華
-
-![巴西足總宣布解僱國家隊教練杜利華。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797972_1_20250329070202.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-巴西足總宣布解僱國家隊教練杜利華。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797972-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797972-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797972-20250329.htm)
-
----
-
-# 祖高域晉身邁亞密網賽男單決賽
-
-![祖高域以37歲10個月，成為ATP1000分賽事，年齡最大的決賽球手。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1797971_1_20250329070045.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-邁亞密網球公開賽，37歲的祖高域晉身男單決賽，只差一步就能拿下職業生涯第100個ATP錦標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797971-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797971-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797971-20250329.htm)
 
 ---

@@ -1,3 +1,171 @@
+# Good chance for US-UK trade deal: Vance
+
+![US Vice President JD Vance spoke of the potential of a big trade deal between the US and Britain. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800604_1_20250416120717.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+US Vice President JD Vance on Tuesday said that there was a good chance the United States and Britain could strike a "great agreement" on trade due to Donald Trump's love of the country and its royal family.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800604-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800604-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800604-20250416.htm)
+
+---
+
+# HK eyes e-commerce, silver economy amid challenges
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800565_1_20250416090709.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Hong Kong needs to seek new growth opportunities amid global uncertainties, such as developing e-commerce and the silver economy, says Secretary for Commerce and Economic Development Algernon Yau.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800565-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800565-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800565-20250416.htm)
+
+---
+
+# Local stocks dip 0.7pc at open
+
+![The Hang Seng Index dipped 149 points to open at 21,316 points. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800573_1_20250416094627.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+The Hang Seng Index dipped 149 points, or 0.7 percent, to open at 21,316 points on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800573-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800573-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800573-20250416.htm)
+
+---
+
+# Nvidia set back by new US ban on H20 chip
+
+![The US has already restricted exports to China of Nvidia's most sophisticated GPUs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800550_1_20250416073248.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Nvidia on Tuesday notified regulators that it expects a US$5.5 billion hit this quarter due to a new US licensing requirement on the primary chip it can legally sell in China.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800550-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800550-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800550-20250416.htm)
+
+---
+
+# Premier Li urges exporters to diversify markets
+
+![Li Qiang pledged to take steps to stabilise employment, promote income growth, and strengthen social safety nets to help boost consumption. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800543_1_20250416060102.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Premier Li Qiang called on the country's exporters on Tuesday to diversify their markets to cope with external changes, and vowed to support more domestic consumption, in comments on mainland media.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800543-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800543-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800543-20250416.htm)
+
+---
+
+# US stocks dip as markets monitor trade war fallout
+
+![All three major indices on Wall Street edged down on Tuesday. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800535_1_20250416033145.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Wall Street stocks finished lower on Tuesday following news of solid bank earnings as investors monitor developments in the US-China trade war after last week's market gyrations.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800535-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800535-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800535-20250416.htm)
+
+---
+
+# HK stocks edge up on Trump hint of compromise on autos
+
+![The Hang Seng Index edged up 0.23 percent to close at 21,466.27. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800481_1_20250415165226.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+  
+
+Equities mostly rose on Tuesday as some stability returned to markets after last week's rollercoaster ride, with auto firms boosted by US President Donald Trump's possible compromise over steep tariffs on the sector.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800481-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800481-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800481-20250415.htm)
+
+---
+
 # 'Trump will not win tariff war against China'
 
 ![Columbia professor Jeffrey Sachs says the US could face an uphill battle in its trade dispute with China. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800419_1_20250415112206.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -1267,174 +1435,5 @@ US President Donald Trump's tariffs risk higher unemployment and will likely cau
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm)
-
----
-
-# Major Wall Street indices fall by over 5 percent
-
-![A trader on the floor of the American Stock Exchange. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798992_1_20250405045214.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Wall Street stocks suffered another bruising sell-off on Friday as major indices slumped more than five percent following President Donald Trump's aggressive tariff policies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798992-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798992-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798992-20250405.htm)
-
----
-
-# Trump extends TikTok deadline to find buyer
-
-![The new 75-day delay pushes the deadline to June 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798987_1_20250405031437.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-US President Donald Trump on Friday extended the deadline for TikTok to find a non-Chinese buyer or face a ban in the United States, allowing 75 more days to find a solution.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm)
-
----
-
-# US stocks tumble again, extending rout on trade war
-
-![All three major indices on Wall Street are still heading south. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798973_1_20250404221313.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Wall Street stocks opened sharply lower on Friday, shrugging off solid US hiring data and extending a rout after China retaliated in kind to President Donald Trump's global trade tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798973-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798973-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798973-20250404.htm)
-
----
-
-# US stocks close down sharply on tariff fallout
-
-![The S&P 500 dropped 4.8 percent in its biggest loss since 2020. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798887_1_20250404054252.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Wall Street led a global markets bloodbath on Thursday as countries around the world reeled from President Donald Trump's trade war, while the White House insisted the US economy will emerge victorious.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm)
-
----
-
-# Stocks, US dollar and oil sink, as gold hits high
-
-![Wall Street's main indices opened sharply lower, with the Nasdaq falling more than four percent. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798865_1_20250403221424.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-Stock markets and the dollar tumbled on Thursday after President Donald Trump's latest tariffs salvo against countries worldwide, fanning a trade war that many fear will spark recession and ramp up inflation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798865-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798865-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798865-20250403.htm)
-
----
-
-# HK stocks joins markets in seeing red from tariffs
-
-![Stocks in Hong Kong ended the day down 1.52 percent at 22,849.81. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798815_1_20250403170035.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-![The Nikkei pared its losses to close 2.8 percent down. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798815_2_20250403170035.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Equity markets tumbled on Thursday after Donald Trump delivered a "haymaker" blow with sweeping tariffs against US partners and rivals, fanning a global trade war that many fear will spark recessions and ramp up inflation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm)
-
----
-
-# Tariffs will rebound on US: economists
-
-![The punitive 54 percent tariffs heaped on Chinese exports from such ports as Qingdao in Shandong can be counterbalanced by pro-active promotions of domestic consumption, says an economist. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798796_1_20250403160427.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=10)
-  
-
-The latest tariffs imposed by the United States will add to the country's own economic pains, complicate already heightened global trade and geopolitical tensions, and result in a backlash from many nations, according to economists.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm)
 
 ---

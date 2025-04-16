@@ -1,6 +1,270 @@
+# Errant drivers to be brought to book in pilot scheme
+
+![The pilot traffic enforcement programme will begin on April 22. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800578_1_20250416100846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+Police announced on Wednesday a new pilot programme to monitor traffic violations at four locations using security cameras starting on Tuesday, with the aim of enhancing road safety and enforcement efficiency.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800578-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800578-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800578-20250416.htm)
+
+---
+
+# HK eyes e-commerce, silver economy amid challenges
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800565_1_20250416090709.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Hong Kong needs to seek new growth opportunities amid global uncertainties, such as developing e-commerce and the silver economy, says Secretary for Commerce and Economic Development Algernon Yau.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800565-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800565-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800565-20250416.htm)
+
+---
+
+# HK junior fencing team wins bronze in Wuxi
+
+![The Hong Kong, China team defeated Hungary in the bronze-medal match. Photo: Fencing Association of Hong Kong, China's Facebook](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800547_1_20250416061147.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Hong Kong, China's junior men’s epee team made history at the World Cadets and Juniors Fencing Championships in Wuxi, clinching their first-ever bronze medal in the event - a landmark achievement for the SAR.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800547-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800547-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800547-20250416.htm)
+
+---
+
+# HK to suspend parcel postal services to the US
+
+![Air parcel services will stop from April 27. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800564_1_20250416085557.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Hongkong Post announced on Wednesday an immediate suspension of parcel services to the United States via surface mail, due to the longer shipping time as small parcels are due to be hit by US tariffs from May 2.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800564-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800564-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800564-20250416.htm)
+
+---
+
+# GBA is a big draw for tourists: CE
+
+![John Lee says the Greater Bay Area is a consumer market 10 times larger than Hong Kong's. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800516_1_20250415214103.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Chief Executive John Lee said the Greater Bay Area (GBA) offers a key development opportunity for local tourism.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800516-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800516-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800516-20250415.htm)
+
+---
+
+# HK 'is a pivotal region for I&T development'
+
+![John Hoffman says Hong Kong should make use of its proximity to the mainland to learn from the largest mobile network operators there. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800495_1_20250415181459.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+An association representing global mobile operators said on Tuesday Hong Kong is a pivotal region for the development of innovation and technology and that it can learn from the mainland.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800495-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800495-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800495-20250415.htm)
+
+---
+
+# HK 'must step up vigilance over soft confrontations'
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800484_1_20250415170110.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Mainland and SAR scholars on Tuesday called on the Hong Kong government to ramp up its vigilance against the so-called "soft confrontations", saying external powers such as the United States could double down on its suppression efforts against China via "ideological wars".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800484-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800484-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800484-20250415.htm)
+
+---
+
+# HK to keep zero tariffs amid trade war: customs chief
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800442_1_20250415133339.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Commissioner of Customs and Excise Chan Tsz-tat said on Tuesday free trade and globalisation are losing momentum in the face of a wave of US tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800442-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800442-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800442-20250415.htm)
+
+---
+
+# HK can contribute more to the nation: Zheng Yanxiong
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800434_1_20250415120405.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+The director of the central government's liaison office Zheng Yanxiong said on Tuesday that Hong Kong should push for greater development and contribute more to the nation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800434-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800434-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800434-20250415.htm)
+
+---
+
+# Energy efficiency varies for even best split-level ACs
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800439_1_20250415123757.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+Consumers should read through seasonal performance factor indicators for split-level air conditioners and not just their energy-efficiency labels before making a purchase, the Consumer Council said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800439-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800439-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800439-20250415.htm)
+
+---
+
+# HK to grasp opportunities arising from tariff war: CE
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800433_1_20250415115836.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Chief Executive John Lee on Tuesday said Hong Kong will grasp the opportunities brought by a new economic and trade order amid the tariff war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800433-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800433-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800433-20250415.htm)
+
+---
+
 # Xia Baolong: United States after our very survival
 
-![Xia Baolong says the US tariffs are "extremely arrogant and shameless".](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800428_1_20250415112731.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800428_1_20250415112731.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 Beijing's top official overseeing SAR affairs on Tuesday slammed the United States for imposing heavy tariffs on Hong Kong, calling the move "extremely arrogant and shameless".
@@ -24,7 +288,7 @@ Beijing's top official overseeing SAR affairs on Tuesday slammed the United Stat
 
 # Schools mark National Security Education Day
 
-![Hennessy Road Government Primary School (Causeway Bay) was the main venue for flag-raising ceremonies held at schools across the SAR. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800420_1_20250415111530.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800420_1_20250415111530.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 Over 300 primary and secondary schools as well as kindergartens, involving nearly 160,000 students across Hong Kong, held flag-raising ceremonies to mark National Security Education Day on Tuesday.
@@ -1173,269 +1437,5 @@ Authorities on Thursday said they are stepping up efforts to tackle scam syndica
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799754-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799754-20250410.htm)
-
----
-
-# 'Hefty US tariffs on China are very irrational'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799733_1_20250410114748.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=15)
-  
-
-An industry veteran on Thursday described US President Donald Trump's decision to further raise the levy on Chinese goods to 125 percent as “very irrational”, with experts saying Hong Kong firms should rely less on the US market.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799733-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799733-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799733-20250410.htm)
-
----
-
-# 'China justified in taking action against US tariffs'
-
-![Lawmaker Jeffrey Lam says China was forced into taking action due to aggressive moves by the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799732_1_20250410114542.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-Lawmaker and executive councillor Jeffrey Lam on Thursday said China was justified in retaliating against US tariffs with trade levies of its own.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799732-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799732-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799732-20250410.htm)
-
----
-
-# HK martial artist wins gold in Sanda World Cup
-
-![The Hong Kong, China team won four medals, including one gold, one silver and two bronze. Photo: Hong Kong, China Wushu Union's Facebook](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799700_1_20250410085418.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Hong Kong, China Sanda martial artist Leung Yu-hong triumphed at the 10th Sanda World Cup in Jiangyin, claiming gold in the men’s 60-kilos category.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799700-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799700-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799700-20250410.htm)
-
----
-
-# SAR rescue team returns home from Myanmar
-
-![The government holds a welcome-home ceremony for the SAR rescue team at Chek Lap Kok airport. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799667_1_20250409230545.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-The SAR's search and rescue team on Wednesday night returned home from Myanmar, where they supported relief efforts following a devastating earthquake that struck the country last month.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799667-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799667-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799667-20250409.htm)
-
----
-
-# China condemns US bill that threatens HKETOs
-
-![Beijing says certain US politicians should stop interfering in Hong Kong affairs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799653_1_20250409201808.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-Beijing on Wednesday denounced the reintroduction of a United States bill that threatens closures of Hong Kong's Economic and Trade Offices (ETO) in the country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799653-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799653-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799653-20250409.htm)
-
----
-
-# Rescue teams return to Beijing from quake-hit Myanmar
-
-![The teams arrived at the Beijing Capital International Airport at about 4pm. Photo: CCTV](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799620_1_20250409165725.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Search and rescue teams from Hong Kong and the mainland returned to Beijing on Wednesday afternoon after completing their missions in quake-hit Myanmar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799620-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799620-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799620-20250409.htm)
-
----
-
-# Small parcels tariff triples in Trump escalation
-
-![Small parcels sent from Hong Kong after May 2 and before June 1 will be subject to a US$75 levy and US$150 after that. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799614_2_20250409164405.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-The US tariff on small goods parcels sent from mainland China and Hong Kong has been tripled in the latest escalation by US President Donald Trump of the ongoing trade war between the world’s two biggest economies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799614-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799614-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799614-20250409.htm)
-
----
-
-# Revamped HK$2 subsidy scheme to take effect earlier
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799608_1_20250409161316.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-The government said changes to the HK$2 transport subsidy scheme will be in place sooner than expected.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799608-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799608-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799608-20250409.htm)
-
----
-
-# Social worker jailed over riot conviction in retrial
-
-![The District Court has also sentenced three other defendants in the same retrial. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799588_1_20250409141131.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Social worker Jackie Chen was on Wednesday handed a three-year, nine-month prison sentence after being convicted of rioting during the 2019 unrest in a retrial.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799588-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799588-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799588-20250409.htm)
-
----
-
-# MTR warns of Tung Chung-Sunny Bay service disruption
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799574_1_20250409122315.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Train services between Tung Chung and Sunny Bay will end earlier next Saturday to make way for track diversion work as part of the line's extension, MTR officials said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799574-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799574-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799574-20250409.htm)
-
----
-
-# New technologies can speed up housing projects: govt
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799568_1_20250409120045.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Secretary for Housing Winnie Ho said new construction technologies can speed up housing projects and that residents living in substandard subdivided flats will not go homeless amid policy changes.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799568-20250409.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799568-20250409.htm](https://news.rthk.hk/rthk/en/component/k2/1799568-20250409.htm)
 
 ---

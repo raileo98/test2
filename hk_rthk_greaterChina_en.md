@@ -1,6 +1,318 @@
+# More cities in China chalking up home price gains
+
+![Shenzhen is among first-tier cities in China that saw property prices rise. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800599_1_20250416115925.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+  
+
+Home prices rose in more Chinese cities in March from a month ago as transactions became more vibrant in the real estate market, data from the National Bureau of Statistics showed on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800599-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800599-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800599-20250416.htm)
+
+---
+
+# Trump eyes new tariffs with critical minerals probe
+
+![China is the biggest supplier of rare metals in the world. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800595_1_20250416113435.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+US President Donald Trump has ordered a probe that may result in tariffs on critical minerals, rare-earth metals and associated products such as smartphones in an escalation of his dispute with global trade partners.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800595-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800595-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800595-20250416.htm)
+
+---
+
+# China's growth beats forecasts with 5.4pc spike
+
+![China's economic growth saw a spike as exporters raced to get their goods to markets ahead of the US tariffs pronouncements. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800592_1_20250416111935.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+  
+
+Beijing said on Wednesday the economy grew a forecast-beating 5.4 percent in the first quarter as exporters rushed to get goods out of factory gates ahead of swingeing new US tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800592-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800592-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800592-20250416.htm)
+
+---
+
+# Nvidia set back by new US ban on H20 chip
+
+![The US has already restricted exports to China of Nvidia's most sophisticated GPUs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800550_1_20250416073248.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Nvidia on Tuesday notified regulators that it expects a US$5.5 billion hit this quarter due to a new US licensing requirement on the primary chip it can legally sell in China.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800550-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800550-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800550-20250416.htm)
+
+---
+
+# Trump says ball in China's court on tariffs
+
+![Karoline Leavitt maintains that Donald Trump remains open to a deal with Beijing. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800536_1_20250416054647.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+US President Donald Trump believes it is up to China, not the United States, to come to the negotiating table on trade, the White House said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800536-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800536-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800536-20250416.htm)
+
+---
+
+# Premier Li urges exporters to diversify markets
+
+![Li Qiang pledged to take steps to stabilise employment, promote income growth, and strengthen social safety nets to help boost consumption. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800543_1_20250416060102.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Premier Li Qiang called on the country's exporters on Tuesday to diversify their markets to cope with external changes, and vowed to support more domestic consumption, in comments on mainland media.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800543-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800543-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800543-20250416.htm)
+
+---
+
+# President Xi arrives in Malaysia for state visit
+
+![President Xi Jinping is greeted by Malaysian Prime Minister Anwar Ibrahim as he arrives in Kuala Lumpur. Photo: AFP/Malaysia's Department of Information](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800504_1_20250415195247.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+President Xi Jinping on Tuesday began a state visit to Malaysia.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800504-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800504-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800504-20250415.htm)
+
+---
+
+# Beijing lays down law on EV battery safety
+
+![Safety will be enhanced for owners and users of electric vehicles with the new Chinese rules on battery safety. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800496_1_20250415181647.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+An updated mandatory national standard on the safety of electric vehicle batteries in China is set to take effect on July 1 next year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800496-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800496-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800496-20250415.htm)
+
+---
+
+# Canton Fair passes 30,000 landmark in a first
+
+![A woman interacts with one of the many exhibits in the special zone for service robots at the Canton Fair in Guangzhou. Photo: Imaginechina via AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800494_1_20250415180113.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
+  
+
+The 137th edition of the China Import and Export Fair, also known as Canton Fair, kicked off on Tuesday, with the number of export exhibitors exceeding 30,000 for the first time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800494-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800494-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800494-20250415.htm)
+
+---
+
+# Visit to Vietnam fruitful albeit brief: Xi
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800485_2_20250415191049.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+President Xi Jinping has described his state visit to Vietnam as "fruitful albeit brief" as he wrapped up his two-day trip on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800485-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800485-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800485-20250415.htm)
+
+---
+
+# Fukushima fine-tunes debris clearing operations
+
+![A bird's eye view of Fukushima nuclear power plant as Japanese engineers attempt to remove a second sample of radioactive debris. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800462_1_20250415151251.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+  
+
+Japanese engineers began on Tuesday a difficult operation to remove a second sample of radioactive debris from inside the stricken Fukushima nuclear plant.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800462-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800462-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800462-20250415.htm)
+
+---
+
+# HK can contribute more to the nation: Zheng Yanxiong
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800434_1_20250415120405.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+The director of the central government's liaison office Zheng Yanxiong said on Tuesday that Hong Kong should push for greater development and contribute more to the nation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800434-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800434-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800434-20250415.htm)
+
+---
+
+# HK to grasp opportunities arising from tariff war: CE
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800433_1_20250415115836.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Chief Executive John Lee on Tuesday said Hong Kong will grasp the opportunities brought by a new economic and trade order amid the tariff war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800433-20250415.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800433-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800433-20250415.htm)
+
+---
+
 # Xia Baolong: United States after our very survival
 
-![Xia Baolong says the US tariffs are "extremely arrogant and shameless".](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800428_1_20250415112731.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800428_1_20250415112731.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 Beijing's top official overseeing SAR affairs on Tuesday slammed the United States for imposing heavy tariffs on Hong Kong, calling the move "extremely arrogant and shameless".
@@ -1123,317 +1435,5 @@ The latest search for Malaysia Airlines flight MH370 has been suspended as it is
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm)
-
----
-
-# Chinese rescuers fill vacuum US cuts leave in Myanmar
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798770_1_20250403120430.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-After a 7.7 magnitude earthquake shook Myanmar on Friday, killing more than 2,800 people, international rescuers rushed into the devastated Southeast Asian country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm)
-
----
-
-# China urges US to 'immediately cancel' new tariffs
-
-![The Commerce Ministry has called for Washington to "immediately cancel" sweeping new tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798759_1_20250403104243.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-Beijing on Thursday said it "firmly opposes" sweeping new US tariffs on its exports, vowing "countermeasures to safeguard its own rights and interests".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm)
-
----
-
-# HKMAO reposts another article on Hutchison deal
-
-![CK Hutchison has announced plans to sell its ports, including assets along the Panama Canal. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798683_1_20250402211035.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-The Hong Kong and Macau Affairs Office (HKMAO) on Wednesday reposted an article by the Ta Kung Pao newspaper voicing opposition to CK Hutchison's plans to sell dozens of ports, including strategic assets along the Panama Canal.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm)
-
----
-
-# Mainland, SAR rescuers find quake survivor in Mandalay
-
-![A 52-year-old man has been rescued from the rubble of a hotel in Mandalay. Photo: Chris Tang's Facebook page](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798679_1_20250402204310.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-Rescue teams from the SAR and the mainland have joined hands in finding a survivor in the quake-rattled Myanmar city of Mandalay.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm)
-
----
-
-# Tibet tourist numbers soar to all-time high
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798638_1_20250402164919.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Visitor numbers to the Tibet region reached 63 million last year, its highest ever.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798638-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798638-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798638-20250402.htm)
-
----
-
-# Warning shots fired at Chinese Red Cross convoy
-
-![A Chinese Red Cross team looks for survivors among the ruins of a residential building in Mandalay on Sunday. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798650_1_20250402174414.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-China strongly urges all parties in Myanmar to ensure the safety of earthquake relief workers and supplies from China and other countries, a Foreign Ministry spokesman said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm)
-
----
-
-# Manila warned over peace threat from any F-16 deal
-
-![US Air Force F-16 fighter jets at Basa Air Base in Pampanga, Philippines, last April for a joint exercise. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798634_1_20250402161526.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-China on Wednesday warned the Philippines against threatening "regional peace" after the United States said it had approved the possible sale of US$5.58 billion in F-16 fighter jets to Manila.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm)
-
----
-
-# CATL and Sinopec eye 10,000 battery swap stations
-
-![The deal is aimed at easing range anxiety among electric vehicle drivers. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798636_1_20250402163804.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Chinese electric vehicle battery giant CATL said on Wednesday that it will partner with state-owned oil giant Sinopec to build 10,000 battery swap stations.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798636-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798636-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798636-20250402.htm)
-
----
-
-# Chinese companies abroad told to abide by local laws
-
-![The skyscraper that collapsed was a joint project involving an offshoot of China Railway Group. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798620_1_20250402151025.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-China's embassy in Bangkok called on the country's companies operating abroad to comply with local laws after a Chinese construction firm came under scrutiny over a deadly building collapse in Friday's earthquake.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm)
-
----
-
-# Beijing puts store in EVs for shoring up power grids
-
-![Electric vehicles in Shenzhen will be among those used for storage to meet peak demand on power grids. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798596_1_20250402123635.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-China plans to launch pilot projects in nine cities that would use the country's growing fleet of electric vehicles as batteries to shore up power supply on the grid during spikes in demand, according to a government announcement on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798596-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798596-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798596-20250402.htm)
-
----
-
-# US sanctions just 'a piece of waste paper': Beijing
-
-![The Office for Safeguarding National Security says Washington should stop its bullying tactics as soon as possible. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798470_1_20250401170116.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Beijing's Office for Safeguarding National Security in Hong Kong has issued a stern warning against the United States for sanctioning six officials, saying such punitive actions are simply "a piece of waste paper."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm)
-
----
-
-# Xiaomi hands over data in fatal SU7 crash in Anhui
-
-![Xiaomi' SU7 has outsold Tesla's Model 3. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798464_1_20250401165627.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-Xiaomi said on Tuesday that it was actively cooperating with police after a fatal accident involving a SU7 electric vehicle on Saturday and that it had handed over driving and system data.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm)
-
----
-
-# PLA conducts military exercises around Taiwan
-
-![The Taiwan Affairs Office says the drills target separatist activities advocating "Taiwan independence" and are not directed at the broader population of Taiwan. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798421_1_20250401123058.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-The People's Liberation Army (PLA) Eastern Theater Command on Tuesday started to conduct joint exercises around Taiwan Island.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm)
 
 ---
