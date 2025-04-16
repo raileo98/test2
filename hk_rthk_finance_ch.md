@@ -94,6 +94,30 @@
 
 ---
 
+# 有市民稱停收措施不便　將暫停寄郵包予美國親友
+
+![香港郵政宣布暫停接收寄往美國內載貨品的郵遞服務，在尖沙咀一間郵局，有市民說會暫停寄件。（余思嵐攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800627_1_20250416144437.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+  
+
+香港郵政宣布暫停接收寄往美國內載貨品的郵遞服務，平郵即日起暫停，空郵方面則將於4月27日起暫停；其他只內載文件而沒有貨品的郵件則不受影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800627-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800627-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800627-20250416.htm)
+
+---
+
 # 白宮：中國進口到美國貨品面臨245%關稅　因中方報復措施
 
   
@@ -189,7 +213,7 @@
 
 ---
 
-# 小鵬汽車：市場汰弱留強內地最終或餘下10家或以內車企
+# 小鵬汽車：內地市場汰弱留強最終或餘下10家或以內車企
 
 ![何小鵬預計內地汽車市場上最終只餘下10家或以內車企。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800612_1_20250416130403.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800455-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800455-20250415.htm)
-
----
-
-# 外交部：面對外部不確定性　中國堅持聯通而非脫鉤
-
-![林劍稱，面對外部的不確定性，中國將堅持「握手而非揮拳，拆牆而非築壘，聯通而非脫鉤」。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800473_1_20250415160714.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-在北京，外交部發言人林劍表示，今年首季中國貨物貿易進出口達10萬3000億元人民幣，其中出口突破6萬億元，實現6.9%增長，強調中國是世界的市場、各國的機遇，面對外部的不確定性，中國將堅持「握手而非揮拳，拆牆而非築壘，聯通而非脫鉤」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800473-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800473-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800473-20250415.htm)
 
 ---

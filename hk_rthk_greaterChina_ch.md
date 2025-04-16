@@ -1,3 +1,26 @@
+# 習近平晤易卜拉欣　強調致力開啟中馬關係新的「黃金50年」
+
+  
+
+國家主席習近平繼續在馬來西亞的國事訪問，會見最高元首易卜拉欣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800633-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800633-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800633-20250416.htm)
+
+---
+
 # 李成鋼獲任命為商務部國際貿易談判代表兼副部長
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm)
-
----
-
-# 內地3月出口以美元計價按年增長12.4%　創5個月最快增速
-
-![按美元計價，內地3月出口按年增長12.4%，創5個月以來最快增速；進口下跌4.3%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800258_1_20250414111140.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-中國海關總署公布，以美元計價，內地3月出口按年增長12.4%，創5個月以來最快增速；進口下跌4.3%，3月貿易順差1026.4億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800258-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800258-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800258-20250414.htm)
 
 ---

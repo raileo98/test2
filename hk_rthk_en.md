@@ -96,7 +96,7 @@ Ombudsman Jack Chan said on Wednesday the government should step up inspections 
 
 # Frustration up over postal stop to US-bound parcels
 
-![Hongkong Post has suspended parcel services to the US via surface mail and will no longer offer air delivery services starting from April 27. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800602_1_20250416120157.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800602_1_20250416120157.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 Some locals have been left frustrated by Hongkong Post's announcement on Wednesday that it has suspended surface parcel deliveries to the United States with immediate effect.
