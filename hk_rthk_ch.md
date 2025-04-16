@@ -1,3 +1,27 @@
+# 星展與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款
+
+![星展香港與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款。（公司提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800637_1_20250416152749.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+星展香港與恒基地產本月簽訂總值50億元雙邊多期可持續發展掛鈎貸款及社會責任貸款，支持恒地業務發展需求，推動集團可持續發展及社會責任相關項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800637-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800637-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800637-20250416.htm)
+
+---
+
 # 國防部：抹黑中國摘不掉美國「黑客帝國」的帽子
 
 ![張曉剛說，抹黑中國摘不掉美國「黑客帝國」的帽子。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800638_1_20250416153042.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -70,7 +94,7 @@
 
 ---
 
-# 滬股倒升約0.3%收市　滬股及創業板指數跌幅收窄
+# 滬股倒升約0.3%收市　深股及創業板指數跌幅收窄
 
 ![上證綜合指數一度跌1%，收市報3276點，升8點，升幅0.26%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800634_1_20250416151548.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
@@ -548,30 +572,6 @@ NBA季後賽附加賽，金州勇士121:116擊敗孟菲斯灰熊，晉身季後�
 
 ---
 
-# 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
-
-![香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件。（余思嵐攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800603_1_20250416131219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
-
----
-
 # 立法會恢復二讀辯論預算案撥款條例草案
 
 ![立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800609_1_20250416131345.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -593,6 +593,30 @@ NBA季後賽附加賽，金州勇士121:116擊敗孟菲斯灰熊，晉身季後�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
+
+---
+
+# 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
+
+![香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件。（余思嵐攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800603_1_20250416131219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
 
 ---
 
