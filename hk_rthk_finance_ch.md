@@ -860,7 +860,7 @@
 
 ---
 
-# 許正宇稱LME核准首批香港倉儲體現市場需求及香港吸引力
+# 許正宇：LME核准首批香港倉儲體現市場需求及香港吸引力
 
 ![許正宇預計日後工業企業和製造商在LME買入期貨後可在香港提取銅、鋁及鎳等基礎金屬。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800572_1_20250416130744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   

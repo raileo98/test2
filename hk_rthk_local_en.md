@@ -1,3 +1,27 @@
+# Support measures urged for SMEs amid trade war
+
+![Business and Professionals Alliance lawmakers say small and medium enterprises are important driving forces of economic growth in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800646_1_20250416165010.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+Legislators from the Business and Professionals Alliance (BPA) on Wednesday urged the government to roll out support measures for Hong Kong's business sector amid the ongoing trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800646-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800646-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800646-20250416.htm)
+
+---
+
 # Govt urged to beef up penalties for animal cruelty
 
 ![Animal welfare groups want tougher penalties for animal cruelty cases. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800640_1_20250416155930.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1413,29 +1437,5 @@ Hong Kong Customs says it seized about 20 kilograms of suspected MDMA worth HK$4
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799843-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799843-20250411.htm)
-
----
-
-# HK exporters to receive extra support amid tariffs
-
-![Algernon Yau (third left) met with representatives of industries which are more affected by the tariffs, such as jewellery, textiles and garment, food and aluminium. Photo courtesy of the Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799826_2_20250410213210.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Hong Kong authorities have offered further support to insure local small and medium-sized enterprises (SMEs) against pre-shipment risks amid sweeping tariffs, while announcing measures to help them tap into new markets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799826-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799826-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799826-20250410.htm)
 
 ---

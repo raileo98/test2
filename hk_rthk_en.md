@@ -1,3 +1,27 @@
+# Support measures urged for SMEs amid trade war
+
+![Business and Professionals Alliance lawmakers say small and medium enterprises are important driving forces of economic growth in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800646_1_20250416165010.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+Legislators from the Business and Professionals Alliance (BPA) on Wednesday urged the government to roll out support measures for Hong Kong's business sector amid the ongoing trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800646-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800646-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800646-20250416.htm)
+
+---
+
 # HK stocks hit as trade war shows no signs of abating
 
 ![The benchmark Hang Seng Index ended down 1.91 percent at 21,056.98. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800647_1_20250416165556.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
@@ -1411,29 +1435,5 @@ US President Donald Trump on Monday hosted El Salvador's President Nayib Bukele,
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800367-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800367-20250415.htm)
-
----
-
-# Ex-Malaysian PM Abdullah Badawi dies
-
-![Abdullah Badawi was prime minister of Malaysia from 2003 to 2009. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800359_1_20250414223012.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Former Malaysian prime minister Abdullah Ahmad Badawi died on Monday, aged 85, his family and medical authorities reported.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800359-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800359-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800359-20250414.htm)
 
 ---
