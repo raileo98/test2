@@ -1,3 +1,27 @@
+# 3月訪日外國人較上年同期增加13.5%創同期新高
+
+![日本政府公佈的估算數據顯示，3月訪日外國人較上年同期增加13.5%。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800698_1_20250417035139.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+  
+
+日本政府公佈的估算數據顯示，3月訪日外國人較上年同期增加13.5%，達到349萬7600人次，創同期歷史新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800698-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800698-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800698-20250417.htm)
+
+---
+
 # 加州入稟法院挑戰特朗普政府向貿易夥伴徵收大規模關稅
 
 ![紐森在聲明中說，特朗普的非法關稅正在對加州的家庭、企業和經濟構成混亂。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800697_1_20250417032019.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800371-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800371-20250415.htm)
-
----
-
-# 哈馬斯官員：解除武裝不容討論
-
-![巴勒斯坦武裝組織哈馬斯一名高級官員稱，討論解除武裝對哈馬斯而言是不可接受。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800370_1_20250415025530.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-巴勒斯坦武裝組織哈馬斯一名高級官員稱，討論解除武裝對哈馬斯而言是不可接受，保留武裝是巴勒斯坦人民的基本權利，不容討論。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800370-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800370-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800370-20250415.htm)
 
 ---
