@@ -1,3 +1,51 @@
+# 劉國勳促提高殘酷對待及疏忽照顧動物罰則　檢討動物進入食肆法例
+
+![劉國勳建議將最高罰款20萬港元及監禁3年，增至例如100萬元及7年。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800679_1_20250416215308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+民建聯新界北立法會議員劉國勳說，本港殘酷對待動物舉報個案接連上升，促請政府盡快修例，提高殘酷對待及疏忽照顧動物的罰則，並檢討動物進入食肆的相關法例。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800679-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800679-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800679-20250416.htm)
+
+---
+
+# 道指初段跌近0.4%　納指跌逾1.6%
+
+![道瓊斯指數較早時報40220點，跌148點，跌幅0.37%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800678_1_20250416214922.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+美股初段下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800678-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800678-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800678-20250416.htm)
+
+---
+
 # 習近平與安華會談　強調團結合作抵制「脫鉤斷鏈」和濫徵關稅
 
 ![習近平在馬來西亞與安華會談。 (路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800677_1_20250416213756.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -408,7 +456,7 @@
 
 # 有建造業個案貿然簽署表格　工程師學會前會長卜國明譴責不當行為
 
-![卜國明說，如果這些「合資格人士」是學會會員，需要接受紀律處分。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800657_1_20250416212951.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+![卜國明說，如果這些「合資格人士」是學會會員，需要接受紀律處分。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800657_2_20250416215614.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 申訴專員公署發現，「合資格人士」在多宗建造業高風險作業個案中，未有妥善檢查裝置或機械就貿然簽署指定表格確認安全，甚至未檢查就預先一次過簽多張表格，建議勞工處多管齊下加強監察。

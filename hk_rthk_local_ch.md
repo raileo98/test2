@@ -1,3 +1,27 @@
+# 劉國勳促提高殘酷對待及疏忽照顧動物罰則　檢討動物進入食肆法例
+
+![劉國勳建議將最高罰款20萬港元及監禁3年，增至例如100萬元及7年。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800679_1_20250416215308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+民建聯新界北立法會議員劉國勳說，本港殘酷對待動物舉報個案接連上升，促請政府盡快修例，提高殘酷對待及疏忽照顧動物的罰則，並檢討動物進入食肆的相關法例。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800679-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800679-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800679-20250416.htm)
+
+---
+
 # 中區警區警務人員執勤期間遺失警方手機
 
 ![中區警區警務人員執勤期間遺失警方手機](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800674_1_20250416211947.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -96,7 +120,7 @@
 
 # 有建造業個案貿然簽署表格　工程師學會前會長卜國明譴責不當行為
 
-![卜國明說，如果這些「合資格人士」是學會會員，需要接受紀律處分。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800657_1_20250416212951.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+![卜國明說，如果這些「合資格人士」是學會會員，需要接受紀律處分。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800657_2_20250416215614.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 申訴專員公署發現，「合資格人士」在多宗建造業高風險作業個案中，未有妥善檢查裝置或機械就貿然簽署指定表格確認安全，甚至未檢查就預先一次過簽多張表格，建議勞工處多管齊下加強監察。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800469-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800469-20250415.htm)
-
----
-
-# 鄧炳強稱全方位打擊軟對抗　蔡若蓮稱防範軟對抗從「強心」出發
-
-![鄧炳強（右）說，任何社會議題都有可能被一些想危害國家安全的人利用；蔡若蓮（左）指，軟對抗的危險之處在於「軟」字容易入心入腦。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800468_1_20250415155418.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-保安局局長鄧炳強在國家安全教育日的主題講座上表示，軟對抗是透過一些看似與國家安全無關的議題作為切入點，利用假新聞、假消息或偏頗報道 ，通過輿情、網上發酵等手法分化社會，挑動香港和內地的矛盾，或其他負面情緒。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800468-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800468-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800468-20250415.htm)
 
 ---
