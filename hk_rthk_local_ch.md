@@ -1,3 +1,49 @@
+# 勞工處：詳細審視申訴專員公署調查報告　積極跟進建議
+
+  
+
+​申訴專員公署就政府監管建造業職安健發表主動調查報告，發現「合資格人士」未有妥善檢查裝置或機械，貿然簽署指定表格確認安全，甚至根本未檢查，就預先一次過簽多張表格。勞工處回應表示，正詳細審視及研究報告的內容，並積極跟進建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800636-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800636-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800636-20250416.htm)
+
+---
+
+# 消息：違例泊車罰款擬增至400元　超速等罰款增加約五成
+
+  
+
+新一份財政預算案提出檢討交通違例事項的定額罰款。消息指，政府計劃提高違例泊車的定額罰款金額，由320元加至400元。另外，超速、切雙白線等交通違規事項的罰款額，初步計劃增加約五成；又計劃將私家車停車收費錶，由每節2元上調至每節4元。政府將於下星期五在立法會交通事務委員會會議討論有關建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800635-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800635-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800635-20250416.htm)
+
+---
+
 # 有市民稱停收措施不便　將暫停寄郵包予美國親友
 
 ![香港郵政宣布暫停接收寄往美國內載貨品的郵遞服務，在尖沙咀一間郵局，有市民說會暫停寄件。（余思嵐攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800627_1_20250416144437.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800445-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800445-20250415.htm)
-
----
-
-# 恒指下午初段靠穩
-
-![恒生指數較早時報21446點，升29點，升幅0.14%。 （港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800443_1_20250415130515.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-港股下午開市初段靠穩，恒生指數較早時報21446點，升29點，升幅0.14%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800443-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800443-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800443-20250415.htm)
-
----
-
-# 天文台錄得今年以來最高氣溫32.1度　提醒天氣炎熱或影響健康
-
-![中午時份，本港廣泛地區錄得30度或以上的高溫。（天文台網頁截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800441_1_20250415130404.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-天文台表示，截至中午12時45分，錄得最高氣溫32.1度，是今年以來最高紀錄。預測明日大致天晴，部分地區能見度較低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800441-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800441-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800441-20250415.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 滬股倒升約0.3%收市　滬股及創業板指數跌幅收窄
+
+![上證綜合指數一度跌1%，收市報3276點，升8點，升幅0.26%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800634_1_20250416151548.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+滬深股市尾市轉強，滬股更倒升收市。電源設備、蘋果概念股等板塊下跌；貴金屬、港口航運、旅遊及酒店板塊上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800634-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800634-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800634-20250416.htm)
+
+---
+
 # 韓股收市跌1.2%
 
 ![首爾綜合指數2447點，跌29點，跌幅1.21%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800630_1_20250416143846.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800474-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800474-20250415.htm)
-
----
-
-# 廣交會今日開幕　大約31000間企業參展
-
-![廣交會今日開幕　大約31000間企業參展](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800455_1_20250415164533.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-第137屆廣交會今日開幕，有大約31000間企業參展，其中出口展參展企業首次突破3萬家。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800455-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800455-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800455-20250415.htm)
 
 ---

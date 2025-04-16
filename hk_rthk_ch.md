@@ -1,5 +1,76 @@
+# 勞工處：詳細審視申訴專員公署調查報告　積極跟進建議
+
+  
+
+​申訴專員公署就政府監管建造業職安健發表主動調查報告，發現「合資格人士」未有妥善檢查裝置或機械，貿然簽署指定表格確認安全，甚至根本未檢查，就預先一次過簽多張表格。勞工處回應表示，正詳細審視及研究報告的內容，並積極跟進建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800636-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800636-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800636-20250416.htm)
+
+---
+
+# 消息：違例泊車罰款擬增至400元　超速等罰款增加約五成
+
+  
+
+新一份財政預算案提出檢討交通違例事項的定額罰款。消息指，政府計劃提高違例泊車的定額罰款金額，由320元加至400元。另外，超速、切雙白線等交通違規事項的罰款額，初步計劃增加約五成；又計劃將私家車停車收費錶，由每節2元上調至每節4元。政府將於下星期五在立法會交通事務委員會會議討論有關建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800635-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800635-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800635-20250416.htm)
+
+---
+
+# 滬股倒升約0.3%收市　滬股及創業板指數跌幅收窄
+
+![上證綜合指數一度跌1%，收市報3276點，升8點，升幅0.26%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800634_1_20250416151548.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+滬深股市尾市轉強，滬股更倒升收市。電源設備、蘋果概念股等板塊下跌；貴金屬、港口航運、旅遊及酒店板塊上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800634-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800634-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800634-20250416.htm)
+
+---
+
 # 習近平晤易卜拉欣　強調致力開啟中馬關係新的「黃金50年」
 
+![易卜拉欣在馬來西亞國家王宮廣場為習近平舉行隆重歡迎儀式。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800633_1_20250416151515.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
   
 
 國家主席習近平繼續在馬來西亞的國事訪問，會見最高元首易卜拉欣。
