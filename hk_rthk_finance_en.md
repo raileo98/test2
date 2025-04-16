@@ -1,3 +1,27 @@
+# WTO chief says 'very concerned' tariffs will cut trade
+
+![WTO chief Ngozi Okonjo-Iweala says the body must "streamline its decision-making." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800694_1_20250417021537.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Global trade is expected to plummet this year in the wake of US President Donald Trump's tariff offensive, fuelling uncertainty that threatens "severe negative consequences" for the world, the World Trade Organisation warned on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800694-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800694-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800694-20250417.htm)
+
+---
+
 # Chinese EV maker XPeng eyes global expansion
 
 ![XPeng's founder He Xiaopeng says AI technology is key to the company's future. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800651_1_20250416182707.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1435,5 @@ Japan's Nikkei share index plunged further on Monday, as US futures pointed to a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799177-20250407.htm)
-
----
-
-# Jaguar Land Rover to pause UK car shipments to US
-
-![Britain's car industry, which employs 200,000 people directly, is highly exposed to the new US tariffs. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799089_1_20250406095114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Jaguar Land Rover (JLR) will pause shipments of its UK-made cars to the United States for a month, it said on Saturday, as it considers how to mitigate the cost of President Donald Trump's 25 percent tariff.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799089-20250406.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799089-20250406.htm](https://news.rthk.hk/rthk/en/component/k2/1799089-20250406.htm)
 
 ---

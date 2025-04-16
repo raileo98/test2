@@ -1,3 +1,27 @@
+# WTO chief says 'very concerned' tariffs will cut trade
+
+![WTO chief Ngozi Okonjo-Iweala says the body must "streamline its decision-making." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800694_1_20250417021537.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Global trade is expected to plummet this year in the wake of US President Donald Trump's tariff offensive, fuelling uncertainty that threatens "severe negative consequences" for the world, the World Trade Organisation warned on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800694-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800694-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800694-20250417.htm)
+
+---
+
 # Israel says 30 percent of Gaza turned into buffer zone
 
 ![The devastation in Gaza has created what Israel is now calling a 'security perimeter.' Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800693_1_20250417013153.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
@@ -1411,29 +1435,5 @@ Hong Kong's Hang Seng Index rose 186 points, or 0.87 percent, to open at 21,603 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800398-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800398-20250415.htm)
-
----
-
-# National security awareness 'has hit high levels'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800412_1_20250415100822.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Chief Secretary Eric Chan said on Tuesday society's awareness of national security has reached new heights.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800412-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800412-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800412-20250415.htm)
 
 ---
