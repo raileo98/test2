@@ -1,3 +1,27 @@
+# Nasdaq ends down 3.1% on Nvidia drop, economic angst
+
+![One analyst said US Federal Reserve chairman Jerome Powell "took what was a moderately down day into a pretty dramatic slide." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800700_1_20250417053537.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Wall Street stocks tumbled on Wednesday as the Federal Reserve chief warned of the drag from US President Donald Trump's tariffs, while Nvidia sank on costs connected to the US-China trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800700-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800700-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800700-20250417.htm)
+
+---
+
 # US Fed Chair warns tariffs may force it to choose goal
 
 ![Jerome Powell says the US Federal Reserve could find itself in a "challenging scenario in which our dual-mandate goals are in tension." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800695_1_20250417024428.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@ Under Secretary for Financial Services and the Treasury Joseph Chan said on Mond
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799235-20250407.htm)
-
----
-
-# Hang Seng Index slumps on US tariff sell-off
-
-![Hong Kong's benchmark fell by over 9 percent at the start of trading. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799185_1_20250407093759.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
-  
-
-Financial markets in Hong Kong and across the border dived on Monday as markets around the world crumbled in the face of a widening global trade war and fears it will unleash a deep recession.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799185-20250407.htm)
 
 ---

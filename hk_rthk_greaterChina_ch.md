@@ -1,3 +1,27 @@
+# 中方就英鋼事件促英國政府切實保障中資企業合法正當權益
+
+![英國國會通過由政府接管中國敬業集團持有的英國鋼鐵公司。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800703_1_20250417053553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+英國國會通過由政府接管中國敬業集團持有的英國鋼鐵公司，中國駐英國使館發言人認為，英國個別政客的反華言論極其荒唐可笑，反映他們的傲慢、無知和扭曲心態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800703-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800703-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800703-20250417.htm)
+
+---
+
 # 習近平：中馬將與地區國家衝破單邊主義和保護主義逆流
 
 ![習近平說，兩國將與地區國家團結一致，共同抵禦地緣政治和陣營對抗暗流，衝破單邊主義和保護主義逆流。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800692_1_20250417012649.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm)
-
----
-
-# 雲南昆明一間商店發生火警8人死亡
-
-![雲南昆明一間商店發生火警8人死亡](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800330_1_20250414174246.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-雲南昆明一間商店發生火警，造成8人死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800330-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800330-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800330-20250414.htm)
 
 ---

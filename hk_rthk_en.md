@@ -1,3 +1,27 @@
+# Nasdaq ends down 3.1% on Nvidia drop, economic angst
+
+![One analyst said US Federal Reserve chairman Jerome Powell "took what was a moderately down day into a pretty dramatic slide." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800700_1_20250417053537.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Wall Street stocks tumbled on Wednesday as the Federal Reserve chief warned of the drag from US President Donald Trump's tariffs, while Nvidia sank on costs connected to the US-China trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800700-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800700-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800700-20250417.htm)
+
+---
+
 # Meta to start using Europeans' data for AI training
 
 ![Anything from Instagram photo captions to Facebook comments could soon be fair game for Meta AI. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800690_1_20250417013459.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ Renowned American economist, Jeffrey Sachs, on Tuesday said US President Donald 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800419-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800419-20250415.htm)
-
----
-
-# Schools mark National Security Education Day
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800420_1_20250415111530.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Over 300 primary and secondary schools as well as kindergartens, involving nearly 160,000 students across Hong Kong, held flag-raising ceremonies to mark National Security Education Day on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800420-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800420-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800420-20250415.htm)
 
 ---

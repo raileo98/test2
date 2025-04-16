@@ -1,3 +1,27 @@
+# 中方就英鋼事件促英國政府切實保障中資企業合法正當權益
+
+![英國國會通過由政府接管中國敬業集團持有的英國鋼鐵公司。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800703_1_20250417053553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+英國國會通過由政府接管中國敬業集團持有的英國鋼鐵公司，中國駐英國使館發言人認為，英國個別政客的反華言論極其荒唐可笑，反映他們的傲慢、無知和扭曲心態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800703-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800703-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800703-20250417.htm)
+
+---
+
 # 歐股收市個別發展　半導體股下跌
 
 ![歐洲主要股市收市個別發展，半導體股下跌，其中ASML股價急跌逾5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800702_1_20250417052406.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800625-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800625-20250416.htm)
-
----
-
-# 政府建議調整電動私家車牌照費架構　分三年進行
-
-![運輸及物流局稱如改以「額定功率」，即rated power計算電動私家車牌費，相信更能配合科技發展。（運輸及物流局社交網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800624_1_20250416143448.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-運輸及物流局建議調整電動私家車牌照費架構，參照現行燃油車按引擎汽缸容量，按其額定功率的高低，分五個層級計算牌費。在建議的新牌照費架構下，電動私家車牌照費會維持低於燃油私家車的水平，而調整進程會建議分三年進行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800624-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800624-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800624-20250416.htm)
 
 ---

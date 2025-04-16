@@ -1,3 +1,27 @@
+# 中方就英鋼事件促英國政府切實保障中資企業合法正當權益
+
+![英國國會通過由政府接管中國敬業集團持有的英國鋼鐵公司。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800703_1_20250417053553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+英國國會通過由政府接管中國敬業集團持有的英國鋼鐵公司，中國駐英國使館發言人認為，英國個別政客的反華言論極其荒唐可笑，反映他們的傲慢、無知和扭曲心態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800703-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800703-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800703-20250417.htm)
+
+---
+
 # 伊朗外長：需了解美國真實立場　談判應在平等和尊重基礎上推進
 
 ![阿拉格齊說，從美方聽到多種立場，有些甚至互相矛盾，這樣絕不利於談判進程。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800701_1_20250417042437.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800377-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800377-20250415.htm)
-
----
-
-# 薩爾瓦多總統：不會把被錯誤驅逐男子送回美國
-
-![特朗普在白宮接待薩爾瓦多總統布克爾。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800375_1_20250415053138.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國總統特朗普在白宮會見到訪的薩爾瓦多總統布克爾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800375-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800375-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800375-20250415.htm)
 
 ---
