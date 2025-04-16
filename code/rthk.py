@@ -180,7 +180,7 @@ def modify_image_url(imageUrl, new_quality):
 async def optimize_image_quality(image_url, max_size_bytes=50*1000, min_quality=1, max_quality=99, extra_quality_reduction=10):
     """
     優化圖片品質，返還品質最低（quality 最小）但大小不超過 max_size_bytes 嘅圖片 URL。
-    如果原始圖片或 quality=max_quality 嘅圖片 ≤ max_size_bytes，會將 quality 再調低 extra_quality_reduction。
+    如果 x-upstream-response-length 或 quality=max_quality 嘅圖片 ≤ max_size_bytes，會將 quality 再調低 extra_quality_reduction。
 
     :param image_url: 原始圖片 URL
     :param max_size_bytes: 目標圖片大小（預設 50KB = 50,000 字節）
@@ -189,79 +189,74 @@ async def optimize_image_quality(image_url, max_size_bytes=50*1000, min_quality=
     :param extra_quality_reduction: 額外減低嘅 quality 值（預設 10）
     :return: 優化後嘅圖片 URL
     """
-    # 先獲取原始圖片（quality=max_quality）嘅大小
-    original_image_url = modify_image_url(image_url, max_quality)
-    try:
-        response = await get_response(original_image_url, method='HEAD', session=session)
-        original_size = int(response.headers.get('Content-Length', 0)) if response.ok else None
-    except Exception as e:
-        logger.error(f"獲取原始圖片大小失敗: {e}")
-        original_size = None
-
     low, high = min_quality, max_quality
     best_image_url = None
-    best_quality = max_quality + 1  # 初始值設為 max_quality + 1，確保可以更新
+    best_quality = max_quality + 1
+    upstream_response_length = None  # 原始圖片大小
 
-    # 二分搜索搵 quality 最小嘅圖片
-    while low <= high:
-        mid_quality = (low + high) // 2
-        current_image_url = modify_image_url(image_url, mid_quality)
-        
-        try:
-            response = await get_response(current_image_url, method='HEAD', session=session)
-            if response.status_code >= 400 and response.status_code < 600:
-                logger.warning(f"HTTP 錯誤: {response.status_code}, URL: {current_image_url}")
-                low = mid_quality + 1
-                continue
-
-            if response.ok:
-                current_size = int(response.headers.get('Content-Length', 0))
-                logger.info(f"圖片大小: {current_size} bytes, quality: {mid_quality}, URL: {current_image_url}")
-
-                # 檢查圖片大小同原始圖片
-                if current_size > max_size_bytes or (original_size is not None and current_size > original_size):
+    # 假設 get_response 同 modify_image_url 已定義，session 係外部傳入嘅 aiohttp session
+    async with aiohttp.ClientSession() as session:
+        # 二分搜索搵 quality 最小嘅圖片
+        while low <= high:
+            mid_quality = (low + high) // 2
+            current_image_url = modify_image_url(image_url, mid_quality)
+            
+            try:
+                response = await get_response(current_image_url, method='HEAD', session=session)
+                if response.status >= 400 and response.status < 600:
+                    logger.warning(f"HTTP 錯誤: {response.status}, URL: {current_image_url}")
                     low = mid_quality + 1
+                    continue
+
+                if response.ok:
+                    current_size = int(response.headers.get('Content-Length', 0))
+                    upstream_response_length = int(response.headers.get('x-upstream-response-length', 0))  # 獲取原始圖片大小
+                    logger.info(f"圖片大小: {current_size} bytes, quality: {mid_quality}, upstream_response_length: {upstream_response_length}, URL: {current_image_url}")
+
+                    # 檢查圖片大小
+                    if current_size > max_size_bytes:
+                        high = mid_quality - 1
+                    else:
+                        if mid_quality < best_quality:
+                            best_image_url = current_image_url
+                            best_quality = mid_quality
+                        low = mid_quality + 1
                 else:
-                    if mid_quality < best_quality:
-                        best_image_url = current_image_url
-                        best_quality = mid_quality
-                    high = mid_quality - 1
-            else:
-                logger.warning(f"響應不成功: {response.status_code}, URL: {current_image_url}")
+                    logger.warning(f"響應不成功: {response.status}, URL: {current_image_url}")
+                    low = mid_quality + 1
+
+            except Exception as e:
+                logger.error(f"獲取圖片大小失敗, URL: {current_image_url}, 錯誤: {e}")
                 low = mid_quality + 1
 
-        except Exception as e:
-            logger.error(f"獲取圖片大小失敗, URL: {current_image_url}, 錯誤: {e}")
-            low = mid_quality + 1
+        # 如果搵唔到符合條件嘅 URL，返 min_quality 嘅 URL
+        if best_image_url is None:
+            best_image_url = modify_image_url(image_url, min_quality)
+            logger.warning(f"搵唔到大小 ≤ {max_size_bytes} bytes 嘅圖片，返 min_quality={min_quality} 嘅 URL: {best_image_url}")
+            return best_image_url
 
-    # 如果搵唔到符合條件嘅 URL，返 min_quality 嘅 URL
-    if best_image_url is None:
-        best_image_url = modify_image_url(image_url, min_quality)
-        logger.warning(f"搵唔到大小 ≤ {max_size_bytes} bytes 嘅圖片，返 min_quality={min_quality} 嘅 URL: {best_image_url}")
-        return best_image_url
-
-    # 檢查原始圖片或 quality=max_quality
-    if (original_size is not None and original_size <= max_size_bytes) or \
-       (content_length_q99 is not None and content_length_q99 <= max_size_bytes):
-        # 如果原始圖片或 quality=max_quality ≤ max_size_bytes，調低 quality
-        adjusted_quality = max(min_quality, best_quality - extra_quality_reduction)
-        best_image_url = modify_image_url(image_url, adjusted_quality)
-        logger.info(f"原始圖片或 quality=max_quality ≤ {max_size_bytes} bytes，調低 quality 至 {adjusted_quality}, URL: {best_image_url}")
-    else:
         # 獲取 quality=max_quality 嘅圖片大小
         max_quality_url = modify_image_url(image_url, max_quality)
         try:
             response = await get_response(max_quality_url, method='HEAD', session=session)
             if response.ok:
                 max_quality_size = int(response.headers.get('Content-Length', 0))
-                if max_quality_size <= max_size_bytes:
-                    adjusted_quality = max(min_quality, best_quality - extra_quality_reduction)
-                    best_image_url = modify_image_url(image_url, adjusted_quality)
-                    logger.info(f"quality=max_quality 嘅圖片 ≤ {max_size_bytes} bytes，調低 quality 至 {adjusted_quality}, URL: {best_image_url}")
+                upstream_response_length = int(response.headers.get('x-upstream-response-length', 0))
+            else:
+                max_quality_size = None
         except Exception as e:
             logger.error(f"獲取 quality=max_quality 圖片大小失敗: {e}")
+            max_quality_size = None
 
-    return best_image_url
+        # 檢查 x-upstream-response-length 或 quality=max_quality
+        if (upstream_response_length is not None and upstream_response_length <= max_size_bytes) or \
+           (max_quality_size is not None and max_quality_size <= max_size_bytes):
+            # 如果 x-upstream-response-length 或 quality=max_quality ≤ max_size_bytes，調低 quality
+            adjusted_quality = max(min_quality, best_quality - extra_quality_reduction)
+            best_image_url = modify_image_url(image_url, adjusted_quality)
+            logger.info(f"x-upstream-response-length 或 quality=max_quality ≤ {max_size_bytes} bytes，調低 quality 至 {adjusted_quality}, URL: {best_image_url}")
+
+        return best_image_url
 
 # ------------------------------
 # HTTP 請求函數：支援緩存與錯誤重試
