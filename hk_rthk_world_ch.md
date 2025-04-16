@@ -1,3 +1,27 @@
+# 習近平：中馬將與地區國家衝破單邊主義和保護主義逆流
+
+![習近平說，兩國將與地區國家團結一致，共同抵禦地緣政治和陣營對抗暗流，衝破單邊主義和保護主義逆流。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800692_1_20250417012649.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+正在馬來西亞國事訪問的國家主席習近平，昨晚出席大馬總理安華的歡迎晚宴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800692-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800692-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800692-20250417.htm)
+
+---
+
 # 柬埔寨首相稱習近平到訪充分彰顯柬中關係的深厚與重要性
 
 ![洪瑪奈指，柬中關係已達到歷史最高水平。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800691_1_20250417004900.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800368-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800368-20250415.htm)
-
----
-
-# 特朗普：將對進口藥物徵收關稅
-
-![特朗普說，預計在不久的將來會對進口藥品徵收關稅。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800366_1_20250415005226.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國總統特朗普表示，預計在不久的將來會對進口藥品徵收關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm)
 
 ---

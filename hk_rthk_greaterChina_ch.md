@@ -1,3 +1,27 @@
+# 習近平：中馬將與地區國家衝破單邊主義和保護主義逆流
+
+![習近平說，兩國將與地區國家團結一致，共同抵禦地緣政治和陣營對抗暗流，衝破單邊主義和保護主義逆流。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800692_1_20250417012649.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+正在馬來西亞國事訪問的國家主席習近平，昨晚出席大馬總理安華的歡迎晚宴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800692-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800692-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800692-20250417.htm)
+
+---
+
 # 習近平與安華會談　強調團結合作抵制「脫鉤斷鏈」和濫徵關稅
 
 ![習近平在馬來西亞與安華會談。 (路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800677_1_20250416213756.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800330-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800330-20250414.htm)
-
----
-
-# 岑浩輝發表施政報告　澳門永久居民繼續獲派發1萬元
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800323_1_20250414170832.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-澳門今年第四季將調升長者及殘疾人士津貼。敬老金將由目前每年9000元調升至每年1萬澳門元，養老金每月發放金額由現時3740元增至3900澳門元，並且全年增加發放多1個月，即共13個月；殘疾人士津貼與普通殘疾津貼由每年9000元增至1萬澳門元，特別殘疾津貼由每年18000元增至2萬澳門元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800323-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800323-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800323-20250414.htm)
 
 ---

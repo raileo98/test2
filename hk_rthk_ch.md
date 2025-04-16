@@ -1,3 +1,27 @@
+# 習近平：中馬將與地區國家衝破單邊主義和保護主義逆流
+
+![習近平說，兩國將與地區國家團結一致，共同抵禦地緣政治和陣營對抗暗流，衝破單邊主義和保護主義逆流。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800692_1_20250417012649.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+正在馬來西亞國事訪問的國家主席習近平，昨晚出席大馬總理安華的歡迎晚宴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800692-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800692-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800692-20250417.htm)
+
+---
+
 # 柬埔寨首相稱習近平到訪充分彰顯柬中關係的深厚與重要性
 
 ![洪瑪奈指，柬中關係已達到歷史最高水平。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800691_1_20250417004900.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1410,29 +1434,5 @@ NBA季後賽附加賽，金州勇士121:116擊敗孟菲斯灰熊，晉身季後�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800613-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800613-20250416.htm)
-
----
-
-# 小鵬汽車：內地市場汰弱留強最終或餘下10家或以內車企
-
-![何小鵬預計內地汽車市場上最終只餘下10家或以內車企。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800612_1_20250416130403.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-小鵬汽車聯合創辦人、董事長兼首席執行官何小鵬表示，未來3-5年公司仍不能「穩坐釣魚台」，將關注科技發展、企業綜合體系能力、商業能力及全球化，預計未來10年公司一半以上銷售都來自海外。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800612-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800612-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800612-20250416.htm)
 
 ---
