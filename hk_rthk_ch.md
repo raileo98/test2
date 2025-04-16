@@ -1,3 +1,27 @@
+# 道指低收近700點　納指跌逾3%　Nvidia挫近7%
+
+![道瓊斯指數尾市跌幅擴大至最多逾970點，收市報39669點，跌699點，跌幅1.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800704_1_20250417054321.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+美股3大指數收市下跌，納斯達克指數跌逾3%。聯儲局主席鮑威爾表示，美國總統特朗普的關稅政策，可能令控制通脹與經濟增長同時受阻。世貿組織表示，關稅不確定性令全球貿易前景急劇惡化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800704-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800704-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800704-20250417.htm)
+
+---
+
 # 伊朗外長冀國際原子能機構不受某方面不合理壓力影響
 
 ![伊朗外長阿拉格齊會見到訪的國際原子能機構總幹事格羅西。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800705_1_20250417054727.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1412,28 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800627-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800627-20250416.htm)
-
----
-
-# 白宮：中國進口到美國貨品面臨245%關稅　因中方報復措施
-
-  
-
-美國白宮表示，由於中國進行報復式措施，進口到美國的貨品面臨245%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800623-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800623-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800623-20250416.htm)
 
 ---
