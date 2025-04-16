@@ -1,3 +1,27 @@
+# 國防部：抹黑中國摘不掉美國「黑客帝國」的帽子
+
+![張曉剛說，抹黑中國摘不掉美國「黑客帝國」的帽子。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800638_1_20250416153042.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+在北京，國防部新聞發言人張曉剛說，抹黑中國摘不掉美國「黑客帝國」的帽子。中方要求美方停止賊喊捉賊，停止對包括中國在內的世界各國網絡攻擊，以負責任的言行還人類一個清朗安全的網絡空間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800638-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800638-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800638-20250416.htm)
+
+---
+
 # 習近平晤易卜拉欣　強調致力開啟中馬關係新的「黃金50年」
 
 ![易卜拉欣在馬來西亞國家王宮廣場為習近平舉行隆重歡迎儀式。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800633_1_20250416151515.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm)
-
----
-
-# 全國政協副主席王勇提出要促進共同發展繁榮　堅持真正多邊主義
-
-![王勇提出要促進共同發展繁榮，堅持真正的多邊主義。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800273_1_20250414125532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-世界互聯網大會亞太峰會首次一連兩日在灣仔會展舉行，全國政協副主席王勇表示，當前虛擬空間不平靜，舊的風險挑戰未消除，新的安全變量仍在不斷湧現。他提出要促進共同發展繁榮，堅持真正的多邊主義。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800273-20250414.htm)
 
 ---
