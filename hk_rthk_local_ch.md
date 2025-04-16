@@ -1,5 +1,30 @@
+# 星展與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款
+
+![星展香港與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款。（公司提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800637_1_20250416152749.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+星展香港與恒基地產本月簽訂總值50億元雙邊多期可持續發展掛鈎貸款及社會責任貸款，支持恒地業務發展需求，推動集團可持續發展及社會責任相關項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800637-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800637-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800637-20250416.htm)
+
+---
+
 # 勞工處：詳細審視申訴專員公署調查報告　積極跟進建議
 
+![勞工處表示，已按報告建議展開多項跟進工作。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800636_1_20250416153715.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 ​申訴專員公署就政府監管建造業職安健發表主動調查報告，發現「合資格人士」未有妥善檢查裝置或機械，貿然簽署指定表格確認安全，甚至根本未檢查，就預先一次過簽多張表格。勞工處回應表示，正詳細審視及研究報告的內容，並積極跟進建議。
@@ -23,6 +48,7 @@
 
 # 消息：違例泊車罰款擬增至400元　超速等罰款增加約五成
 
+![消息指，政府計劃將私家車停車收費錶，由每節2元上調至每節4元。（運輸及物流局社交網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800635_1_20250416153615.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 新一份財政預算案提出檢討交通違例事項的定額罰款。消息指，政府計劃提高違例泊車的定額罰款金額，由320元加至400元。另外，超速、切雙白線等交通違規事項的罰款額，初步計劃增加約五成；又計劃將私家車停車收費錶，由每節2元上調至每節4元。政府將於下星期五在立法會交通事務委員會會議討論有關建議。
@@ -1409,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800446-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800446-20250415.htm)
-
----
-
-# 崔建春：美國變本加厲干預香港　外部勢力圖謀搞亂香港絕不能得逞
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800445_1_20250415135018.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。外交部駐港特派員崔建春表示，美國在逆歷史潮流而動，肆意揮舞制裁大棒，變本加厲干預香港事務。他說，外部勢力搞亂香港的圖謀絕對不可能得逞。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800445-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800445-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800445-20250415.htm)
 
 ---

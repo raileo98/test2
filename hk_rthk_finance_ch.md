@@ -1,3 +1,27 @@
+# 星展與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款
+
+![星展香港與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款。（公司提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800637_1_20250416152749.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+星展香港與恒基地產本月簽訂總值50億元雙邊多期可持續發展掛鈎貸款及社會責任貸款，支持恒地業務發展需求，推動集團可持續發展及社會責任相關項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800637-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800637-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800637-20250416.htm)
+
+---
+
 # 滬股倒升約0.3%收市　滬股及創業板指數跌幅收窄
 
 ![上證綜合指數一度跌1%，收市報3276點，升8點，升幅0.26%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800634_1_20250416151548.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800476-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800476-20250415.htm)
-
----
-
-# 恒指升48點　成交縮至近1851億　新股映恩生物高收逾1倍
-
-![恒指收報21466點，升48點，升幅0.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800474_1_20250415161910.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
-  
-
-恒指連升第6個交易日，但升幅收窄，大市整體成交額亦減少27%至近1851億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800474-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800474-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800474-20250415.htm)
 
 ---
