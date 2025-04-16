@@ -1,3 +1,26 @@
+# 有建造業個案貿然簽署表格　工程師學會前會長卜國明譴責不當行為
+
+  
+
+申訴專員公署發現，「合資格人士」在多宗建造業高風險作業個案中，未有妥善檢查裝置或機械就貿然簽署指定表格確認安全，甚至未檢查就預先一次過簽多張表格，建議勞工處多管齊下加強監察。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800657-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800657-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800657-20250416.htm)
+
+---
+
 # 習近平晤安華　稱中馬關係正迎來新的黃金時代
 
   

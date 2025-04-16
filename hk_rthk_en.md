@@ -1,3 +1,27 @@
+# Chinese EV maker XPeng eyes global expansion
+
+![XPeng's founder He Xiaopeng says AI technology is key to the company's future. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800651_1_20250416182707.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+Chinese electric vehicle maker XPeng said it is ramping up technological innovation as part of efforts to further expand into the overseas market.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800651-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800651-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800651-20250416.htm)
+
+---
+
 # German doctor charged over killing of 15 patients
 
 ![A patient in a palliative care ward in Berlin. Photo: DPA/AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800655_1_20250416175447.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@ Jeff Bezos’ Blue Origin launched his fiancee Lauren Sanchez into space on Mond
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800397-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800397-20250415.htm)
-
----
-
-# US$2 billion federal funding for Harvard frozen
-
-![Demonstrators call on Harvard leadership to resist interference at its campus in Cambridge, Massachusetts. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800395_1_20250415083343.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-The US Department of Education on Monday froze more than US$2 billion in federal funding for Harvard University, just hours after the school rejected US President Donald Trump's demands that it make deep policy changes on diversity.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800395-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800395-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800395-20250415.htm)
 
 ---
