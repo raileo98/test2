@@ -1,3 +1,27 @@
+# Police warn of surge in online shopping fraud
+
+![Police say there were 11,559 cases involving online shopping fraud last year - a more than 29 percent year-on-year increase. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800706_1_20250417055512.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Police on Thursday expressed concern about an increase in online shopping fraud, despite overall technology crimes dipping slightly last year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800706-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800706-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800706-20250417.htm)
+
+---
+
 # Parking, traffic tickets could soon cost more: source
 
 ![According to an RTHK source, metered parking spaces could be increased to HK$4 per 15 minutes, double the current rate. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800648_1_20250416165928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1437,5 @@ Lawmaker Kennedy Wong on Friday said the world had entered a new period of uncer
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799911-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799911-20250411.htm)
-
----
-
-# Simmi Chan wins U23 World Squash silver
-
-![Simmi Chan is Hong Kong’s first female athlete to secure a silver medal at the Under-23 World Squash Championships. Photo: Squash Association of Hong Kong, China's Instagram](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799876_3_20250411091433.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Hong Kong, China squash player Simmi Chan secured a historic silver medal at the inaugural Under-23 World Squash Championships in Pakistan.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799876-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799876-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799876-20250411.htm)
 
 ---
