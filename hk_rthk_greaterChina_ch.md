@@ -1,3 +1,27 @@
+# 中國與埃及將舉行「文明之鷹-2025」空軍聯合訓練
+
+![中國與埃及將舉行「文明之鷹-2025」空軍聯合訓練。 (國防部網頁截圖)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800667_1_20250416194337.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+在北京，國防部表示，根據中國和埃及軍隊共識，4月中旬至5月上旬，解放軍空軍將派分隊前往埃及，舉行中埃「文明之鷹-2025」空軍聯合訓練，是中埃兩軍首次組織聯訓，對推動兩軍務實合作、增進兩軍友誼互信具有重要意義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800667-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800667-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800667-20250416.htm)
+
+---
+
 # 中方：谷歌地圖更改標注不可能影響中國在南海主權和海洋權益
 
 ![中國駐菲律賓大使館表示，Google地圖更改相關地圖標注不可能影響中國在南海的主權和海洋權益。 （中國駐菲律賓大使館網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800661_1_20250416185332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm)
-
----
-
-# 韓正︰中國堅定不移打造一流營商環境　為各國企業提供更優質服務
-
-![韓正在海南海口出席一系列活動。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800296_1_20250414143517.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-國家副主席韓正表示，中國將堅定不移推動海南自由貿易港建設，充分發揮海南自由貿易港對外開放的重要門戶作用，讓各國企業更好參與中國新發展格局。中國將堅定不移打造一流營商環境，為各國企業提供更優質的服務保障，歡迎全球投資者積極投資中國、投資海南自由貿易港，共享中國發展機遇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800296-20250414.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 中國與埃及將舉行「文明之鷹-2025」空軍聯合訓練
+
+![中國與埃及將舉行「文明之鷹-2025」空軍聯合訓練。 (國防部網頁截圖)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800667_1_20250416194337.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+在北京，國防部表示，根據中國和埃及軍隊共識，4月中旬至5月上旬，解放軍空軍將派分隊前往埃及，舉行中埃「文明之鷹-2025」空軍聯合訓練，是中埃兩軍首次組織聯訓，對推動兩軍務實合作、增進兩軍友誼互信具有重要意義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800667-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800667-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800667-20250416.htm)
+
+---
+
 # 中方：谷歌地圖更改標注不可能影響中國在南海主權和海洋權益
 
 ![中國駐菲律賓大使館表示，Google地圖更改相關地圖標注不可能影響中國在南海的主權和海洋權益。 （中國駐菲律賓大使館網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800661_1_20250416185332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800346-20250414.htm)
-
----
-
-# 尹錫悅出席涉嫌內亂罪刑事審判首場公審　反駁檢方指控不符合法理
-
-![尹錫悅乘坐警衛車輛抵達首爾中央地方法院。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800340_1_20250414185240.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-南韓前總統尹錫悅親身出席涉嫌發動內亂案的刑事審判首場公審，否認指控。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800340-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800340-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800340-20250414.htm)
 
 ---
