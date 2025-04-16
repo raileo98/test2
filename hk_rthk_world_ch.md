@@ -1,3 +1,27 @@
+# 伊朗外長：需了解美國真實立場　談判應在平等和尊重基礎上推進
+
+![阿拉格齊說，從美方聽到多種立場，有些甚至互相矛盾，這樣絕不利於談判進程。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800701_1_20250417042437.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+伊朗外長阿拉格齊表示，德黑蘭方面需要在談判中了解美國的真實立場，談判應該在平等和尊重的基礎上推進。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800701-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800701-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800701-20250417.htm)
+
+---
+
 # 中國將召集安理會會議譴責美國以關稅作為武器進行霸凌
 
 ![中國將於下星期召集一次聯合國安理會非正式會議，譴責美國以關稅作為武器進行霸凌。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800699_1_20250417041430.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800375-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800375-20250415.htm)
-
----
-
-# 特朗普稱伊朗拖延核談判進程
-
-![特朗普在白宮會見到訪的薩爾瓦多總統布克爾。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800372_1_20250415034613.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-美國總統特朗普說，伊朗正在拖延與美國的核問題談判進程，可能面臨美國的「嚴厲回應」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800372-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800372-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800372-20250415.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Meta to start using Europeans' data for AI training
+
+![Anything from Instagram photo captions to Facebook comments could soon be fair game for Meta AI. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800690_1_20250417013459.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Meta will start using public posts and comments by its European users to train generative artificial intelligence (AI) models from May 27, unless users opt out of the data-mining project.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800690-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800690-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800690-20250417.htm)
+
+---
+
 # Israel says 30 percent of Gaza turned into buffer zone
 
 ![The devastation in Gaza has created what Israel is now calling a 'security perimeter.' Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800693_1_20250417013153.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
@@ -1411,29 +1435,5 @@ Electricity consumption by data centres will more than double by 2030, driven by
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799751-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799751-20250410.htm)
-
----
-
-# S Korean opposition leader opens presidential bid
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799740_1_20250410123632.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-South Korean opposition leader Lee Jae-myung, widely seen as the frontrunner in a presidential by-election triggered by the removal of President Yoon Suk Yeol last week, officially announced a presidential bid on Thursday, vowing to heal a starkly divided nation through economic growth.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799740-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799740-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799740-20250410.htm)
 
 ---

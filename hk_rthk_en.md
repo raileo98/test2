@@ -1,3 +1,27 @@
+# Meta to start using Europeans' data for AI training
+
+![Anything from Instagram photo captions to Facebook comments could soon be fair game for Meta AI. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800690_1_20250417013459.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Meta will start using public posts and comments by its European users to train generative artificial intelligence (AI) models from May 27, unless users opt out of the data-mining project.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800690-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800690-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800690-20250417.htm)
+
+---
+
 # US Fed Chair warns tariffs may force it to choose goal
 
 ![Jerome Powell says the US Federal Reserve could find itself in a "challenging scenario in which our dual-mandate goals are in tension." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800695_1_20250417024428.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@ Over 300 primary and secondary schools as well as kindergartens, involving nearl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800420-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800420-20250415.htm)
-
----
-
-# EV battery giant CATL records surge in Q1 profit
-
-![CATL had a bullish first quarter of 2025. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800423_1_20250415110403.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-The world's leading maker of electric vehicle batteries, CATL, posted a 32.9 percent jump in first quarter profit, even as demand for electric vehicles slows.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800423-20250415.htm)
 
 ---
