@@ -1,27 +1,3 @@
-# Powell says Fed can wait on any interest rate moves
-
-![US Federal Reserve Chair Jerome Powell speaks at the Economic Club of Chicago. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800713_1_20250417072323.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-US Federal Reserve Chair Jerome Powell said on Wednesday the Fed would wait for more data on the economy's direction before changing interest rates, but cautioned that US President Donald Trump's tariff policies risked pushing inflation and employment further from the central bank's goals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800713-20250417.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800713-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800713-20250417.htm)
-
----
-
 # Meta to start using Europeans' data for AI training
 
 ![Anything from Instagram photo captions to Facebook comments could soon be fair game for Meta AI. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800690_1_20250417013459.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1435,5 +1411,29 @@ US President Donald Trump has signed an executive order lifting water-pressure r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799755-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799755-20250410.htm)
+
+---
+
+# 'AI surge creates new energy security challenges'
+
+![Data centres' global electricity consumption has increased by 12 percent annually over the past five years. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799751_1_20250410130449.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+Electricity consumption by data centres will more than double by 2030, driven by artificial intelligence applications that will create new challenges for energy security and CO2 emission goals, the International Energy Agency (IEA) said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1799751-20250410.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799751-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799751-20250410.htm)
 
 ---
