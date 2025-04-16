@@ -24,7 +24,7 @@ Asian stocks swung on Wednesday after Nvidia's announcement of new US licensing 
 
 # Govt urged to beef up penalties for animal cruelty
 
-![Animal welfare groups want tougher penalties for animal cruelty cases. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800640_1_20250416155930.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![Animal welfare groups want tougher penalties for animal cruelty cases. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800640_1_20250416155930.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 Animal welfare groups on Wednesday urged the government to beef up penalties for animal cruelty and make Hong Kong a more pet-friendly city.
