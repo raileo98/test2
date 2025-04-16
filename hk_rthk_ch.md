@@ -1,3 +1,26 @@
+# 經民聯提多項建議應對關稅戰　倡銀行向特殊需要客戶作體恤安排
+
+  
+
+經民聯提出多項建議，以應對關稅戰帶來的短暫挑戰，包括銀行要對特殊需要客戶作出體恤安排、金融機構提供特別貸款、簡化企業借貸流程、優化中小企融資擔保計劃等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800654-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800654-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800654-20250416.htm)
+
+---
+
 # 復活節假周五展開　運輸署料大量市民及車輛出入境籲及早規劃行程
 
   

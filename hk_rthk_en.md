@@ -1,3 +1,27 @@
+# White House limits newswire access to Trump
+
+![About 10 outlets follow the US president wherever he goes, whether it is a meeting in the Oval Office or trips at home or abroad. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800653_1_20250416174532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Wire services including Reuters and Bloomberg News will no longer hold a permanent slot in the small pool of reporters who cover US President Donald Trump, the White House has said, as it moves to exert greater control over who gets to ask him questions and report on his statements in real time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800653-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800653-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800653-20250416.htm)
+
+---
+
 # Top UK court goes with 'biological' in gender ruling
 
 ![The issue has drawn protests from both sides of the divide ahead of the Supreme Court ruling in London. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800652_1_20250416174355.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
@@ -1411,29 +1435,5 @@ The United States has opened the door to potential tariffs targeting pharmaceuti
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800388-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800388-20250415.htm)
-
----
-
-# EU grants US$1.8 billion in new aid for Palestinians
-
-![Vice-President of the European Commission Kaja Kallas (L) shakes hands with Palestinian Prime Minister Mohammad Mustafa following their meeting in Ramallah. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800386_1_20250415074047.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-The European Union on Monday announced a new three-year financial support package for the Palestinians worth US$1.8 billion.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800386-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800386-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800386-20250415.htm)
 
 ---

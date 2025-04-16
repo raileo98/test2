@@ -1,3 +1,26 @@
+# 經民聯提多項建議應對關稅戰　倡銀行向特殊需要客戶作體恤安排
+
+  
+
+經民聯提出多項建議，以應對關稅戰帶來的短暫挑戰，包括銀行要對特殊需要客戶作出體恤安排、金融機構提供特別貸款、簡化企業借貸流程、優化中小企融資擔保計劃等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800654-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800654-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800654-20250416.htm)
+
+---
+
 # 在岸人民幣創近1周新低
 
 ![在岸人民幣收報7.3179兌1美元，創近1周新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800649_1_20250416172017.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800520-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800520-20250415.htm)
-
----
-
-# 美股初段靠穩
-
-![道瓊斯指數較早時報40578點，升54點，升幅0.13%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800515_1_20250415213910.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-美股初段靠穩，市場繼續留意關稅相關消息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800515-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800515-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800515-20250415.htm)
 
 ---

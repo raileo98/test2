@@ -1,3 +1,26 @@
+# 經民聯提多項建議應對關稅戰　倡銀行向特殊需要客戶作體恤安排
+
+  
+
+經民聯提出多項建議，以應對關稅戰帶來的短暫挑戰，包括銀行要對特殊需要客戶作出體恤安排、金融機構提供特別貸款、簡化企業借貸流程、優化中小企融資擔保計劃等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800654-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800654-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800654-20250416.htm)
+
+---
+
 # 復活節假周五展開　運輸署料大量市民及車輛出入境籲及早規劃行程
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800451-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800451-20250415.htm)
-
----
-
-# 去年接獲27宗長者服務投訴　消委會籲業界共建樂齡有善環境
-
-![消委會去年接獲27宗涉及長者服務投訴，包括平安手機因未有提供售後保用，有長者入住安老院前已離世卻不獲退還訂金等。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800450_1_20250415135944.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-消委會去年接獲27宗涉及長者服務投訴，而今年首3個月有4宗，包括長者出行的平安手機因未有提供售後保用，變成得物無所用；安老院未有按時餵食餵藥，家人最終要將長者接回家自行照顧；長者入住安老院前已離世卻不獲退還訂金等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800450-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800450-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800450-20250415.htm)
 
 ---
