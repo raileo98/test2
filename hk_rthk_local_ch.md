@@ -24,6 +24,7 @@
 
 # 運輸業輸入勞工計劃航空業第三輪批出2206個配額申請
 
+![完成第三輪申請後，計劃下的6300個配額已全數批出。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800665_1_20250416212050.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 運輸業輸入勞工計劃的航空業第三輪完成審批，34間合資格公司申請共3292個輸入勞工配額，涵蓋計劃下所有10個工種，包括地勤人員及機坪服務員等，經跨部門聯絡小組審批後，批出2206個配額申請。
@@ -47,6 +48,7 @@
 
 # 港鐵：本周六東涌綫東涌至欣澳站列車服務提前約2小時結束
 
+![港鐵：本周六東涌綫東涌至欣澳站列車服務提前約2小時結束](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800664_1_20250416212017.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
 港鐵公司提醒乘客，為配合東涌綫延綫第二次道岔安裝工序，本周六東涌綫東涌至欣澳站的列車服務將提前約2小時，即晚上11時許結束，屆時將安排免費接駁巴士往返東涌站及欣澳站。

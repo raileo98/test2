@@ -1,3 +1,27 @@
+# 國台辦：「台獨打手、幫兇舉報專欄」已收逾3千封舉報郵件
+
+![朱鳳蓮說，「台獨打手、幫兇迫害台灣同胞惡劣行徑舉報專欄」已收到超過3000封舉報郵件。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800675_1_20250416212313.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+在北京，國台辦發言人朱鳳蓮在例行記者會表示，「台獨打手、幫兇迫害台灣同胞惡劣行徑舉報專欄」，已收到超過3000封舉報郵件，充分反映兩岸民眾對「台獨」打手、幫兇為非作歹的深惡痛絕。大陸將堅持以事實為依據、以法律為準繩，在核查相關舉報信息後，依法追責、依法嚴懲這些打手、幫兇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800675-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800675-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800675-20250416.htm)
+
+---
+
 # 神舟二十號將於近日擇機發射
 
 ![執行神舟二十號載人飛行任務的火箭船箭組合體，已轉運至發射區。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800672_1_20250416204843.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm)
-
----
-
-# 林劍：美方一再渲染中國威脅論　以此為藉口控制拉美國家不會得逞
-
-![林劍表示，中方與拉美和加勒比國家交往，始終秉持平等相待、互利共贏原則。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800317_1_20250414162604.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-在北京，外交部發言人林劍表示，中方與拉美和加勒比國家交往，始終秉持平等相待、互利共贏原則，從不尋求勢力範圍，亦不針對任何第三方。美方反覆抹黑攻擊中國，一再渲染中國威脅論，不過是想以此為藉口，控制拉美和加勒比，注定不會得逞。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm)
 
 ---
