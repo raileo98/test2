@@ -24,6 +24,7 @@
 
 # 美債息下跌　鮑威爾指美國經濟增長放緩
 
+![聯儲局主席鮑威爾表示，為規避關稅而湧入的進口商品可能會對GDP和市場情緒造成壓力。鮑威爾講話引發投資者買入國債避險，債息下跌。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800709_1_20250417065419.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 美國國債孳息率下跌，聯儲局主席鮑威爾表示，美國經濟增長似乎正在放緩，消費者支出溫和增長，為規避關稅而湧入的進口商品，可能會對國內生產總值（GDP）和市場情緒造成壓力。
