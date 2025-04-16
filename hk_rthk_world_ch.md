@@ -24,7 +24,7 @@
 
 # 中國將召集安理會會議譴責美國以關稅作為武器進行霸凌
 
-![中國將於下星期召集一次聯合國安理會非正式會議，譴責美國以關稅作為武器進行霸凌。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800699_1_20250417041430.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![中國將於下星期召集一次聯合國安理會非正式會議，譴責美國以關稅作為武器進行霸凌。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800699_1_20250417041430.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 中國將於下星期召集一次聯合國安理會非正式會議，譴責美國以關稅作為武器進行霸凌，邀請全部193個聯合國成員國參與。
