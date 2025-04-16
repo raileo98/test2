@@ -61,7 +61,8 @@ poolSize = 10000
 # 建立網路請求的 Session，包含緩存和 QUIC 支援
 session = CachedSession(
     # allowable_methods=('GET', 'HEAD'),  # 支援的 HTTP 方法
-    resolver="doh://mozilla.cloudflare-dns.com/dns-query",  # 使用 DoH 解析 DNS
+    # resolver="doh://mozilla.cloudflare-dns.com/dns-query",  # 使用 DoH 解析 DNS
+    resolver="doh://8.8.8.8/dns-query",
     pool_connections=poolConn,  # 連線池設定
     pool_maxsize=poolSize,
     backend='redis',  # 緩存後端使用 Redis
