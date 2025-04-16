@@ -1,3 +1,27 @@
+# 中國將召集安理會會議譴責美國以關稅作為武器進行霸凌
+
+![中國將於下星期召集一次聯合國安理會非正式會議，譴責美國以關稅作為武器進行霸凌。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800699_1_20250417041430.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+中國將於下星期召集一次聯合國安理會非正式會議，譴責美國以關稅作為武器進行霸凌，邀請全部193個聯合國成員國參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800699-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800699-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800699-20250417.htm)
+
+---
+
 # 3月訪日外國人較上年同期增加13.5%創同期新高
 
 ![日本政府公佈的估算數據顯示，3月訪日外國人較上年同期增加13.5%。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800698_1_20250417035139.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
@@ -1410,30 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800372-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800372-20250415.htm)
-
----
-
-# 全女班飛行　Katy Perry在內6人完成太空之旅
-
-![Katy Perry完成太空之旅後步出太空艙。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800371_1_20250415033223.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-![「新謝潑德號」火箭在得州發射場升空。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800371_2_20250415033223.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國樂壇天后Katy Perry和另外5名女性，完成太空飛行，成為超過60年以來首次全女班太空之旅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800371-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800371-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800371-20250415.htm)
 
 ---
