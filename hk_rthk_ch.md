@@ -1,3 +1,27 @@
+# 中方：谷歌地圖更改標注不可能影響中國在南海主權和海洋權益
+
+![中國駐菲律賓大使館表示，Google地圖更改相關地圖標注不可能影響中國在南海的主權和海洋權益。 （中國駐菲律賓大使館網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800661_1_20250416185332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+中國駐菲律賓大使館表示，谷歌(Google)地圖更改相關地圖標注不符合國際慣例，不利國際地名標準化努力，更不可能影響中國在南海的主權和海洋權益。中方已向有關方面提出嚴正交涉，敦促菲方尊重國際慣例，採取措施糾正錯誤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800661-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800661-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800661-20250416.htm)
+
+---
+
 # 旺角東失蹤外籍女子已尋回　女事主沒受傷案件沒可疑
 
   
@@ -69,6 +93,7 @@
 
 # 習近平晤安華　稱中馬關係正迎來新的黃金時代
 
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800656_1_20250416185442.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 國家主席習近平繼續在馬來西亞的國事訪問，下午與馬來西亞總理安華會面。習近平說中馬傳統友誼跨越千年，兩國關係正迎來新的黃金時代，展現以心相交、以誠相待的共同價值追求，體現兩國人民的歷史智慧和勇氣，是兩國共同的寶貴財富。

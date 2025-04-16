@@ -1,3 +1,27 @@
+# 中方：谷歌地圖更改標注不可能影響中國在南海主權和海洋權益
+
+![中國駐菲律賓大使館表示，Google地圖更改相關地圖標注不可能影響中國在南海的主權和海洋權益。 （中國駐菲律賓大使館網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800661_1_20250416185332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+中國駐菲律賓大使館表示，谷歌(Google)地圖更改相關地圖標注不符合國際慣例，不利國際地名標準化努力，更不可能影響中國在南海的主權和海洋權益。中方已向有關方面提出嚴正交涉，敦促菲方尊重國際慣例，採取措施糾正錯誤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800661-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800661-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800661-20250416.htm)
+
+---
+
 # 習近平與安華見證中馬官員交換合作文件包括建立外交國防對話機制
 
   
@@ -23,6 +47,7 @@
 
 # 習近平晤安華　稱中馬關係正迎來新的黃金時代
 
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800656_1_20250416185442.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 國家主席習近平繼續在馬來西亞的國事訪問，下午與馬來西亞總理安華會面。習近平說中馬傳統友誼跨越千年，兩國關係正迎來新的黃金時代，展現以心相交、以誠相待的共同價值追求，體現兩國人民的歷史智慧和勇氣，是兩國共同的寶貴財富。
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800340-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800340-20250414.htm)
-
----
-
-# 中方冀英國政府公平公正對待在英投資經營中資企業
-
-![林劍說，希望英國政府公平公正對待在英投資經營的中資企業，保護其正當合法權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800339_1_20250414184838.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-在北京，外交部回應英國政府表示，將從中國敬業集團手中接管英國鋼鐵公司，發言人林劍說，據他了解，敬業集團是一家中國的民營企業，基於市場化的原則，同英方開展合作。對於目前英鋼經營遇到的困難，雙方應本著互利的原則商談解決。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm)
 
 ---
