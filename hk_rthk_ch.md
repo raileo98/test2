@@ -1,3 +1,75 @@
+# 世貿組織：美國關稅政策致全球貿易前景嚴重惡化
+
+![伊維拉表示，「對等關稅」可能帶來嚴重後果。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800685_1_20250416224928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+世界貿易組織發表的最新報告顯示，美國關稅政策導致全球貿易前景嚴重惡化。在當前關稅形勢下，今年全球貨物貿易量預計將下跌0.2%，比「低關稅」基準情形下的預測值低近3個百分點。北美地區貨物貿易跌幅尤為顯著，出口預計將下跌12.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800685-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800685-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800685-20250416.htm)
+
+---
+
+# 美國2月企業庫存按月增加0.2%
+
+![美國2月企業庫存按月增加0.2%，符合市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800682_1_20250416221208.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
+  
+
+美國2月企業庫存按月增加0.2%，符合市場預期，銷售上升1.2%；數據按年上升2.1%及3.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800682-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800682-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800682-20250416.htm)
+
+---
+
+# 加拿大央行維持利率不變
+
+![加拿大央行維持利率在2.75厘不變，符合市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800680_1_20250416215920.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
+  
+
+加拿大央行宣布維持利率在2.75厘不變，符合市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800680-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800680-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800680-20250416.htm)
+
+---
+
 # 加拿大央行：若美國關稅引發全球貿易戰　加拿大陷深度經濟衰退
 
 ![加拿大央行指，若美國關稅引發全球貿易戰，加拿大將陷入深度經濟衰退。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800683_1_20250416221718.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)

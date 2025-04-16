@@ -1,3 +1,27 @@
+# 世貿組織：美國關稅政策致全球貿易前景嚴重惡化
+
+![伊維拉表示，「對等關稅」可能帶來嚴重後果。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800685_1_20250416224928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+世界貿易組織發表的最新報告顯示，美國關稅政策導致全球貿易前景嚴重惡化。在當前關稅形勢下，今年全球貨物貿易量預計將下跌0.2%，比「低關稅」基準情形下的預測值低近3個百分點。北美地區貨物貿易跌幅尤為顯著，出口預計將下跌12.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800685-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800685-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800685-20250416.htm)
+
+---
+
 # 習近平與安華會談　強調團結合作抵制「脫鉤斷鏈」和濫徵關稅
 
 ![習近平在馬來西亞與安華會談。 (路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800677_1_20250416213756.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800357-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800357-20250414.htm)
-
----
-
-# 日本多人進食受污染飯盒後染諾如病毒　當局籲市民外遊時注意衞生
-
-![衞生防護中心提醒市民外遊時應提高警覺。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800353_1_20250414214531.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-衞生防護中心表示，鑑於日本近日錄得一宗因為進食受污染飯盒而感染諾如病毒的爆發個案，提醒市民外遊時應提高警覺，時刻注意個人、環境及食物衞生，以減低食物中毒的風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800353-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800353-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800353-20250414.htm)
 
 ---

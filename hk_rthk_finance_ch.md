@@ -1,3 +1,51 @@
+# 世貿組織：美國關稅政策致全球貿易前景嚴重惡化
+
+![伊維拉表示，「對等關稅」可能帶來嚴重後果。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800685_1_20250416224928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+世界貿易組織發表的最新報告顯示，美國關稅政策導致全球貿易前景嚴重惡化。在當前關稅形勢下，今年全球貨物貿易量預計將下跌0.2%，比「低關稅」基準情形下的預測值低近3個百分點。北美地區貨物貿易跌幅尤為顯著，出口預計將下跌12.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800685-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800685-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800685-20250416.htm)
+
+---
+
+# 美國2月企業庫存按月增加0.2%
+
+![美國2月企業庫存按月增加0.2%，符合市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800682_1_20250416221208.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
+  
+
+美國2月企業庫存按月增加0.2%，符合市場預期，銷售上升1.2%；數據按年上升2.1%及3.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800682-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800682-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800682-20250416.htm)
+
+---
+
 # 加拿大央行維持利率不變
 
 ![加拿大央行維持利率在2.75厘不變，符合市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800680_1_20250416215920.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800542-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800542-20250416.htm)
-
----
-
-# 港股美國預託證券與本港收市比較個別發展
-
-![滙控ADR較本港收市升近3%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800548_1_20250416061748.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-港股美國預託證券（ADR）與本港收市比較個別發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800548-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800548-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800548-20250416.htm)
-
----
-
-# 英媒稱商業大臣今年稍後訪華
-
-![報道說，韋諾韜此行是要重啟中英經貿聯委會會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800546_1_20250416061005.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-英國《衛報》報道，商業大臣韋諾韜今年稍後將會訪問中國，以促進兩國之間的貿易及投資。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800546-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800546-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800546-20250416.htm)
 
 ---
