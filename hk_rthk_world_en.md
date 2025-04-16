@@ -1,3 +1,27 @@
+# German doctor charged over killing of 15 patients
+
+![A patient in a palliative care ward in Berlin. Photo: DPA/AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800655_1_20250416175447.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+German prosecutors said on Wednesday they charged a Berlin palliative care doctor with the murder of 15 patients, alleging he acted out of a "lust" for killing.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800655-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800655-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800655-20250416.htm)
+
+---
+
 # White House limits newswire access to Trump
 
 ![About 10 outlets follow the US president wherever he goes, whether it is a meeting in the Oval Office or trips at home or abroad. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800653_1_20250416174532.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -24,7 +48,7 @@ Wire services including Reuters and Bloomberg News will no longer hold a permane
 
 # Top UK court goes with 'biological' in gender ruling
 
-![The issue has drawn protests from both sides of the divide ahead of the Supreme Court ruling in London. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800652_1_20250416174355.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![The issue has drawn protests from both sides of the divide ahead of the Supreme Court ruling in London. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800652_1_20250416174355.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
   
 
 The United Kingdom's top court on Wednesday upheld an appeal by a campaign group on whether transgender women are legally women under equality legislation, ruling that the law referred to a "biological woman and biological sex".
@@ -1411,29 +1435,5 @@ Lego has opened a US$1 billion factory in Vietnam that it says will make toys wi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799734-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799734-20250410.htm)
-
----
-
-# US backtracks on some food aid cuts: UN
-
-![A WFP distribution centre in Chad, one of eight countries where the US is ending emergency funding. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799695_1_20250410080414.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-The United States has backtracked on emergency food aid cuts it announced for 14 countries, restoring assistance to six of them, the UN's World Food Program said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799695-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799695-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799695-20250410.htm)
 
 ---
