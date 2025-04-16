@@ -1,3 +1,27 @@
+# 英國3月通脹率放緩至2.6%
+
+![英國3月通脹按年升2.6%，較2月放緩0.2個百分點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800631_1_20250416145942.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+英國3月通脹按年升2.6%，較2月放緩0.2個百分點，略低於市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800631-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800631-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800631-20250416.htm)
+
+---
+
 # 星展與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款
 
 ![星展香港與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款。（公司提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800637_1_20250416152749.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800479-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800479-20250415.htm)
-
----
-
-# 許正宇：香港已建立綠色創新生態系統　仍需更廣泛市場創新
-
-![許正宇稱香港已建立綠色創新生態系統但未來需要更廣泛市場創新，快將公布官方綠色金融科技地圖。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800476_1_20250415163608.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-財經事務及庫務局局長許正宇表示，亞太區內有多達10個碳交易市場，香港市場特點在於可以用雙櫃台交易，亦有完整產業鏈，認為香港已建立綠色創新生態系統，未來需要更廣泛市場創新。他提到，快將公布官方綠色金融科技地圖，讓不同市場了解香港最新綠色金融科技發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800476-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800476-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800476-20250415.htm)
 
 ---
