@@ -1,5 +1,53 @@
+# 恒指下午初段跌逾500點
+
+![恒生指數較早時報20927點，跌538點，跌幅2.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800614_1_20250416130749.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+港股下午開市初段延續跌勢，恒生指數較早時報20927點，跌538點，跌幅2.51%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800614-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800614-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800614-20250416.htm)
+
+---
+
+# 申訴公署發現多宗建造業未妥善檢查便簽署安全表格　形容是荒唐
+
+  
+
+申訴專員公署公布有關建造業職業安全監督的主動調查報告，審閱超過9萬多頁文件，當中包括近70個獨立調查個案，並派員實地視察。申訴專員陳積志說，調查針對高風險作業的規管，例如竹棚架、吊機、吊運等，這些裝置或機械，根據法例必須由合資格人士簽署確認安全，但調查發現，有多宗個案合資格人士未有妥善檢查，便貿然簽署表格，確認安全，甚至一次過簽定多張表格，而事前根本未作檢查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800613-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800613-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800613-20250416.htm)
+
+---
+
 # 警方將於港島交通違例黑點試行運輸署監察系統進行錄影執法
 
+![警方將在港島4個交通違例黑點，試行利用運輸署現行監察系統，進行錄影執法。 （郭志強攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800606_1_20250416131514.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 警方本月22日起，將在港島4個交通違例黑點，試行利用運輸署現行監察系統，進行錄影執法，記錄違例車輛的車牌號碼，並向司機發出定額罰款通知。
@@ -23,6 +71,7 @@
 
 # 衞生防護中心呼籲計劃外遊市民預防各種傳染病
 
+![衞生防護中心呼籲計劃外遊的市民，應預防感染各種傳染病，特別是麻疹、登革熱和諾如病毒感染。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800610_1_20250416131424.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 因應復活節假期將至，衞生防護中心總監徐樂堅呼籲計劃外遊的市民，應預防感染各種傳染病，特別是麻疹、登革熱和諾如病毒感染。
@@ -46,6 +95,7 @@
 
 # 申訴專員公布查監管職安健報告　指有合資格者貿然簽表格確認安全
 
+![申訴專員公布就政府對建造業職業安全及健康的監管的主動調查行動結果。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800605_1_20250416131255.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 申訴專員公署公布就政府監管建造業職安健的主動調查行動報告。
@@ -69,6 +119,7 @@
 
 # 立法會恢復二讀辯論預算案撥款條例草案
 
+![立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800609_1_20250416131345.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。
@@ -92,6 +143,7 @@
 
 # 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
 
+![香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件。（余思嵐攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800603_1_20250416131219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
@@ -115,6 +167,7 @@
 
 # 丘應樺稱香港可助內地企業走出去　外商可利用香港走入大灣區
 
+![丘應樺指香港可以作為一個平台，協助內地企業走出去。（節目截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800601_1_20250416131148.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 商務及經濟發展局局長丘應樺表示，在地緣政治及關稅限制下，香港可以作為一個平台協助內地企業走出去，除了可以幫助國家雙循環，亦能為香港經濟提供發展空間。
@@ -258,6 +311,7 @@
 
 # 許正宇：政府會確保市場在不同經濟周期或經濟條件下運作暢順
 
+![許正宇稱香港是一個安全、穩定及預見性高的市場，能吸引長期投資者或企業來港投資。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800580_1_20250416130553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 美國關稅政策不確定性令金融市場波動。財經事務及庫務局局長許正宇表示，不同政策都令股市出現短期波動，但強調香港股匯市場運作平穩，每日交投和結算等都運作良好，政府會確保市場在不同經濟周期或不同經濟條件下都運作暢順。
@@ -329,6 +383,7 @@
 
 # 許正宇稱LME核准首批香港倉儲體現市場需求及香港吸引力
 
+![許正宇預計日後工業企業和製造商在LME買入期貨後可在香港提取銅、鋁及鎳等基礎金屬。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800572_1_20250416130744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 港交所旗下倫敦金屬交易所（LME）宣布，已核准首批4家位於香港的倉儲設施。
@@ -1379,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800435-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800435-20250415.htm)
-
----
-
-# 恒指半日收市升40點　科指跌0.9%
-
-![恒生指數開市報21603點已是半日高位，中午收市報21457點，升40點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800436_1_20250415121054.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
-  
-
-港股缺乏方向，恒生指數開市即見半日高位，報21603點，高開186點，其後一度倒跌約70點，中午收市報21457點，升40點，半日主板成交額約1088億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800436-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800436-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800436-20250415.htm)
-
----
-
-# 天文台上午錄得最高氣溫31.1度　今年以來最高紀錄
-
-![天文台上午錄得最高氣溫31.1度　今年以來最高紀錄](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800432_1_20250415122216.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-天文台表示， 截至上午11時45分，錄得最高氣溫31.1度 ，是今年以來最高紀錄 。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800432-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800432-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800432-20250415.htm)
 
 ---

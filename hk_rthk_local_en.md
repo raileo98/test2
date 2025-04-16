@@ -1,3 +1,27 @@
+# Ombudsman urges construction checks be stepped up
+
+![Ombudsman Jack Chan has made 40 recommendations to three government departments. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800615_1_20250416131146.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Ombudsman Jack Chan said on Wednesday the government should step up inspections to ensure the construction sector carries out safety checks thoroughly.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800615-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800615-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800615-20250416.htm)
+
+---
+
 # Frustration up over postal stop to US-bound parcels
 
 ![Hongkong Post has suspended parcel services to the US via surface mail and will no longer offer air delivery services starting from April 27. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800602_1_20250416120157.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -96,7 +120,7 @@ Hong Kong, China's junior men’s epee team made history at the World Cadets and
 
 # HK to suspend parcel postal services to the US
 
-![Air parcel services will stop from April 27. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800564_1_20250416085557.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![Air parcel services will stop from April 27. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800564_1_20250416131320.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 Hongkong Post announced on Wednesday an immediate suspension of parcel services to the United States via surface mail, due to the longer shipping time as small parcels are due to be hit by US tariffs from May 2.
@@ -1413,29 +1437,5 @@ The Chinese Manufacturers' Association on Thursday urged the SAR administration 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799768-20250410.htm)
-
----
-
-# US tariffs fundamentally wrong, finance chief says
-
-![Financial Secretary Paul Chan says that the US reciprocal tariffs are both politically and historically wrong. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799756_1_20250410134156.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Financial Secretary Paul Chan on Thursday slammed the latest US "reciprocal tariffs", which had earlier been imposed before being paused, as "fundamentally wrong" politically, economically and historically.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799756-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799756-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799756-20250410.htm)
 
 ---

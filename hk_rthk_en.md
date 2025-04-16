@@ -1,3 +1,27 @@
+# Ombudsman urges construction checks be stepped up
+
+![Ombudsman Jack Chan has made 40 recommendations to three government departments. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800615_1_20250416131146.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Ombudsman Jack Chan said on Wednesday the government should step up inspections to ensure the construction sector carries out safety checks thoroughly.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800615-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800615-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800615-20250416.htm)
+
+---
+
 # Frustration up over postal stop to US-bound parcels
 
 ![Hongkong Post has suspended parcel services to the US via surface mail and will no longer offer air delivery services starting from April 27. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800602_1_20250416120157.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -96,7 +120,7 @@ US President Donald Trump has ordered a probe that may result in tariffs on crit
 
 # China's growth beats forecasts with 5.4pc spike
 
-![China's economic growth saw a spike as exporters raced to get their goods to markets ahead of the US tariffs pronouncements. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800592_1_20250416111935.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+![Officials say the world's second-largest economy will continue to improve in the long run despite US tariffs. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800592_1_20250416111935.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
   
 
 Beijing said on Wednesday the economy grew a forecast-beating 5.4 percent in the first quarter as exporters rushed to get goods out of factory gates ahead of swingeing new US tariffs.
@@ -264,7 +288,7 @@ Hong Kong, China's junior men’s epee team made history at the World Cadets and
 
 # HK to suspend parcel postal services to the US
 
-![Air parcel services will stop from April 27. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800564_1_20250416085557.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![Air parcel services will stop from April 27. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800564_1_20250416131320.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 Hongkong Post announced on Wednesday an immediate suspension of parcel services to the United States via surface mail, due to the longer shipping time as small parcels are due to be hit by US tariffs from May 2.
@@ -1411,29 +1435,5 @@ The Drainage Services Department says the number of emergency response teams for
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800328-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800328-20250414.htm)
-
----
-
-# 'Expats confident about doing business in Hong Kong'
-
-![Path of Democracy co-convenor Ray Poon, right, says the government can hold more promotional events to communicate the SAR’s actual situation. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800325_1_20250414170630.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Foreign investors' and workers’ confidence in Hong Kong remains positive despite the challenges the SAR faced in the past five years, a think tank said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800325-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800325-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800325-20250414.htm)
 
 ---

@@ -1,5 +1,101 @@
+# 盛來運：保持價格運行在合理區間至關重要
+
+![盛來運稱未來要多措並舉地促進價格合理回升，以免影響企業增收增利，影響收入和就業。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800617_1_20250416131636.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
+  
+
+國家統計局副局長盛來運表示，未來要多措並舉地促進價格合理回升，以免影響企業增收增利，影響收入和就業，強調保持價格運行在合理區間至關重要，一方面要擴大內需，另一方面要深化供給側結構性改革和擴大內需的關係，規範市場秩序，防止過度「內卷」，例如推動全國統一大市場建設，促進價格水平合理回歸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800617-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800617-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800617-20250416.htm)
+
+---
+
+# 恒指下午初段跌逾500點
+
+![恒生指數較早時報20927點，跌538點，跌幅2.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800614_1_20250416130749.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+港股下午開市初段延續跌勢，恒生指數較早時報20927點，跌538點，跌幅2.51%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800614-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800614-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800614-20250416.htm)
+
+---
+
+# 申訴公署發現多宗建造業未妥善檢查便簽署安全表格　形容是荒唐
+
+  
+
+申訴專員公署公布有關建造業職業安全監督的主動調查報告，審閱超過9萬多頁文件，當中包括近70個獨立調查個案，並派員實地視察。申訴專員陳積志說，調查針對高風險作業的規管，例如竹棚架、吊機、吊運等，這些裝置或機械，根據法例必須由合資格人士簽署確認安全，但調查發現，有多宗個案合資格人士未有妥善檢查，便貿然簽署表格，確認安全，甚至一次過簽定多張表格，而事前根本未作檢查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800613-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800613-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800613-20250416.htm)
+
+---
+
+# 小鵬汽車：市場汰弱留強內地最終或餘下10家或以內車企
+
+![何小鵬預計內地汽車市場上最終只餘下10家或以內車企。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800612_1_20250416130403.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+小鵬汽車聯合創辦人、董事長兼首席執行官何小鵬表示，未來3-5年公司仍不能「穩坐釣魚台」，將關注科技發展、企業綜合體系能力、商業能力及全球化，預計未來10年公司一半以上銷售都來自海外。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800612-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800612-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800612-20250416.htm)
+
+---
+
 # 警方將於港島交通違例黑點試行運輸署監察系統進行錄影執法
 
+![警方將在港島4個交通違例黑點，試行利用運輸署現行監察系統，進行錄影執法。 （郭志強攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800606_1_20250416131514.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 警方本月22日起，將在港島4個交通違例黑點，試行利用運輸署現行監察系統，進行錄影執法，記錄違例車輛的車牌號碼，並向司機發出定額罰款通知。
@@ -23,6 +119,7 @@
 
 # 衞生防護中心呼籲計劃外遊市民預防各種傳染病
 
+![衞生防護中心呼籲計劃外遊的市民，應預防感染各種傳染病，特別是麻疹、登革熱和諾如病毒感染。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800610_1_20250416131424.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 因應復活節假期將至，衞生防護中心總監徐樂堅呼籲計劃外遊的市民，應預防感染各種傳染病，特別是麻疹、登革熱和諾如病毒感染。
@@ -46,6 +143,7 @@
 
 # 申訴專員公布查監管職安健報告　指有合資格者貿然簽表格確認安全
 
+![申訴專員公布就政府對建造業職業安全及健康的監管的主動調查行動結果。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800605_1_20250416131255.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 申訴專員公署公布就政府監管建造業職安健的主動調查行動報告。
@@ -69,6 +167,7 @@
 
 # 立法會恢復二讀辯論預算案撥款條例草案
 
+![立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800609_1_20250416131345.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。
@@ -92,6 +191,7 @@
 
 # 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
 
+![香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件。（余思嵐攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800603_1_20250416131219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
@@ -115,6 +215,7 @@
 
 # 丘應樺稱香港可助內地企業走出去　外商可利用香港走入大灣區
 
+![丘應樺指香港可以作為一個平台，協助內地企業走出去。（節目截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800601_1_20250416131148.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 商務及經濟發展局局長丘應樺表示，在地緣政治及關稅限制下，香港可以作為一個平台協助內地企業走出去，除了可以幫助國家雙循環，亦能為香港經濟提供發展空間。
@@ -568,6 +669,7 @@
 
 # 許正宇：政府會確保市場在不同經濟周期或經濟條件下運作暢順
 
+![許正宇稱香港是一個安全、穩定及預見性高的市場，能吸引長期投資者或企業來港投資。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800580_1_20250416130553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 美國關稅政策不確定性令金融市場波動。財經事務及庫務局局長許正宇表示，不同政策都令股市出現短期波動，但強調香港股匯市場運作平穩，每日交投和結算等都運作良好，政府會確保市場在不同經濟周期或不同經濟條件下都運作暢順。
@@ -687,6 +789,7 @@
 
 # 許正宇稱LME核准首批香港倉儲體現市場需求及香港吸引力
 
+![許正宇預計日後工業企業和製造商在LME買入期貨後可在香港提取銅、鋁及鎳等基礎金屬。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800572_1_20250416130744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 港交所旗下倫敦金屬交易所（LME）宣布，已核准首批4家位於香港的倉儲設施。
@@ -710,6 +813,7 @@
 
 # 人民幣兌美元中間價跌近40點子
 
+![人民幣中間價報7.2133兌1美元，較上日中間價下跌37點子。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800568_1_20250416130920.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 人民幣中間價報7.2133兌1美元，較上日中間價下跌37點子。

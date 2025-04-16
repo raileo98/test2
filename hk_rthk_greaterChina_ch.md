@@ -1,5 +1,30 @@
+# 盛來運：保持價格運行在合理區間至關重要
+
+![盛來運稱未來要多措並舉地促進價格合理回升，以免影響企業增收增利，影響收入和就業。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800617_1_20250416131636.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
+  
+
+國家統計局副局長盛來運表示，未來要多措並舉地促進價格合理回升，以免影響企業增收增利，影響收入和就業，強調保持價格運行在合理區間至關重要，一方面要擴大內需，另一方面要深化供給側結構性改革和擴大內需的關係，規範市場秩序，防止過度「內卷」，例如推動全國統一大市場建設，促進價格水平合理回歸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800617-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800617-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800617-20250416.htm)
+
+---
+
 # 丘應樺稱香港可助內地企業走出去　外商可利用香港走入大灣區
 
+![丘應樺指香港可以作為一個平台，協助內地企業走出去。（節目截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800601_1_20250416131148.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 商務及經濟發展局局長丘應樺表示，在地緣政治及關稅限制下，香港可以作為一個平台協助內地企業走出去，除了可以幫助國家雙循環，亦能為香港經濟提供發展空間。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800257-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800257-20250414.htm)
-
----
-
-# 莊榮文：人工智能等發展不斷突破　經濟發展等產生重大深遠影響
-
-![莊榮文形容人工智能等新技術為一把雙刃劍，建議應加強網絡安全等。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800255_1_20250414124505.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-世界互聯網大會首次在香港舉辦亞太峰會。國家互聯網信息辦公室主任、世界互聯網大會理事長莊榮文致辭表示，當前人工智能等新技術發展不斷突破，正為經濟發展、社會進步、國際政治經濟格局等方面產生重大而深遠影響。中國科研機構和科技企業不斷推出人工智能大模型等創新成果，為中國、亞太地區和全球發展帶來強勁動力，亦為推動構建網絡空間命運共同體提供機遇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm)
 
 ---
