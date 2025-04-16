@@ -1,3 +1,27 @@
+# 習近平與安華會談　強調團結合作抵制「脫鉤斷鏈」和濫徵關稅
+
+![習近平在馬來西亞與安華會談。 (路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800677_1_20250416213756.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+國家主席習近平繼續在馬來西亞的國事訪問，與總理安瓦爾會談，提出堅持戰略自主，開展高水平戰略協作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800677-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800677-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800677-20250416.htm)
+
+---
+
 # 國台辦：「台獨打手、幫兇舉報專欄」已收逾3千封舉報郵件
 
 ![朱鳳蓮說，「台獨打手、幫兇迫害台灣同胞惡劣行徑舉報專欄」已收到超過3000封舉報郵件。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800675_1_20250416212313.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800323-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800323-20250414.htm)
-
----
-
-# 澳門推出中小企業銀行貨款利息補貼計劃　助中小企減輕利息負擔
-
-![岑浩輝說澳門特區發展主要預期目標是鞏固經濟復蘇，加力促進經濟適度多元發展，推動社區經濟發展。（鄭月明攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800320_1_20250414170620.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-澳門政府為幫助中小企減輕銀行貸款利息負擔，增加資金流動和緩解資金壓力，將推出「中小企業銀行貨款利息補貼計劃」，為符合條件的企業，提供上限貨款額500萬澳門元，為期3年的4厘利息補貼，銀行貸款額上限100億澳門元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800320-20250414.htm)
 
 ---

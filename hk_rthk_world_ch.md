@@ -1,3 +1,27 @@
+# 習近平與安華會談　強調團結合作抵制「脫鉤斷鏈」和濫徵關稅
+
+![習近平在馬來西亞與安華會談。 (路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800677_1_20250416213756.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+國家主席習近平繼續在馬來西亞的國事訪問，與總理安瓦爾會談，提出堅持戰略自主，開展高水平戰略協作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800677-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800677-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800677-20250416.htm)
+
+---
+
 # 商務部：美方將關稅工具化武器化已到毫無理性地步　中方不予理會
 
 ![商務部稱，倘若美方執意繼續實質性侵害中方權益，中方將堅決反制，奉陪到底。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800671_1_20250416204255.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800353-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800353-20250414.htm)
-
----
-
-# 石破茂：日本不打算在對美貿易談判中作重大讓步　不急於達成協議
-
-![石破茂表示，日本不打算在談判中作出重大讓步，亦不急於達成協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800352_1_20250414211059.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-日本與美國將於星期四在華盛頓展開貿易談判，預計會涉及關稅、非關稅壁壘和匯率等議題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800352-20250414.htm)
 
 ---

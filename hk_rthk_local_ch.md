@@ -96,6 +96,7 @@
 
 # 有建造業個案貿然簽署表格　工程師學會前會長卜國明譴責不當行為
 
+![卜國明說，如果這些「合資格人士」是學會會員，需要接受紀律處分。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800657_1_20250416212951.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
 申訴專員公署發現，「合資格人士」在多宗建造業高風險作業個案中，未有妥善檢查裝置或機械就貿然簽署指定表格確認安全，甚至未檢查就預先一次過簽多張表格，建議勞工處多管齊下加強監察。

@@ -1,3 +1,51 @@
+# 習近平與安華會談　強調團結合作抵制「脫鉤斷鏈」和濫徵關稅
+
+![習近平在馬來西亞與安華會談。 (路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800677_1_20250416213756.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+國家主席習近平繼續在馬來西亞的國事訪問，與總理安瓦爾會談，提出堅持戰略自主，開展高水平戰略協作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800677-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800677-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800677-20250416.htm)
+
+---
+
+# 美國3月工業生產按月下跌0.3%
+
+![美國3月工業生產按月下跌0.3%，市場原本估計下跌0.2%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800676_1_20250416212815.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+  
+
+美國3月工業生產按月下跌0.3%，跌幅多於市場預期的0.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800676-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800676-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800676-20250416.htm)
+
+---
+
 # 國台辦：「台獨打手、幫兇舉報專欄」已收逾3千封舉報郵件
 
 ![朱鳳蓮說，「台獨打手、幫兇迫害台灣同胞惡劣行徑舉報專欄」已收到超過3000封舉報郵件。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800675_1_20250416212313.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -360,6 +408,7 @@
 
 # 有建造業個案貿然簽署表格　工程師學會前會長卜國明譴責不當行為
 
+![卜國明說，如果這些「合資格人士」是學會會員，需要接受紀律處分。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800657_1_20250416212951.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
 申訴專員公署發現，「合資格人士」在多宗建造業高風險作業個案中，未有妥善檢查裝置或機械就貿然簽署指定表格確認安全，甚至未檢查就預先一次過簽多張表格，建議勞工處多管齊下加強監察。
