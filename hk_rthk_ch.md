@@ -24,6 +24,7 @@
 
 # 有市民稱停收措施不便　將暫停寄郵包予美國親友
 
+![香港郵政宣布暫停接收寄往美國內載貨品的郵遞服務，在尖沙咀一間郵局，有市民說會暫停寄件。（余思嵐攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800627_1_20250416144437.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
   
 
 香港郵政宣布暫停接收寄往美國內載貨品的郵遞服務，平郵即日起暫停，空郵方面則將於4月27日起暫停；其他只內載文件而沒有貨品的郵件則不受影響。
