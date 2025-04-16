@@ -1,3 +1,26 @@
+# 習近平晤安華　稱中馬關係正迎來新的黃金時代
+
+  
+
+國家主席習近平繼續在馬來西亞的國事訪問，下午與馬來西亞總理安華會面。習近平說中馬傳統友誼跨越千年，兩國關係正迎來新的黃金時代，展現以心相交、以誠相待的共同價值追求，體現兩國人民的歷史智慧和勇氣，是兩國共同的寶貴財富。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800656-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800656-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800656-20250416.htm)
+
+---
+
 # 白宮稱中國輸美商品面臨達245%關稅　中方：不願打但絕不怕打
 
 ![林劍重申，關稅戰、貿易戰沒有贏家，中方不願打，但也絕對不怕打。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800641_1_20250416163525.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800286-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800286-20250414.htm)
-
----
-
-# 台灣有醫院工會冀當局正視薪酬待遇偏低及人手長期不足問題
-
-![台灣的衛生福利部門上月要求當地醫院加強落實區域聯防機制，希望紓緩急症爆滿的問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800278_1_20250414135755.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-特區政府明年調整公營醫療服務收費，以更好地善用資源，希望非緊急病人使用急症室以外的醫療服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800278-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800278-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800278-20250414.htm)
 
 ---

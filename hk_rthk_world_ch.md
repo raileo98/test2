@@ -1,3 +1,26 @@
+# 習近平晤安華　稱中馬關係正迎來新的黃金時代
+
+  
+
+國家主席習近平繼續在馬來西亞的國事訪問，下午與馬來西亞總理安華會面。習近平說中馬傳統友誼跨越千年，兩國關係正迎來新的黃金時代，展現以心相交、以誠相待的共同價值追求，體現兩國人民的歷史智慧和勇氣，是兩國共同的寶貴財富。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800656-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800656-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800656-20250416.htm)
+
+---
+
 # 白宮稱中國輸美商品面臨達245%關稅　中方：不願打但絕不怕打
 
 ![林劍重申，關稅戰、貿易戰沒有贏家，中方不願打，但也絕對不怕打。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800641_1_20250416163525.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800332-20250414.htm)
-
----
-
-# 林劍：美方一再渲染中國威脅論　以此為藉口控制拉美國家不會得逞
-
-![林劍表示，中方與拉美和加勒比國家交往，始終秉持平等相待、互利共贏原則。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800317_1_20250414162604.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-在北京，外交部發言人林劍表示，中方與拉美和加勒比國家交往，始終秉持平等相待、互利共贏原則，從不尋求勢力範圍，亦不針對任何第三方。美方反覆抹黑攻擊中國，一再渲染中國威脅論，不過是想以此為藉口，控制拉美和加勒比，注定不會得逞。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800317-20250414.htm)
 
 ---
