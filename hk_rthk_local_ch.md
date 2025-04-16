@@ -1,5 +1,29 @@
+# 有市民稱停收措施不便　將暫停寄郵包予美國親友
+
+  
+
+香港郵政宣布暫停接收寄往美國內載貨品的郵遞服務，平郵即日起暫停，空郵方面則將於4月27日起暫停；其他只內載文件而沒有貨品的郵件則不受影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800627-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800627-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800627-20250416.htm)
+
+---
+
 # 截至上月底　運輸署簽發逾14萬張許可證予「港車北上」申請人
 
+![截至今年3月底，運輸署已累計簽發約14萬4000張封閉道路通行許可證予「港車北上」申請人。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800625_1_20250416144143.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 運輸及物流局局長陳美寶表示，「港車北上」於2023年7月實施，截至今年3月底，運輸署已累計簽發約14萬4000張封閉道路通行許可證予「港車北上」申請人，每5至6輛合資格的車輛中便有一輛參加。大橋的使用量亦屢創新高，當中「港車北上」佔約4成。粵港兩地政府一直密切留意其實施情況，適時推行優化措施為申請人提供更佳便利和出行體驗。
@@ -23,6 +47,7 @@
 
 # 政府建議調整電動私家車牌照費架構　分三年進行
 
+![運輸及物流局稱如改以「額定功率」，即rated power計算電動私家車牌費，相信更能配合科技發展。（運輸及物流局社交網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800624_1_20250416143448.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 運輸及物流局建議調整電動私家車牌照費架構，參照現行燃油車按引擎汽缸容量，按其額定功率的高低，分五個層級計算牌費。在建議的新牌照費架構下，電動私家車牌照費會維持低於燃油私家車的水平，而調整進程會建議分三年進行。
@@ -358,7 +383,7 @@
 
 # 鄧家彪：夏寶龍講話告知港人要將國家安全視作頭等大事
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800587_2_20250416124257.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800587_3_20250416143923.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 工聯會立法會議員鄧家彪認為港澳辦主任夏寶龍昨日在「全民國家安全教育日」發表的主旨演講，是有三個信息要告知港人，首先是舊事不忘，居安思危，時刻要保持警剔，將國家安全視作頭等大事。其次是要認清形勢，認清誰在打壓中國和香港；第三是呼籲所有愛國愛港人士必須注重國家安全，因為國安與發展是互相促進，香港各界要堅定信心，團結一致。
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800441-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800441-20250415.htm)
-
----
-
-# 朱立翹：相信很多假冒銀行網站以生成式人工智能技術建立
-
-![朱立翹稱信用卡業務去年第4季已採用App內認證，銀行已密鑼緊鼓擴充至網上登入和高危交易。（金管局提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800440_2_20250415132923.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-金管局早前向銀行發出通函，推出名為「網銀安全ABC」的3項網上銀行安全措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800440-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800440-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800440-20250415.htm)
 
 ---
