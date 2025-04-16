@@ -1,3 +1,27 @@
+# Sports bodies now have 'no excuses' on trans rules
+
+![Susan Smith and Marion Calder from the campaign group For Women Scotland celebrate, after the Supreme Court ruled in their favour. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800688_1_20250417002357.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Campaigners say there are "no excuses" for allowing transgender women to compete in women's sports events, after a landmark legal decision in Britain on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800688-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800688-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800688-20250417.htm)
+
+---
+
 # Rubio headed to Paris for Ukraine war talks
 
 ![A diplomatic source says Marco Rubio and France's Foreign Minister will discuss "the war in Ukraine, the situation in the Middle East and the Iranian nuclear situation. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800684_1_20250416224136.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ Antoine Semenyo struck in the first minute as Bournemouth boosted their hopes of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800394-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800394-20250415.htm)
-
----
-
-# Dallas scoop Bueckers with No 1 pick in WNBA draft
-
-![Paige Bueckers poses with WNBA commissioner Cathy Engelbert after being selected with the number one overall pick to the Dallas Wings. Photo: Imagn Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800393_1_20250415081721.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Paige Bueckers was chosen by the Dallas Wings with the number one pick in the WNBA draft on Monday, crowning a successful season that saw her lead the University of Connecticut to the US college championship this month.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800393-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800393-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800393-20250415.htm)
 
 ---

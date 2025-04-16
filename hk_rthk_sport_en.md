@@ -1,3 +1,27 @@
+# Sports bodies now have 'no excuses' on trans rules
+
+![Susan Smith and Marion Calder from the campaign group For Women Scotland celebrate, after the Supreme Court ruled in their favour. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800688_1_20250417002357.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Campaigners say there are "no excuses" for allowing transgender women to compete in women's sports events, after a landmark legal decision in Britain on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800688-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800688-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800688-20250417.htm)
+
+---
+
 # Barcelona, PSG into Champions League final four
 
 ![Barcelona's Robert Lewandowski celebrates after an own goal by Borussia Dortmund's Ramy Bensebaini. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800620_1_20250416134150.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1412,29 +1436,5 @@ Chelsea climbed to fourth place in the Premier League as Enzo Fernandez sealed a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798934-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798934-20250404.htm)
-
----
-
-# USA to host 2031 Women's World Cup, UK in 2035
-
-![Spain are the current Fifa Women's World Cup champions. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798854_1_20250403205634.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
-  
-
-The United States is the sole bidder for the 2031 Women's World Cup, and the United Kingdom is set to host the 2035 tournament, Fifa president Gianni Infantino announced on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798854-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798854-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798854-20250403.htm)
 
 ---

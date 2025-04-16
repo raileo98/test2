@@ -1,3 +1,75 @@
+# 英國最高法院裁定平等法女性定義是指生理女性　不包含跨性別女性
+
+![提出訴訟的蘇格蘭婦女組織成員得悉結果後歡迎慶祝。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800689_1_20250417002429.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+英國最高法院裁定，《平等法》當中女性的定義是指生理女性，不包括跨性別女性，意味跨性別女性即使獲得性別確認證書，都不會受到《平等法》中有關女性的條文保護，但法院同時表明，跨性別人士仍然受到禁止歧視的法例保障。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800689-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800689-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800689-20250417.htm)
+
+---
+
+# 南韓警方試圖扣押搜查總統府未果
+
+![南韓警方前往漢南洞總統官邸進行扣押搜查。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800687_1_20250417002139.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
+  
+
+南韓警方昨日前往首爾龍山總統府和漢南洞總統官邸等地進行扣押搜查，但因為總統警衛處抵制未能成功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800687-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800687-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800687-20250417.htm)
+
+---
+
+# 網購騙案增近三成不少與大型活動門票有關　有事主被騙近百萬元
+
+![警方說，去年演唱會門票相關最大宗損失個案，涉及被騙近100萬港元。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800686_1_20250417001739.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+警方去年錄得33903宗科技罪案，比前年輕微下跌0.6%；損失金額逾51億港元，亦比前年減少6.7%。不過，當中的網上購物騙案錄得11559宗，比前年增加近三成，當中不少與演唱會等大型活動門票有關，佔整體網購騙案逾15%，涉款接近1800萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800686-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800686-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800686-20250417.htm)
+
+---
+
 # 世貿組織：美國關稅政策致全球貿易前景嚴重惡化
 
 ![伊維拉表示，「對等關稅」可能帶來嚴重後果。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800685_1_20250416224928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1362,77 +1434,5 @@ NBA季後賽附加賽，金州勇士121:116擊敗孟菲斯灰熊，晉身季後�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800606-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800606-20250416.htm)
-
----
-
-# 衞生防護中心呼籲計劃外遊市民預防各種傳染病
-
-![衞生防護中心呼籲計劃外遊的市民，應預防感染各種傳染病，特別是麻疹、登革熱和諾如病毒感染。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800610_1_20250416131424.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-因應復活節假期將至，衞生防護中心總監徐樂堅呼籲計劃外遊的市民，應預防感染各種傳染病，特別是麻疹、登革熱和諾如病毒感染。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800610-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800610-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800610-20250416.htm)
-
----
-
-# 申訴專員公布查監管職安健報告　指有合資格者貿然簽表格確認安全
-
-![申訴專員公布就政府對建造業職業安全及健康的監管的主動調查行動結果。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800605_1_20250416131255.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-申訴專員公署公布就政府監管建造業職安健的主動調查行動報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800605-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800605-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800605-20250416.htm)
-
----
-
-# 立法會恢復二讀辯論預算案撥款條例草案
-
-![立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800609_1_20250416131345.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
 
 ---

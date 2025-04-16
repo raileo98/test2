@@ -1,3 +1,27 @@
+# 網購騙案增近三成不少與大型活動門票有關　有事主被騙近百萬元
+
+![警方說，去年演唱會門票相關最大宗損失個案，涉及被騙近100萬港元。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800686_1_20250417001739.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+警方去年錄得33903宗科技罪案，比前年輕微下跌0.6%；損失金額逾51億港元，亦比前年減少6.7%。不過，當中的網上購物騙案錄得11559宗，比前年增加近三成，當中不少與演唱會等大型活動門票有關，佔整體網購騙案逾15%，涉款接近1800萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800686-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800686-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800686-20250417.htm)
+
+---
+
 # 警方提醒市民慎防偽冒反詐騙協調中心及假冒金管局短訊
 
 ![警方及金管局強調不會就個人財務事宜聯絡市民。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800681_1_20250416220455.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800474-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800474-20250415.htm)
-
----
-
-# 陳子達稱面對新關稅政策　亞太區成員需加強商貿夥伴關係
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800470_1_20250415155545.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-香港海關與東盟秘書處聯合舉辦一連三日的電子商貿優化流程與典範實務會議。海關關長陳子達見記者時表示，最近全球性的新關稅政策已為世界貿易的未來，帶來很大挑戰及不確定性，在這個關鍵時刻，亞太區成員之間更加要團結一起，致力推動多邊協作，建立更緊密合作和互信，加強商貿夥伴關係，共同應對環球風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800470-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800470-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800470-20250415.htm)
 
 ---
