@@ -1,3 +1,26 @@
+# 白宮：中國進口到美國貨品面臨245%關稅　因中方報復措施
+
+  
+
+美國白宮表示，由於中國進行報復式措施，進口到美國的貨品面臨245%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800623-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800623-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800623-20250416.htm)
+
+---
+
 # 截至上月底　運輸署簽發逾14萬張許可證予「港車北上」申請人
 
   

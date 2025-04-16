@@ -1,3 +1,26 @@
+# 白宮：中國進口到美國貨品面臨245%關稅　因中方報復措施
+
+  
+
+美國白宮表示，由於中國進行報復式措施，進口到美國的貨品面臨245%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800623-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800623-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800623-20250416.htm)
+
+---
+
 # 小鵬汽車：香港擁有非常多人才　具有全球視野和思維
 
 ![顧宏地（右）稱香港作為國際化及資本市場高地，公司需要佔有一席之地。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800619_1_20250416133946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800464-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800464-20250415.htm)
-
----
-
-# 滬深股市個別發展　上證指數轉升0.15%收市
-
-![上證指數尾市轉升，收報3267點，升4點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800461_1_20250415150728.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-滬深股市個別發展。消費、電商、銀行股走強，但航運股下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800461-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800461-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800461-20250415.htm)
 
 ---

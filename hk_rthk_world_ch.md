@@ -1,3 +1,26 @@
+# 白宮：中國進口到美國貨品面臨245%關稅　因中方報復措施
+
+  
+
+美國白宮表示，由於中國進行報復式措施，進口到美國的貨品面臨245%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800623-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800623-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800623-20250416.htm)
+
+---
+
 # 習近平抵馬來西亞國家王宮廣場出席歡迎儀式
 
 ![習近平昨日從越南轉抵大馬，展開三日國事訪問。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800585_1_20250416120639.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800310-20250414.htm)
-
----
-
-# 「世越」號沉沒事故　南韓當局裁定舵機故障等船體內部原因引致
-
-![「世越」號沉沒事故　南韓當局裁定舵機故障等船體內部原因引致](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800304_1_20250414150909.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-南韓「世越」號客輪2014年沉沒事故，木浦地方海洋安全審判院表示，院方去年11月作出裁決，認定事故是由於舵機故障等船體內部原因所致，排除「世越」號因與潛艇相撞等外部原因傾覆的可能。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800304-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800304-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800304-20250414.htm)
 
 ---
