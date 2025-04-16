@@ -1,3 +1,27 @@
+# 在岸人民幣創近1周新低
+
+![在岸人民幣收報7.3179兌1美元，創近1周新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800649_1_20250416172017.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+在岸人民幣收報7.3179兌1美元，較上日收市價跌33點子，創近1周新低。中間價創逾19個月新低，與外電預測偏離擴至逾1100點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800649-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800649-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800649-20250416.htm)
+
+---
+
 # 金價突破3300美元　創新高
 
 ![現貨金創新高，突破每盎司3300美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800643_1_20250416162714.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800515-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800515-20250415.htm)
-
----
-
-# 花旗集團上季盈利升逾20%
-
-![花旗集團首季盈利40.6億美元，按年升近21%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800512_1_20250415205320.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-花旗集團首季盈利40.6億美元，按年升近21%。每股盈利1.96美元，高過市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800512-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800512-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800512-20250415.htm)
 
 ---

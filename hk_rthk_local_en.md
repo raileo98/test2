@@ -1,3 +1,27 @@
+# Parking, traffic tickets could soon cost more: source
+
+![According to an RTHK source, metered parking spaces could be increased to HK$4 per 15 minutes, double the current rate. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800648_1_20250416165928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Motorists may soon have to pay HK$400 for an illegal parking ticket, a 25 percent increase, while metered parking spaces could cost HK$4 per 15 minutes, double the current rate, according to an RTHK source.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800648-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800648-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800648-20250416.htm)
+
+---
+
 # Support measures urged for SMEs amid trade war
 
 ![Business and Professionals Alliance lawmakers say small and medium enterprises are important driving forces of economic growth in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800646_1_20250416165010.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1413,29 +1437,5 @@ Hong Kong, China squash player Simmi Chan secured a historic silver medal at the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799876-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799876-20250411.htm)
-
----
-
-# Customs seizes HK$4m in suspected MDMA
-
-![A 31-year-old woman arriving from Vancouver was arrested after officers found the drugs in her checked luggage. Photo: GIS](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799843_1_20250411005107.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Hong Kong Customs says it seized about 20 kilograms of suspected MDMA worth HK$4 million at the airport on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799843-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799843-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799843-20250411.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Parking, traffic tickets could soon cost more: source
+
+![According to an RTHK source, metered parking spaces could be increased to HK$4 per 15 minutes, double the current rate. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800648_1_20250416165928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Motorists may soon have to pay HK$400 for an illegal parking ticket, a 25 percent increase, while metered parking spaces could cost HK$4 per 15 minutes, double the current rate, according to an RTHK source.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800648-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800648-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800648-20250416.htm)
+
+---
+
 # Support measures urged for SMEs amid trade war
 
 ![Business and Professionals Alliance lawmakers say small and medium enterprises are important driving forces of economic growth in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800646_1_20250416165010.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1411,29 +1435,5 @@ Stocks rose worldwide on Monday after US President Donald Trump relaxed some of 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800379-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800379-20250415.htm)
-
----
-
-# Trump hosts 'coolest dictator' Bukele
-
-![US President Donald Trump meets with El Salvador's President Nayib Bukele in the Oval Office at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800367_1_20250415005442.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-US President Donald Trump on Monday hosted El Salvador's President Nayib Bukele, who is now the US leader's key ally in a controversial push to deport illegal migrants to a notorious Salvadoran prison.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800367-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800367-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800367-20250415.htm)
 
 ---

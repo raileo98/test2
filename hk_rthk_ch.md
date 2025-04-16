@@ -1,3 +1,27 @@
+# 在岸人民幣創近1周新低
+
+![在岸人民幣收報7.3179兌1美元，創近1周新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800649_1_20250416172017.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+在岸人民幣收報7.3179兌1美元，較上日收市價跌33點子，創近1周新低。中間價創逾19個月新低，與外電預測偏離擴至逾1100點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800649-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800649-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800649-20250416.htm)
+
+---
+
 # 金價突破3300美元　創新高
 
 ![現貨金創新高，突破每盎司3300美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800643_1_20250416162714.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1006,6 +1030,7 @@ NBA季後賽附加賽，金州勇士121:116擊敗孟菲斯灰熊，晉身季後�
 
 # 國台辦指賴清德當局主動出賣台灣核心優勢產業是跪美賣台行徑
 
+![國台辦表示，中方第一時間堅決實施必要反制措施，不單是為維護自身正當權益，亦是為捍衛國際貿易規則與國際公平正義。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800588_1_20250416171913.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 國台辦表示，面對美國濫施關稅、單方面挑動全球範圍貿易戰，中方第一時間堅決實施必要反制措施，不單止是為了維護自身正當權益，亦是為了捍衛國際貿易規則與國際公平正義，中方堅定的態度、有力的措施，獲得國際社會普遍肯定與支持，很多國家選擇站在中國一邊，反對美國的霸凌霸道，台灣島內輿論、網友亦紛紛點讚大陸在應對中所展現的骨氣與底氣。
@@ -1029,7 +1054,7 @@ NBA季後賽附加賽，金州勇士121:116擊敗孟菲斯灰熊，晉身季後�
 
 # 鄧家彪：夏寶龍講話告知港人要將國家安全視作頭等大事
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800587_3_20250416143923.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800587_4_20250416171851.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 工聯會立法會議員鄧家彪認為港澳辦主任夏寶龍昨日在「全民國家安全教育日」發表的主旨演講，是有三個信息要告知港人，首先是舊事不忘，居安思危，時刻要保持警剔，將國家安全視作頭等大事。其次是要認清形勢，認清誰在打壓中國和香港；第三是呼籲所有愛國愛港人士必須注重國家安全，因為國安與發展是互相促進，香港各界要堅定信心，團結一致。
@@ -1339,7 +1364,7 @@ NBA季後賽附加賽，金州勇士121:116擊敗孟菲斯灰熊，晉身季後�
 
 ---
 
-# 許正宇稱LME核准首批香港倉儲體現市場需求及香港吸引力
+# 許正宇：LME核准首批香港倉儲體現市場需求及香港吸引力
 
 ![許正宇預計日後工業企業和製造商在LME買入期貨後可在香港提取銅、鋁及鎳等基礎金屬。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800572_1_20250416130744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
