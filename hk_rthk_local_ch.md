@@ -1,3 +1,26 @@
+# 截至上月底　運輸署簽發逾14萬張許可證予「港車北上」申請人
+
+  
+
+運輸及物流局局長陳美寶表示，「港車北上」於2023年7月實施，截至今年3月底，運輸署已累計簽發約14萬4000張封閉道路通行許可證予「港車北上」申請人，每5至6輛合資格的車輛中便有一輛參加。大橋的使用量亦屢創新高，當中「港車北上」佔約4成。粵港兩地政府一直密切留意其實施情況，適時推行優化措施為申請人提供更佳便利和出行體驗。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800625-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800625-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800625-20250416.htm)
+
+---
+
 # 政府建議調整電動私家車牌照費架構　分三年進行
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800440-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800440-20250415.htm)
-
----
-
-# 升旗隊總會舉行聯校升旗禮　周世耀稱香港要珍惜繁榮安定維護國安
-
-![周世耀說，美國特朗普政府在全世界到處欺凌，為了壓制中國而大打關稅戰、科技戰，令全球秩序大亂。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800437_1_20250415140601.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-香港升旗隊總會今早在一間小學舉行聯校升旗禮，有參與的學生表示，覺得很自豪，亦認識到國家安全與生活息息相關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800437-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800437-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800437-20250415.htm)
 
 ---
