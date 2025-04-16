@@ -1,3 +1,27 @@
+# 'HK people should unite and promote national security'
+
+![Bill Tang says people in Hong Kong, especially entrepreneurs, should prioritise national security over development. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800645_1_20250416163633.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Federation of Trade Unions lawmaker Bill Tang said all sectors of Hong Kong society should unite and pay attention to the importance of national security, one of the three messages that he said top Beijing official Xia Baolong told Hong Kong in his keynote speech marking the National Security Education Day on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800645-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800645-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800645-20250416.htm)
+
+---
+
 # Beijing picks veteran as trade envoy
 
 ![Li Chenggang has served as ambassador to the World Trade Organization and deputy permanent representative to the United Nations in Geneva. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800622_1_20250416134648.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ As Hong Kong moves towards legalising basketball betting, Secretary for Home and
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800347-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800347-20250414.htm)
-
----
-
-# Trade war 'may jeopardise global tech development'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800336_1_20250414182206.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Financial Secretary Paul Chan said on Monday the global trade war could endanger global technology development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800336-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800336-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800336-20250414.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 金價突破3300美元　創新高
+
+![現貨金創新高，突破每盎司3300美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800643_1_20250416162714.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+市況不明朗，資金繼續流入金市避險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800643-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800643-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800643-20250416.htm)
+
+---
+
+# 恒指收市跌409點　科指受壓低收近4%
+
+![恒指收市報21056點，跌409點，跌幅1.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800642_1_20250416161935.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+港股結束多日升勢，恒指一度跌近600點，低見20868點，其後上海股市反彈並轉升收市，港股跟隨顯著反彈，最終21000點失而復得，收市報21056點，跌409點，跌幅1.91%，成交額約2200億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800642-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800642-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800642-20250416.htm)
+
+---
+
 # 英國3月通脹率放緩至2.6%
 
 ![英國3月通脹按年升2.6%，較2月放緩0.2個百分點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800631_1_20250416145942.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -19,6 +67,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800631-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800631-20250416.htm)
+
+---
+
+# 林健鋒：香港應主動「行多步」　深度融入國家發展大局
+
+![林健鋒認為預算案是全速發展、改革創新、招商引才、投資未來。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800639_1_20250416163407.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+立法會二讀辯論本年度財政預算案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800639-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800639-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800639-20250416.htm)
 
 ---
 
@@ -213,6 +285,53 @@
 
 ---
 
+# 截至上月底　運輸署簽發逾14萬張許可證予「港車北上」申請人
+
+![截至今年3月底，運輸署已累計簽發約14萬4000張封閉道路通行許可證予「港車北上」申請人。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800625_1_20250416144143.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+運輸及物流局局長陳美寶表示，「港車北上」於2023年7月實施，截至今年3月底，運輸署已累計簽發約14萬4000張封閉道路通行許可證予「港車北上」申請人，每5至6輛合資格的車輛中便有一輛參加。大橋的使用量亦屢創新高，當中「港車北上」佔約4成。粵港兩地政府一直密切留意其實施情況，適時推行優化措施為申請人提供更佳便利和出行體驗。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800625-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800625-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800625-20250416.htm)
+
+---
+
+# 李成鋼獲任命為商務部國際貿易談判代表兼副部長
+
+  
+
+國務院任免一批國家工作人員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800621-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800621-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800621-20250416.htm)
+
+---
+
 # 小鵬汽車：香港擁有非常多人才　具有全球視野和思維
 
 ![顧宏地（右）稱香港作為國際化及資本市場高地，公司需要佔有一席之地。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800619_1_20250416133946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -333,8 +452,33 @@
 
 ---
 
+# 丘應樺稱香港可助內地企業走出去　外商可利用香港走入大灣區
+
+![丘應樺指香港可以作為一個平台，協助內地企業走出去。（節目截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800601_1_20250416131148.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+商務及經濟發展局局長丘應樺表示，在地緣政治及關稅限制下，香港可以作為一個平台協助內地企業走出去，除了可以幫助國家雙循環，亦能為香港經濟提供發展空間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm)
+
+---
+
 # 內地首季增長5.4%　國家統計局稱經濟持續長期向好改變不了
 
+![內地首季經濟按年增長5.4%。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800598_1_20250416163726.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
   
 
 內地首季經濟按年增長5.4%，好過預期，按季增長1.2%，多個經濟指標亦較預期好。
@@ -1052,6 +1196,30 @@
 
 ---
 
+# 英媒稱商業大臣今年稍後訪華
+
+![報道說，韋諾韜此行是要重啟中英經貿聯委會會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800546_1_20250416061005.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+英國《衛報》報道，商業大臣韋諾韜今年稍後將會訪問中國，以促進兩國之間的貿易及投資。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800546-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800546-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800546-20250416.htm)
+
+---
+
 # 道指低收155點　納指偏軟
 
 ![美股3大指數先高後低，道瓊斯指數早段曾升近270點，其後跌幅逐步擴大，收市報40368點，跌155點，跌幅約0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800541_1_20250416054133.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1097,6 +1265,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800540-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800540-20250416.htm)
+
+---
+
+# 白宮重申特朗普對與中國達成協議持開始態度　球在中國一方
+
+![萊維特重申，總統特朗普已表明對與中國達成貿易協議持開放態度。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800537_1_20250416040856.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國白宮發言人萊維特重申，總統特朗普已表明對與中國達成貿易協議持開放態度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800537-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800537-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800537-20250416.htm)
 
 ---
 
@@ -1241,197 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800512-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800512-20250415.htm)
-
----
-
-# 強生上季盈利按年升近2.4倍　上調今年度銷售額
-
-![強生公司首季盈利近110億美元，按年升近2.4倍。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800511_1_20250415204242.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-美國強生公司首季盈利近110億美元，按年升近2.4倍，每股盈利4.54美元，經調整後每股盈利2.77美元，好過預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800511-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800511-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800511-20250415.htm)
-
----
-
-# 美銀上季每股盈利勝預期
-
-![美國銀行上季盈利69.9億美元，按年升近14%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800507_1_20250415202620.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-美國銀行上季股東應佔盈利69.9億美元，按年升近14%，每股盈利0.9美元，高於市場預期，受惠利息收入上升，市場波動亦有利股票交易相關收入。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800507-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800507-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800507-20250415.htm)
-
----
-
-# IEA顯著下調今年全球石油需求增長預測
-
-![IEA下調今年全球石油需求增長預測，至每日增加73萬桶。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800492_1_20250415175547.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-國際能源署 （IEA）大幅下調對今年全球石油需求增長預測，至每日增加73萬桶，上月預測為增加103萬桶，明年預測進一步放緩至69萬桶。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800492-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800492-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800492-20250415.htm)
-
----
-
-# 在岸人民幣跌逾120點子收市
-
-![在岸人民幣收市較上日收市價下跌125點子，報7.3146兌1美元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800487_1_20250415171941.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=35)
-  
-
-在岸人民幣收報7.3146兌1美元，較上日收市價下跌125點子，中間價由逾19個月低位略為回升，與外電預測偏離收窄至千點子內。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800487-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800487-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800487-20250415.htm)
-
----
-
-# 香港倉儲設施獲LME核准　許正宇：推動本港大宗商品市場發展
-
-![許正宇稱短短數月已有首批倉儲設施申請獲批，見證政府和業界在發掘新增長點的努力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800486_2_20250415172115.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-港交所旗下倫敦金屬交易所（LME）宣布，已核准首批4家位於香港的倉儲設施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800486-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800486-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800486-20250415.htm)
-
----
-
-# 香港與亞美尼亞全面性避免雙重課稅協定本月9日生效
-
-![政府發言人稱全面性協定確保香港及亞美尼亞企業和居民，無須為同一收入兩度課稅。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800483_1_20250415170909.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-香港與亞美尼亞全面性避免雙重課稅協定完成有關批准程序，已於本月9日生效，適用於由2026年4月1日或之後開始任何課稅年度的香港稅項。有關協定在去年6月簽訂。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800483-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800483-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800483-20250415.htm)
-
----
-
-# 李家超稱香港要成為最佳旅遊中心　業界冀更多城市深化交流合作
-
-![李家超說，香港一直是不同文化和城市之間的橋樑，將最好的本地產品帶到全球市場。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800482_1_20250415171558.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-香港首次舉辦「世界旅遊城市聯合會香山旅遊峰會」，行政長官李家超致辭說，香港一直是不同文化和城市之間的橋樑，將最好的本地產品帶到全球市場，他又說，香港是全球主要和自由貿易中心，面對貿易戰和地緣政治帶來的全球性的困局，香港將堅決繼續自由和開放的貿易環境，讓香港成為世界其中一個最佳旅遊中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800482-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800482-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800482-20250415.htm)
-
----
-
-# 倫敦金屬交易所核准首批位於香港倉儲設施　3個月內開始投入營運
-
-![LME核准首批4家位於香港的倉儲設施，預計3個月內投入營運。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800479_1_20250415164039.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-港交所旗下倫敦金屬交易所（LME）宣布，已核准首批4家位於香港的倉儲設施，並已經通過LME運輸和物流標準檢收，預計3個月內投入營運，開始接收及儲存LME認可交割品牌的金屬。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800479-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800479-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800479-20250415.htm)
 
 ---

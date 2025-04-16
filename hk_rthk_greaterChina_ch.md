@@ -1,6 +1,10 @@
 # 白宮稱中國輸美商品面臨達245%關稅　中方：不願打但絕不怕打
 
+![林劍重申，關稅戰、貿易戰沒有贏家，中方不願打，但也絕對不怕打。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800641_1_20250416163525.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
+
+美國白宮表示，由於中國進行報復式措施，進口到美國的貨品面臨245%關稅。
+
   
 
 
@@ -139,6 +143,7 @@
 
 # 內地首季增長5.4%　國家統計局稱經濟持續長期向好改變不了
 
+![內地首季經濟按年增長5.4%。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800598_1_20250416163726.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
   
 
 內地首季經濟按年增長5.4%，好過預期，按季增長1.2%，多個經濟指標亦較預期好。

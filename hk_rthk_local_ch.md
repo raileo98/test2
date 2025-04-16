@@ -1,5 +1,55 @@
+# 恒指收市跌409點　科指受壓低收近4%
+
+![恒指收市報21056點，跌409點，跌幅1.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800642_1_20250416161935.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+港股結束多日升勢，恒指一度跌近600點，低見20868點，其後上海股市反彈並轉升收市，港股跟隨顯著反彈，最終21000點失而復得，收市報21056點，跌409點，跌幅1.91%，成交額約2200億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800642-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800642-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800642-20250416.htm)
+
+---
+
+# 海關檢獲電腦配件及集成電路板等走私貨物　市值逾7000萬元
+
+![海關發現貨櫃內藏有大量未列艙單貨物，包括電腦配件、集成電路板及光碟機等。（孔令輝攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800644_1_20250416163618.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+![海關相信由於內地對電子貨物需求殷切，不法分子因此嘗試走私貨物到內地。（孔令輝攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800644_2_20250416163618.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+一個報稱載有陶瓷工藝品打算經海運至內地的貨櫃，被海關發現藏有大量未列艙單貨物，包括電腦配件、集成電路板及光碟機等，市值逾7000萬元，若成功走私到內地，估計可逃稅約700萬元。案件仍在調查，海關不排除有人被捕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800644-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800644-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800644-20250416.htm)
+
+---
+
 # 林健鋒：香港應主動「行多步」　深度融入國家發展大局
 
+![林健鋒認為預算案是全速發展、改革創新、招商引才、投資未來。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800639_1_20250416163407.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 立法會二讀辯論本年度財政預算案。
@@ -309,30 +359,6 @@
 
 ---
 
-# 立法會恢復二讀辯論預算案撥款條例草案
-
-![立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800609_1_20250416131345.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
-
----
-
 # 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800603_1_20250416131219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -354,6 +380,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
+
+---
+
+# 立法會恢復二讀辯論預算案撥款條例草案
+
+![立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800609_1_20250416131345.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
 
 ---
 
@@ -1386,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800449-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800449-20250415.htm)
-
----
-
-# 4款分體冷氣機製冷量或供暖量未達聲稱水平　消委會提醒廠商監控
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800448_1_20250415134915.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-消委會測試12款「兩匹」變頻式分體冷氣機，發現有4款樣本的製冷量或供暖量未達所聲稱水平，其中製冷量最大差距為2.6%，供暖量最大差距則為1.4%，但仍在容許的公差範圍內，提醒有關廠商加強品質監控，以確保產品表現符合標示。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800448-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800448-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800448-20250415.htm)
-
----
-
-# 5款沐浴球含細小部件欠適用年齡警告　幼童若誤吞或引致窒息
-
-![測試發現有8款樣本附有小禮物，當中7款的小禮物於沐浴球溶於水後才浮出來，其餘1款所附的小禮物為浴室牆貼。（郭志強攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800447_1_20250415134820.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-消委會測試17款沐浴球，發現8款所附的小禮物含有細小部件，若幼童誤吞或引致窒息的風險。另外有9款沐浴球檢出香料致敏物質，其中7款檢出1種香料致敏物質，濃度均低於0.01%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800447-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800447-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800447-20250415.htm)
 
 ---
