@@ -1,3 +1,27 @@
+# 道指初段跌近0.4%　納指跌逾1.6%
+
+![道瓊斯指數較早時報40220點，跌148點，跌幅0.37%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800678_1_20250416214922.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+美股初段下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800678-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800678-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800678-20250416.htm)
+
+---
+
 # 美國3月工業生產按月下跌0.3%
 
 ![美國3月工業生產按月下跌0.3%，市場原本估計下跌0.2%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800676_1_20250416212815.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800540-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800540-20250416.htm)
-
----
-
-# 白宮重申特朗普對與中國達成協議持開放態度　球在中國一方
-
-![萊維特重申，總統特朗普已表明對與中國達成貿易協議持開放態度。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800537_1_20250416040856.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國白宮發言人萊維特重申，總統特朗普已表明對與中國達成貿易協議持開放態度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800537-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800537-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800537-20250416.htm)
 
 ---
