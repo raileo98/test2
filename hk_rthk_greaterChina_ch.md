@@ -1,3 +1,23 @@
+# 白宮稱中國輸美商品面臨達245%關稅　中方：不願打但絕不怕打
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800641-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800641-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800641-20250416.htm)
+
+---
+
 # 國防部：抹黑中國摘不掉美國「黑客帝國」的帽子
 
 ![張曉剛說，抹黑中國摘不掉美國「黑客帝國」的帽子。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800638_1_20250416153042.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1410,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800278-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800278-20250414.htm)
-
----
-
-# 中國海關總署：首季中美雙邊貿易仍增長4%
-
-![呂大良（右）稱中國始終堅持擴大高水平對外開放，中國進口增長空間巨大。（盧紫青攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800276_1_20250414124311.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-中國海關總署副署長王令浚表示，今年首季度在美國政府濫施關稅的干擾和衝擊下，中美雙邊貿易仍保持增長，進出口規模1.11萬億元人民幣，增長4%。他說，中美經貿關係本質是互利共贏，具有強大内生動力，但美國以各種藉口宣布，包括中國在内所有貿易夥伴濫施關稅，將不可避免地對全球包括中美在内的貿易造成負面影響，導致全球商品貿易量萎縮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800276-20250414.htm)
 
 ---

@@ -1,3 +1,23 @@
+# 白宮稱中國輸美商品面臨達245%關稅　中方：不願打但絕不怕打
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800641-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800641-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800641-20250416.htm)
+
+---
+
 # 英國3月通脹率放緩至2.6%
 
 ![英國3月通脹按年升2.6%，較2月放緩0.2個百分點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800631_1_20250416145942.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
