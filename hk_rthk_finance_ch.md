@@ -1,3 +1,74 @@
+# 現貨金突破3300美元創新高　紐約期金高收逾3%
+
+![紐約期金收報每盎司3346.4美元，升幅逾3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800710_1_20250417062116.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+避險資金流入金市，現貨金再創新高，高見每盎司3342.38美元，較早時報3341.08美元，升幅逾3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800710-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800710-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800710-20250417.htm)
+
+---
+
+# 美債息下跌　鮑威爾指美國經濟增長放緩
+
+  
+
+美國國債孳息率下跌，聯儲局主席鮑威爾表示，美國經濟增長似乎正在放緩，消費者支出溫和增長，為規避關稅而湧入的進口商品，可能會對國內生產總值（GDP）和市場情緒造成壓力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800709-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800709-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800709-20250417.htm)
+
+---
+
+# 美元下跌　市場觀望貿易談判結果
+
+![美元指數再度失守100水平，在紐約尾市報99.297，跌幅約0.8%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800707_1_20250417060359.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+美元重拾跌勢，投資者觀望美國總統特朗普政府與貿易伙伴的談判結果。美元指數再度失守100水平，在紐約尾市報99.297，跌幅約0.8%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800707-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800707-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800707-20250417.htm)
+
+---
+
 # 道指低收近700點　納指跌逾3%　Nvidia挫近7%
 
 ![道瓊斯指數尾市跌幅擴大至最多逾970點，收市報39669點，跌699點，跌幅1.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800704_1_20250417054321.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1362,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800561-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800561-20250416.htm)
-
----
-
-# 韓股初段向下
-
-![首爾綜合指數較早時報2468點，跌9點，跌幅0.37%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800555_1_20250416081706.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-南韓股市在開市初段向下，首爾綜合指數較早時報2468點，跌9點，跌幅0.37%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800555-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800555-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800555-20250416.htm)
-
----
-
-# 日股初段偏軟
-
-![日經平均指數較早時報34220點，跌46點，跌幅0.14%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800554_1_20250416081512.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-日本股市初段偏軟，日經平均指數較早時報34220點，跌46點，跌幅0.14%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800554-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800554-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800554-20250416.htm)
-
----
-
-# 油價微跌　關稅政策加劇對供應過剩憂慮
-
-![倫敦布蘭特期油及紐約期油都跌0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800544_1_20250416060603.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-國際期油價格微跌，貿易戰動盪加劇市場對原油供應過剩的憂慮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800544-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800544-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800544-20250416.htm)
 
 ---

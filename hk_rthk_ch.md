@@ -1,3 +1,74 @@
+# 現貨金突破3300美元創新高　紐約期金高收逾3%
+
+![紐約期金收報每盎司3346.4美元，升幅逾3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800710_1_20250417062116.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+避險資金流入金市，現貨金再創新高，高見每盎司3342.38美元，較早時報3341.08美元，升幅逾3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800710-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800710-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800710-20250417.htm)
+
+---
+
+# 美債息下跌　鮑威爾指美國經濟增長放緩
+
+  
+
+美國國債孳息率下跌，聯儲局主席鮑威爾表示，美國經濟增長似乎正在放緩，消費者支出溫和增長，為規避關稅而湧入的進口商品，可能會對國內生產總值（GDP）和市場情緒造成壓力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800709-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800709-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800709-20250417.htm)
+
+---
+
+# 美元下跌　市場觀望貿易談判結果
+
+![美元指數再度失守100水平，在紐約尾市報99.297，跌幅約0.8%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800707_1_20250417060359.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+美元重拾跌勢，投資者觀望美國總統特朗普政府與貿易伙伴的談判結果。美元指數再度失守100水平，在紐約尾市報99.297，跌幅約0.8%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800707-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800707-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800707-20250417.htm)
+
+---
+
 # 以軍稱加沙約三成地區被劃為以軍控制下的安全區
 
 ![在汗尤尼斯，巴勒斯坦民眾在以軍空襲行動後視察損毀情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800708_1_20250417061243.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -1363,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800630-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800630-20250416.htm)
-
----
-
-# 日股跌1%收市
-
-![日經指數收報33920點，跌347點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800629_1_20250416143504.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-東京股市下挫約1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800629-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800629-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800629-20250416.htm)
-
----
-
-# 財政部發布今年超長期特別國債發行下周四啟動
-
-![財政部發布今年超長期特別國債發行通知，下周四啟動，歷時近半年，共將發行21期。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800628_1_20250416143009.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-財政部發布今年超長期特別國債發行通知，下周四啟動，10月上旬結束，歷時近半年，共將發行21期，當中20年佔6期，30年及50年分別佔12期及3期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800628-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800628-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800628-20250416.htm)
-
----
-
-# 台股低收近2%
-
-![台灣加權指數收報19468點，跌389點，跌幅1.96%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800626_1_20250416142219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-台灣股市下挫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800626-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800626-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800626-20250416.htm)
 
 ---
