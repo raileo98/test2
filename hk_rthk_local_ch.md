@@ -1,3 +1,27 @@
+# 警方提醒市民慎防偽冒反詐騙協調中心及假冒金管局短訊
+
+![警方及金管局強調不會就個人財務事宜聯絡市民。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800681_1_20250416220455.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+警方及金管局提醒公眾，慎防偽冒警務處反詐騙協調中心及金管局發出的短訊。有關短訊聲稱協助市民取回被凍結的資產或被騙款項，要求市民聯絡偽冒的律師事務所，繼而要求市民提供銀行帳戶資料或轉帳至指定戶口。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800681-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800681-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800681-20250416.htm)
+
+---
+
 # 劉國勳促提高殘酷對待及疏忽照顧動物罰則　檢討動物進入食肆法例
 
 ![劉國勳建議將最高罰款20萬港元及監禁3年，增至例如100萬元及7年。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800679_1_20250416215308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800470-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800470-20250415.htm)
-
----
-
-# 謝展寰料本港首個轉廢為能設施年底投入運作
-
-![謝展寰表示，本港計劃在2035年之前全面停止燃煤。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800469_1_20250415154753.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-環境及生態局局長謝展寰表示，目前香港有大約20%的電力來自燃煤發電，計劃在2035年之前全面停止燃煤，目前正與內地加強合作，增加輸入淨零排放的電力，包括提升內地與香港之間的輸送電力設施，以及規劃建立新的基建接收額外淨零排放能源。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800469-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800469-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800469-20250415.htm)
 
 ---
