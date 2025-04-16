@@ -1,3 +1,49 @@
+# 立法會恢復二讀辯論預算案撥款條例草案
+
+  
+
+立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
+
+---
+
+# 內地首季增長5.4%　國家統計局稱經濟持續長期向好改變不了
+
+  
+
+內地首季經濟按年增長5.4%，好過預期，按季增長1.2%，多個經濟指標亦較預期好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm)
+
+---
+
 # 恒指半日跌543點　失守21000點　科指跌逾4%
 
 ![恒指中午收市報20922點，跌543點，跌幅2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800607_1_20250416121308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -1384,53 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800457-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800457-20250415.htm)
-
----
-
-# 台股高收近2%
-
-![台灣加權指數收市報19857點，升344點，升幅1.77%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800454_1_20250415141732.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-台灣股市上升。加權指數收市報19857點，升344點，升幅1.77%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800454-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800454-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800454-20250415.htm)
-
----
-
-# 新地：近日市場氣氛已趨穩定　本地住屋需求持續強勁
-
-![雷霆稱市場氣氛近日已趨穩定，相信聯儲局將為提振經濟而減息，對供樓人士有利。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800446_1_20250415134716.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-新鴻基地產副董事總經理雷霆表示，市場氣氛近日已趨穩定，相信聯儲局將為提振經濟而減息，對供樓人士有利，又認為本地住屋需求持續強勁，近期不少市民由租轉買，亦有部分買家買樓投資，相信今季一手交投較上季更旺。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800446-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800446-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800446-20250415.htm)
 
 ---

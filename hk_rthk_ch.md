@@ -1,3 +1,95 @@
+# 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
+
+  
+
+香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
+
+---
+
+# 立法會恢復二讀辯論預算案撥款條例草案
+
+  
+
+立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
+
+---
+
+# 丘應樺稱香港可助內地企業走出去　外商可利用香港走入大灣區
+
+  
+
+商務及經濟發展局局長丘應樺表示，在地緣政治及關稅限制下，香港可以作為一個平台協助內地企業走出去，除了可以幫助國家雙循環，亦能為香港經濟提供發展空間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm)
+
+---
+
+# 內地首季增長5.4%　國家統計局稱經濟持續長期向好改變不了
+
+  
+
+內地首季經濟按年增長5.4%，好過預期，按季增長1.2%，多個經濟指標亦較預期好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm)
+
+---
+
 # 恒指半日跌543點　失守21000點　科指跌逾4%
 
 ![恒指中午收市報20922點，跌543點，跌幅2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800607_1_20250416121308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -214,7 +306,7 @@
 
 # 鄧家彪：夏寶龍講話告知港人要將國家安全視作頭等大事
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800587_1_20250416111642.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800587_2_20250416124257.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 工聯會立法會議員鄧家彪認為港澳辦主任夏寶龍昨日在「全民國家安全教育日」發表的主旨演講，是有三個信息要告知港人，首先是舊事不忘，居安思危，時刻要保持警剔，將國家安全視作頭等大事。其次是要認清形勢，認清誰在打壓中國和香港；第三是呼籲所有愛國愛港人士必須注重國家安全，因為國安與發展是互相促進，香港各界要堅定信心，團結一致。
@@ -1334,101 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800523-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800523-20250416.htm)
-
----
-
-# 海關總署召開座談會　稱將加強政策供給　幫助企業解難題
-
-![海關總署表示，將著力提升通關便利化水平，幫助企業解難。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800521_1_20250415225152.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
-  
-
-中國海關總署召開進出口企業、行業協會商會座談會。海關總署署長孫梅君在會上表示，將著力提升通關便利化水平，加強政策供給，支持企業走出去；加強常態化溝通交流，幫助企業解難題、渡難關，穩訂單、拓市場，進一步促進外貿穩定發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800521-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800521-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800521-20250415.htm)
-
----
-
-# 德國4月經濟景氣指數跌至負數　創俄烏戰事以來最大跌幅
-
-![德國4月經濟景氣指數，由3月的51.6急跌至負14。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800520_1_20250415221514.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-德國經濟研究機構ZEW表示，受到美國關稅引發的不確定性影響，4月經濟景氣指數，由3月的51.6急跌至負14，創2022年俄烏戰事以來最大跌幅。市場原本估計為9.5。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800520-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800520-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800520-20250415.htm)
-
----
-
-# 全民國家安全教育日　三名司長撰文強調底線思維居安思危
-
-![陳國基指出，要增強「守住不能亂的底線」、陳茂波說，堅持「底線思維」充分準備應對局勢、林定國說，要對國安風險保持高度警覺性和敏感度。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800519_1_20250415220332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-第十個全民國家安全教育日開幕典禮暨主題講座在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍發表主旨講話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800519-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800519-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800519-20250415.htm)
-
----
-
-# 中越發表聯合聲明強調共同反對霸權主義和強權政治　反對單邊主義
-
-![習近平在河內與越南國家主席梁強會面。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800518_1_20250415215512.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-中共中央總書記、國家主席習近平結束對越南的國事訪問，他較早時在河內，分別與越共中央總書記蘇林及越南國家主席梁強會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800518-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800518-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800518-20250415.htm)
 
 ---

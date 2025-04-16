@@ -1,3 +1,49 @@
+# 丘應樺稱香港可助內地企業走出去　外商可利用香港走入大灣區
+
+  
+
+商務及經濟發展局局長丘應樺表示，在地緣政治及關稅限制下，香港可以作為一個平台協助內地企業走出去，除了可以幫助國家雙循環，亦能為香港經濟提供發展空間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm)
+
+---
+
+# 內地首季增長5.4%　國家統計局稱經濟持續長期向好改變不了
+
+  
+
+內地首季經濟按年增長5.4%，好過預期，按季增長1.2%，多個經濟指標亦較預期好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm)
+
+---
+
 # 盛來運：服務消費發展方興未艾　消費新動能持續釋放
 
   
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800255-20250414.htm)
-
----
-
-# 特朗普稱對等關稅沒「豁免 」　中方啟動「購在中國」系列活動
-
-![特朗普說將智能手機和電腦等產品，排除在對等關稅之外的措施是短暫的，強調沒有「豁免 」。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800253_1_20250414110923.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國總統特朗普說，將智能手機和電腦等產品，排除在對等關稅之外的措施將是短暫的，強調措施根本沒有「豁免 」，這些電子產品只是被轉移到另一關稅類別，仍會面臨關稅。他又說，會對半導體行業進行國家安全關稅調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800253-20250414.htm)
-
----
-
-# 全國政協副主席王勇：將全力支持香港深度融入全球數字化發展
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800250_1_20250414111139.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-世界互聯網大會首次舉辦亞太峰會，今日起一連兩日在灣仔會展舉行。全國政協副主席王勇表示，中國政府將全力支持香港深度融入全球數字化發展的時代洪流，充分把握數字經濟蓬勃興起的黃金機遇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800250-20250414.htm)
 
 ---

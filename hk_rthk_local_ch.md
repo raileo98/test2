@@ -1,3 +1,72 @@
+# 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
+
+  
+
+香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
+
+---
+
+# 立法會恢復二讀辯論預算案撥款條例草案
+
+  
+
+立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
+
+---
+
+# 丘應樺稱香港可助內地企業走出去　外商可利用香港走入大灣區
+
+  
+
+商務及經濟發展局局長丘應樺表示，在地緣政治及關稅限制下，香港可以作為一個平台協助內地企業走出去，除了可以幫助國家雙循環，亦能為香港經濟提供發展空間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm)
+
+---
+
 # 恒指半日跌543點　失守21000點　科指跌逾4%
 
 ![恒指中午收市報20922點，跌543點，跌幅2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800607_1_20250416121308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -96,7 +165,7 @@
 
 # 鄧家彪：夏寶龍講話告知港人要將國家安全視作頭等大事
 
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800587_1_20250416111642.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800587_2_20250416124257.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 工聯會立法會議員鄧家彪認為港澳辦主任夏寶龍昨日在「全民國家安全教育日」發表的主旨演講，是有三個信息要告知港人，首先是舊事不忘，居安思危，時刻要保持警剔，將國家安全視作頭等大事。其次是要認清形勢，認清誰在打壓中國和香港；第三是呼籲所有愛國愛港人士必須注重國家安全，因為國安與發展是互相促進，香港各界要堅定信心，團結一致。
@@ -1361,77 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800418-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800418-20250415.htm)
-
----
-
-# 李家超稱關稅戰改變世界貿易秩序　香港有危有機
-
-![李家超表示，關稅戰改變世界貿易秩序，香港有危有機。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800415_1_20250415104053.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-行政長官李家超表示，美國打擊中國和香港特區的肆意妄為已變成狂態。近期以貿易作武器，對香港施加145%的所謂對等關稅，李家超批評美方荒謬亦計錯數，因本港是零關稅，對等的話應該是零，認為展現美國滿口歪理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800415-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800415-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800415-20250415.htm)
-
----
-
-# 夏寶龍：關鍵時刻出賣國家利益絕不會有好下場　必將背負歷史罵名
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800414_1_20250415111831.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-第十個全民國家安全教育日開幕典禮暨主題講座早上在會展舉行。中央港澳辦、國務院港澳辦主任夏寶龍透過視像發表主旨講話時指出，中國人民從來不吃霸道霸凌那一套，包括香港同胞在內的全體中國人民是嚇不倒、壓不垮。中國人不惹事，也不怕事，施壓、威脅和訛詐不是同中國打交道的正確方式。他形容，朋友來了有好酒，敵人來了有獵槍，中國人從來沒有怕過誰。他指出，75年前帝國主義的侵略把戰火燒到了新中國家門口，中國人民深知對待侵略者就得用他們聽得懂的語言同他們對話，這就是以戰止戰、以武止戈，用勝利贏得和平，贏得尊重，形容打得一拳開，免得百拳來。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800414-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800414-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800414-20250415.htm)
-
----
-
-# 李家超稱不能忘記黑暴慘痛　國安法5周年香港在世界舞台展光芒
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800413_1_20250415104027.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-行政長官李家超表示，香港國安法公布實施5年後的今天，在維護國家安全條例立法生效一年後的今天，香港在世界舞台上展現光芒。不過，世界百年未有之大變局將加速演進，香港未來面對國家安全的風險會更風高浪急，本港要時刻警惕2019年的黑暴餘波仍未結束，反中亂港分子仍妄圖死灰復燃，仍然軟對抗，煽動厭惡和憎恨，要時刻警惕海內外破壞力量對抗事態還未結束。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800413-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800413-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800413-20250415.htm)
 
 ---
