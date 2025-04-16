@@ -24,7 +24,7 @@
 
 # 習近平晤易卜拉欣　強調致力開啟中馬關係新的「黃金50年」
 
-![易卜拉欣在馬來西亞國家王宮廣場為習近平舉行隆重歡迎儀式。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800633_1_20250416151515.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![易卜拉欣在馬來西亞國家王宮廣場為習近平舉行隆重歡迎儀式。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800633_1_20250416151515.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 國家主席習近平繼續在馬來西亞的國事訪問，會見最高元首易卜拉欣。

@@ -192,7 +192,7 @@ US President Donald Trump has ordered a probe that may result in tariffs on crit
 
 # China's growth beats forecasts with 5.4pc spike
 
-![Officials say the world's second-largest economy will continue to improve in the long run despite US tariffs. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800592_1_20250416111935.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800592_1_20250416111935.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
   
 
 Beijing said on Wednesday the economy grew a forecast-beating 5.4 percent in the first quarter as exporters rushed to get goods out of factory gates ahead of swingeing new US tariffs.
