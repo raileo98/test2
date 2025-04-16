@@ -1,3 +1,27 @@
+# Govt urged to beef up penalties for animal cruelty
+
+![Animal welfare groups want tougher penalties for animal cruelty cases. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800640_1_20250416155930.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+  
+
+Animal welfare groups on Wednesday urged the government to beef up penalties for animal cruelty and make Hong Kong a more pet-friendly city.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800640-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800640-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800640-20250416.htm)
+
+---
+
 # 'HK people should unite and promote national security'
 
 ![Bill Tang says people in Hong Kong, especially entrepreneurs, should prioritise national security over development. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800645_1_20250416163633.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ China and Vietnam on Monday signed dozens of cooperation agreements, strengtheni
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800358-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800358-20250414.htm)
-
----
-
-# Betting activity needs to be regulated: Alice Mak
-
-![The Hong Kong Jockey Club is working on plans towards legalising basketball betting. File Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800347_1_20250414202618.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-As Hong Kong moves towards legalising basketball betting, Secretary for Home and Youth Affairs Alice Mak stressed the government does not encourage gambling but that it's necessary to respond to demand.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800347-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800347-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800347-20250414.htm)
 
 ---
