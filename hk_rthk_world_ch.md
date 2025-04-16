@@ -1,3 +1,27 @@
+# 以軍稱加沙約三成地區被劃為以軍控制下的安全區
+
+![在汗尤尼斯，巴勒斯坦民眾在以軍空襲行動後視察損毀情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800708_1_20250417061243.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+以色列軍方表示，正擴大莫拉格走廊，這條走廊將加沙南部城市汗尤尼斯和巴勒斯坦武裝組織哈馬斯的拉法旅分隔。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800708-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800708-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800708-20250417.htm)
+
+---
+
 # 伊朗外長冀國際原子能機構不受某方面不合理壓力影響
 
 ![伊朗外長阿拉格齊會見到訪的國際原子能機構總幹事格羅西。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800705_1_20250417054727.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm)
-
----
-
-# 古特雷斯對以色列部隊襲擊加沙一間醫院表示深感震驚
-
-![古特雷斯重申，根據國際人道法，傷患和病人、醫務人員及包括醫院在內的醫療設施必須受到尊重和保護。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800391_1_20250415081705.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-聯合國秘書長古特雷斯發聲明，對以色列部隊襲擊加沙一間醫院表示深感震驚。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800391-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800391-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800391-20250415.htm)
 
 ---
