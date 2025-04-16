@@ -1,3 +1,27 @@
+# 小鵬汽車：香港擁有非常多人才　具有全球視野和思維
+
+![顧宏地（右）稱香港作為國際化及資本市場高地，公司需要佔有一席之地。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800619_1_20250416133946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+小鵬汽車日前在香港啟德郵輪碼頭舉行發布會。聯合創辦人、董事長兼首席執行官何小鵬今日與傳媒見面時表示，香港是內地面向全球的窗口，認為香港擁有非常多人才，並且具有全球視野和思維，有利公司面向全球市場。他相信，粵港澳大灣區發展速度會愈來愈快，期望未來能在大灣區進行更多新產品研發和製造。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800619-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800619-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800619-20250416.htm)
+
+---
+
 # 盛來運：保持價格運行在合理區間至關重要
 
 ![盛來運稱未來要多措並舉地促進價格合理回升，以免影響企業增收增利，影響收入和就業。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800617_1_20250416131636.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
@@ -405,12 +429,12 @@
 
 ---
 
-# 內地首季經濟按年增長5.4%　經濟實現良好開局
+# 內地首季經濟按年增長5.4%　實現良好開局
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800576_1_20250416095735.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
-國家統計局公布，內地首季經濟按年增長5.4%，增速與去年第4季相同，亦好過市場預期；按季增長1.2%。
+國家統計局公布，內地首季經濟按年增長5.4%，亦好過市場預期；按季增長1.2%。
 
   
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800461-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800461-20250415.htm)
-
----
-
-# 財政部下周在港發行125億元人民幣國債
-
-![財政部計劃下周三在香港發行今年第二期人民幣國債，發行規模125億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800460_1_20250415150025.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-財政部計劃下周在香港發行今年第二期人民幣國債，發行規模125億元，包括新發國債、增發2027、2028及2030國債，規模分別是15億元、40億元、40億元及30億元，下周三通過金管局中央結算系統債券投標平台進行競價投標，周五交收。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800460-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800460-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800460-20250415.htm)
 
 ---

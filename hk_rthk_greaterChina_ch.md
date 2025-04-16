@@ -212,12 +212,12 @@
 
 ---
 
-# 內地首季經濟按年增長5.4%　經濟實現良好開局
+# 內地首季經濟按年增長5.4%　實現良好開局
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800576_1_20250416095735.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
-國家統計局公布，內地首季經濟按年增長5.4%，增速與去年第4季相同，亦好過市場預期；按季增長1.2%。
+國家統計局公布，內地首季經濟按年增長5.4%，亦好過市場預期；按季增長1.2%。
 
   
 

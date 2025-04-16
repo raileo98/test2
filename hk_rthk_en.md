@@ -1,3 +1,27 @@
+# Barcelona, PSG into Champions League final four
+
+![Barcelona's Robert Lewandowski celebrates after an own goal by Borussia Dortmund's Ramy Bensebaini. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800620_1_20250416134150.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Barcelona and Paris Saint-Germain are through to the Champions League semi-finals.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800620-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800620-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800620-20250416.htm)
+
+---
+
 # Electronic ticketing system set for driving offences
 
 ![Mable Chan says the aim of digitalisation of traffic fixed penalty tickets is in line with the direction of developing Hong Kong into a smart city. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800611_1_20250416133557.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ Pop star Katy Perry will be the biggest name in an all-woman group set to touch 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800335-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800335-20250414.htm)
-
----
-
-# HK stocks close up despite Trump's exemptions warning
-
-![The Hang Seng Index closed up 2.4 percent at 21,417.40. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800333_1_20250414175541.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-Stocks rose on Monday as trade war fears were tempered by US President Donald Trump's announcement of tariff exemptions for electronics, although the greenback weakened and safe-haven gold hit a fresh record amid fears the relief would be short-lived.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800333-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800333-20250414.htm](https://news.rthk.hk/rthk/en/component/k2/1800333-20250414.htm)
 
 ---

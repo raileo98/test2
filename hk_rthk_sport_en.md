@@ -1,3 +1,27 @@
+# Barcelona, PSG into Champions League final four
+
+![Barcelona's Robert Lewandowski celebrates after an own goal by Borussia Dortmund's Ramy Bensebaini. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800620_1_20250416134150.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+Barcelona and Paris Saint-Germain are through to the Champions League semi-finals.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800620-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800620-20250416.htm](https://news.rthk.hk/rthk/en/component/k2/1800620-20250416.htm)
+
+---
+
 # Universal Studios, Venice Beach to host LA 2028 events
 
 ![LA28 confirmed venues for surfing, triathlon, baseball, cricket and squash among other sports. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800552_1_20250416074358.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1412,29 +1436,5 @@ The United States is the sole bidder for the 2031 Women's World Cup, and the Uni
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798854-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798854-20250403.htm)
-
----
-
-# Sinner doping woes blamed on ex-physio
-
-![Jannik Sinner's running afoul of anti-doping rules has been blamed on former physiotherapist Giacomo Naldi by physical trainer Umberto Ferrara. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798835_1_20250403184040.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Tennis world number one Jannik Sinner's former physical trainer Umberto Ferrara said on Thursday he was blameless in the case of the three-time Grand Slam champion testing positive twice for a banned substance.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm)
 
 ---

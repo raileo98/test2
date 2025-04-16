@@ -1,3 +1,27 @@
+# 小鵬汽車：香港擁有非常多人才　具有全球視野和思維
+
+![顧宏地（右）稱香港作為國際化及資本市場高地，公司需要佔有一席之地。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800619_1_20250416133946.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+小鵬汽車日前在香港啟德郵輪碼頭舉行發布會。聯合創辦人、董事長兼首席執行官何小鵬今日與傳媒見面時表示，香港是內地面向全球的窗口，認為香港擁有非常多人才，並且具有全球視野和思維，有利公司面向全球市場。他相信，粵港澳大灣區發展速度會愈來愈快，期望未來能在大灣區進行更多新產品研發和製造。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800619-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800619-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800619-20250416.htm)
+
+---
+
 # 恒指下午初段跌逾500點
 
 ![恒生指數較早時報20927點，跌538點，跌幅2.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800614_1_20250416130749.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800438-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800438-20250415.htm)
-
----
-
-# 李家超批美方對等關稅荒謬　鄭雁雄稱維護國安只有進行沒有完成時
-
-![李家超強調，本港是零關稅，批評美方採取所謂對等關稅做法荒謬。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800435_1_20250415140311.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-在全民國家安全教育日開幕禮上，行政長官李家超指出，世界百年未有的大變局加速演進，香港未來面對國家安全的風險會更風高浪急。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800435-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800435-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800435-20250415.htm)
 
 ---
