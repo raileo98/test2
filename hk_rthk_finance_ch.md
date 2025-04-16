@@ -1,3 +1,27 @@
+# 歐股收市個別發展　半導體股下跌
+
+![歐洲主要股市收市個別發展，半導體股下跌，其中ASML股價急跌逾5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800702_1_20250417052406.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+歐洲主要股市收市個別發展，半導體股下跌，全球最大晶片製造設備供應商ASML股價急跌逾5%，表示美國關稅政策增加公司今明兩年的前景不確定性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800702-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800702-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800702-20250417.htm)
+
+---
+
 # 世貿組織：美國關稅政策致全球貿易前景嚴重惡化
 
 ![伊維拉表示，「對等關稅」可能帶來嚴重後果。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800685_1_20250416224928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800545-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800545-20250416.htm)
-
----
-
-# 美元指數重上100以上水平　兌歐元和日圓上升
-
-![美元指數重上100以上水平，高見100.28，在紐約尾市報100.15，升幅逾0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800542_1_20250416055558.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-美元兌一籃子貨幣上升，美元指數重上100以上水平，高見100.28，在紐約尾市報100.15，升幅逾0.3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800542-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800542-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800542-20250416.htm)
 
 ---

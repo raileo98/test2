@@ -1,3 +1,27 @@
+# 歐股收市個別發展　半導體股下跌
+
+![歐洲主要股市收市個別發展，半導體股下跌，其中ASML股價急跌逾5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800702_1_20250417052406.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+歐洲主要股市收市個別發展，半導體股下跌，全球最大晶片製造設備供應商ASML股價急跌逾5%，表示美國關稅政策增加公司今明兩年的前景不確定性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800702-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800702-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800702-20250417.htm)
+
+---
+
 # 伊朗外長：需了解美國真實立場　談判應在平等和尊重基礎上推進
 
 ![阿拉格齊說，從美方聽到多種立場，有些甚至互相矛盾，這樣絕不利於談判進程。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800701_1_20250417042437.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800624-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800624-20250416.htm)
-
----
-
-# NBA季後賽附加賽　勇士及魔術分別勝出晉級
-
-![占美畢拿及史堤芬居里是今場勇士贏波功臣。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800618_1_20250416132713.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-NBA季後賽附加賽，金州勇士121:116擊敗孟菲斯灰熊，晉身季後賽，將會面對西岸二號種子休斯敦火箭。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800618-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800618-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800618-20250416.htm)
 
 ---
