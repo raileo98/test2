@@ -48,7 +48,7 @@
 
 # 中方就英鋼事件促英國政府切實保障中資企業合法正當權益
 
-![英國國會通過由政府接管中國敬業集團持有的英國鋼鐵公司。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800703_1_20250417053553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=1)
+![英國國會通過由政府接管中國敬業集團持有的英國鋼鐵公司。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800703_1_20250417053553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 英國國會通過由政府接管中國敬業集團持有的英國鋼鐵公司，中國駐英國使館發言人認為，英國個別政客的反華言論極其荒唐可笑，反映他們的傲慢、無知和扭曲心態。
