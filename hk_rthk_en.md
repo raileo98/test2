@@ -1,3 +1,27 @@
+# Israel says 30 percent of Gaza turned into buffer zone
+
+![The devastation in Gaza has created what Israel is now calling a 'security perimeter.' Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800693_1_20250417013153.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
+  
+
+Israel announced on Wednesday that it had converted 30 percent of Gaza's territory into a buffer zone as it pressed its unrelenting military offensive, vowing to maintain its blockade on humanitarian aid to the war-ravaged territory.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800693-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800693-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800693-20250417.htm)
+
+---
+
 # Sports bodies now have 'no excuses' on trans rules
 
 ![Susan Smith and Marion Calder from the campaign group For Women Scotland celebrate, after the Supreme Court ruled in their favour. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800688_1_20250417002357.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@ Chief Secretary Eric Chan said on Tuesday society's awareness of national securi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800412-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800412-20250415.htm)
-
----
-
-# Bournemouth beat Fulham to boost European hopes
-
-![Bournemouth secured a 1-0 victory against Fulham, marking their first win in seven league matches. Photo: Action Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800394_1_20250415082114.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-Antoine Semenyo struck in the first minute as Bournemouth boosted their hopes of qualifying for continental competition with a 1-0 Premier League victory over fellow European hopefuls Fulham.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800394-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800394-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800394-20250415.htm)
 
 ---
