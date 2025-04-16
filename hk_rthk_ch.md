@@ -1,3 +1,27 @@
+# 柬埔寨首相稱習近平到訪充分彰顯柬中關係的深厚與重要性
+
+![洪瑪奈指，柬中關係已達到歷史最高水平。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800691_1_20250417004900.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+國家主席習近平今日將會由馬來西亞轉到柬埔寨繼續國事訪問行程，柬埔寨首相洪瑪奈認為，習近平此行充分彰顯柬中關係的深厚與重要性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800691-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800691-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800691-20250417.htm)
+
+---
+
 # 英國最高法院裁定平等法女性定義是指生理女性　不包含跨性別女性
 
 ![提出訴訟的蘇格蘭婦女組織成員得悉結果後歡迎慶祝。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800689_1_20250417002429.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1410,29 +1434,5 @@ NBA季後賽附加賽，金州勇士121:116擊敗孟菲斯灰熊，晉身季後�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800612-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800612-20250416.htm)
-
----
-
-# 警方將於港島交通違例黑點試行運輸署監察系統進行錄影執法
-
-![警方將在港島4個交通違例黑點，試行利用運輸署現行監察系統，進行錄影執法。 （郭志強攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800606_1_20250416131514.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-警方本月22日起，將在港島4個交通違例黑點，試行利用運輸署現行監察系統，進行錄影執法，記錄違例車輛的車牌號碼，並向司機發出定額罰款通知。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800606-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800606-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800606-20250416.htm)
 
 ---

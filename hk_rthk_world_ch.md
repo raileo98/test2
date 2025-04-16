@@ -1,3 +1,27 @@
+# 柬埔寨首相稱習近平到訪充分彰顯柬中關係的深厚與重要性
+
+![洪瑪奈指，柬中關係已達到歷史最高水平。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800691_1_20250417004900.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+國家主席習近平今日將會由馬來西亞轉到柬埔寨繼續國事訪問行程，柬埔寨首相洪瑪奈認為，習近平此行充分彰顯柬中關係的深厚與重要性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800691-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800691-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800691-20250417.htm)
+
+---
+
 # 英國最高法院裁定平等法女性定義是指生理女性　不包含跨性別女性
 
 ![提出訴訟的蘇格蘭婦女組織成員得悉結果後歡迎慶祝。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800689_1_20250417002429.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800366-20250415.htm)
-
----
-
-# 習近平晤蘇林：要共同反對單邊霸凌行徑　維護全球產供鏈穩定
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800362_1_20250414225450.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-正在越南國事訪問的中共中央總書記、國家主席習近平，在首都河內與越共中央總書記蘇林會面。蘇林先為習近平舉行隆重歡迎儀式，習近平在蘇林陪同下檢閱儀仗隊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800362-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800362-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800362-20250414.htm)
 
 ---
