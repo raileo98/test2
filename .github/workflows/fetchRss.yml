@@ -320,8 +320,8 @@ jobs:
         counter=0
         while true; do
           counter=$((counter+1))
-          echo "8.3 - 嘗試安裝 python3 python3-pip redis-server 次數: $counter"
-          if sudo apt install python3 python3-pip redis-server -y; then
+          echo "8.3 - 嘗試安裝 python3 python3-pip valkey 次數: $counter"
+          if sudo apt install python3 python3-pip valkey -y; then
               break
           fi
           sleep 1
