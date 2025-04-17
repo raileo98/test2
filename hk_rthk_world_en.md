@@ -1,3 +1,27 @@
+# Trump cites 'big progress' in tariff talks with Japan
+
+![Tokyo sent its Economic Revitalisation Minister Ryosei Akazawa to kickstart the talks. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800719_1_20250417075713.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+US President Donald Trump said there was "big progress" when he made the surprise move on Wednesday to negotiate directly with Japanese officials about the barrage of tariffs he has imposed on global imports.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800719-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800719-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800719-20250417.htm)
+
+---
+
 # California sues US govt over Trump tariffs
 
 ![Governor Newsom's office says California could lose billions of dollars in revenue if Trump's tariff policies shrink international trade. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800716_1_20250417073913.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ Several American senators have called for an investigation into whether US Presi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799813-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799813-20250410.htm)
-
----
-
-# Trump wants to 'make showers great again'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799755_1_20250410134902.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-US President Donald Trump has signed an executive order lifting water-pressure restrictions on showerheads, a move the White House said would "make America's showers great again".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799755-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799755-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799755-20250410.htm)
 
 ---

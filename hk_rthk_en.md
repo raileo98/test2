@@ -1,3 +1,27 @@
+# Trump cites 'big progress' in tariff talks with Japan
+
+![Tokyo sent its Economic Revitalisation Minister Ryosei Akazawa to kickstart the talks. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800719_1_20250417075713.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+US President Donald Trump said there was "big progress" when he made the surprise move on Wednesday to negotiate directly with Japanese officials about the barrage of tariffs he has imposed on global imports.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800719-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800719-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800719-20250417.htm)
+
+---
+
 # AMD says US rule on chips to China will cost it US$800
 
 ![AMD said the new US export control measure applies to MI308 graphics processing units designed for high-performance applications. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800718_1_20250417074230.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1411,29 +1435,5 @@ Consumers should read through seasonal performance factor indicators for split-l
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800439-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800439-20250415.htm)
-
----
-
-# HK to grasp opportunities arising from tariff war: CE
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800433_1_20250415115836.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Chief Executive John Lee on Tuesday said Hong Kong will grasp the opportunities brought by a new economic and trade order amid the tariff war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800433-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800433-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800433-20250415.htm)
 
 ---
