@@ -1,5 +1,29 @@
+# 林振昇倡飛棚工序向勞工處申報　建造分包商稱未驗先簽紙不能接受
+
+  
+
+申訴專員公署發現，「合資格人士」在多宗建造業高風險作業個案中，未有妥善檢查裝置或機械就貿然簽署指定表格確認安全，建議研究就各種高風險作業制定檢查清單的範本，勞工處亦應該研究建立電子平台，讓合資格人士上載檢查紀錄，以便加強監察。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800747-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800747-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800747-20250417.htm)
+
+---
+
 # 麥美娟：各區民政事務處將推活動冀提升市民國家安全意識
 
+![麥美娟表示，各區將於下月中舉辦「國家安全教育地區導師座談會」。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800742_1_20250417105006.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 今年6月30日是香港國安法實施五周年，民政及青年事務局局長麥美娟表示，18區民政事務處將於5月至7月期間推出10多項主題活動，包括國安教育相關研討會、場地展覽，以及不同類型的嘉年華活動，希望提升市民國家安全意識，營造維護國安的社會氛圍，並深化市民的國民身份認同。
@@ -670,30 +694,6 @@
 
 ---
 
-# 立法會恢復二讀辯論預算案撥款條例草案
-
-![立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800609_1_20250416131345.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
-
----
-
 # 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800603_1_20250416131219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -715,6 +715,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
+
+---
+
+# 立法會恢復二讀辯論預算案撥款條例草案
+
+![立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800609_1_20250416131345.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
 
 ---
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800483-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800483-20250415.htm)
-
----
-
-# 李家超稱香港要成為最佳旅遊中心　業界冀更多城市深化交流合作
-
-![李家超說，香港一直是不同文化和城市之間的橋樑，將最好的本地產品帶到全球市場。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800482_1_20250415171558.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-香港首次舉辦「世界旅遊城市聯合會香山旅遊峰會」，行政長官李家超致辭說，香港一直是不同文化和城市之間的橋樑，將最好的本地產品帶到全球市場，他又說，香港是全球主要和自由貿易中心，面對貿易戰和地緣政治帶來的全球性的困局，香港將堅決繼續自由和開放的貿易環境，讓香港成為世界其中一個最佳旅遊中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800482-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800482-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800482-20250415.htm)
 
 ---

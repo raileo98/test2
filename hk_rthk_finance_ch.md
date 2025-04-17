@@ -1,3 +1,51 @@
+# 日股半日升近1%
+
+![日經平均指數報34212點，升291點，升幅0.86%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800750_1_20250417104856.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本股市半日升近1%，日經平均指數報34212點，升291點，升幅0.86%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800750-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800750-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800750-20250417.htm)
+
+---
+
+# 植田和男：若經濟走勢符合預測央行將繼續加息
+
+![植田和男稱若經濟走勢符合預測，央行將繼續加息，但必須警惕各國貿易政策不確定性正在加劇。（央行圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800748_1_20250417104722.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+日本央行總裁植田和男表示，日本實際利率極低，如果經濟走勢符合預測，央行將繼續加息，但必須警惕各國貿易政策不確定性正在加劇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800748-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800748-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800748-20250417.htm)
+
+---
+
 # 人行開展2455億元人民幣逆回購操作
 
 ![人民銀行公開市場開展2455億元人民幣7日期逆回購操作，單日淨投放1796億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800736_1_20250417093434.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800591-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800591-20250416.htm)
-
----
-
-# 日股半日跌約1%
-
-![日經指數半日跌251點，報34016點，跌幅0.73%。（交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800586_1_20250416104023.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-東京股市向下。日經指數半日跌251點，報34016點，跌幅0.73%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800586-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800586-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800586-20250416.htm)
-
----
-
-# 盛來運：美國加徵高額關稅改變不了中國經濟持續長期向好趨勢
-
-![盛來運說中國經濟基礎韌性強，潛力大，有底氣有能力有信心應對外部挑戰，實現既定發展目標。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800584_1_20250416105454.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-國家統計局副局長盛來運表示，美國搞關稅壁壘和貿易霸淩做法是損人不利己，既違背經濟規律及世界貿易原則，對世界經濟秩序造成嚴重衝擊，拖累世界經濟復蘇，中方將採取一系列反制措施，既維護自身發展利益需要，亦維護世界多邊貿易體系及世界經濟秩序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800584-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800584-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800584-20250416.htm)
 
 ---

@@ -1,5 +1,100 @@
+# 習近平結束國事訪問馬來西亞赴柬埔寨　大馬總理等官員到機場送行
+
+  
+
+國家主席習近平結束對馬來西亞國事訪問，前往柬埔寨繼續訪問行程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800749-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800749-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800749-20250417.htm)
+
+---
+
+# 日股半日升近1%
+
+![日經平均指數報34212點，升291點，升幅0.86%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800750_1_20250417104856.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+日本股市半日升近1%，日經平均指數報34212點，升291點，升幅0.86%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800750-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800750-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800750-20250417.htm)
+
+---
+
+# 植田和男：若經濟走勢符合預測央行將繼續加息
+
+![植田和男稱若經濟走勢符合預測，央行將繼續加息，但必須警惕各國貿易政策不確定性正在加劇。（央行圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800748_1_20250417104722.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+日本央行總裁植田和男表示，日本實際利率極低，如果經濟走勢符合預測，央行將繼續加息，但必須警惕各國貿易政策不確定性正在加劇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800748-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800748-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800748-20250417.htm)
+
+---
+
+# 林振昇倡飛棚工序向勞工處申報　建造分包商稱未驗先簽紙不能接受
+
+  
+
+申訴專員公署發現，「合資格人士」在多宗建造業高風險作業個案中，未有妥善檢查裝置或機械就貿然簽署指定表格確認安全，建議研究就各種高風險作業制定檢查清單的範本，勞工處亦應該研究建立電子平台，讓合資格人士上載檢查紀錄，以便加強監察。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800747-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800747-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800747-20250417.htm)
+
+---
+
 # 麥美娟：各區民政事務處將推活動冀提升市民國家安全意識
 
+![麥美娟表示，各區將於下月中舉辦「國家安全教育地區導師座談會」。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800742_1_20250417105006.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 今年6月30日是香港國安法實施五周年，民政及青年事務局局長麥美娟表示，18區民政事務處將於5月至7月期間推出10多項主題活動，包括國安教育相關研討會、場地展覽，以及不同類型的嘉年華活動，希望提升市民國家安全意識，營造維護國安的社會氛圍，並深化市民的國民身份認同。
@@ -1337,101 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800669-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800669-20250416.htm)
-
----
-
-# 中國地質調查局原局長鍾自然因受賄和故意洩露國家秘密判囚13年
-
-![中國地質調查局原局長鍾自然因受賄和故意洩露國家秘密判囚13年](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800668_1_20250416201928.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-國家自然資源部前黨組成員，中國地質調查局前黨組書記、局長鍾自然受賄和故意洩露國家秘密案，在浙江省寧波市中級人民法院一審判監13年，罰款200萬元人民幣，沒收個人受賄犯罪財務及孳息，上繳國庫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800668-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800668-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800668-20250416.htm)
-
----
-
-# 中國與埃及將舉行「文明之鷹-2025」空軍聯合訓練
-
-![中國與埃及將舉行「文明之鷹-2025」空軍聯合訓練。 (國防部網頁截圖)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800667_1_20250416194337.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-在北京，國防部表示，根據中國和埃及軍隊共識，4月中旬至5月上旬，解放軍空軍將派分隊前往埃及，舉行中埃「文明之鷹-2025」空軍聯合訓練，是中埃兩軍首次組織聯訓，對推動兩軍務實合作、增進兩軍友誼互信具有重要意義。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800667-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800667-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800667-20250416.htm)
-
----
-
-# 運輸業輸入勞工計劃航空業第三輪批出2206個配額申請
-
-![完成第三輪申請後，計劃下的6300個配額已全數批出。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800665_1_20250416212050.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-運輸業輸入勞工計劃的航空業第三輪完成審批，34間合資格公司申請共3292個輸入勞工配額，涵蓋計劃下所有10個工種，包括地勤人員及機坪服務員等，經跨部門聯絡小組審批後，批出2206個配額申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800665-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800665-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800665-20250416.htm)
-
----
-
-# 港鐵：本周六東涌綫東涌至欣澳站列車服務提前約2小時結束
-
-![港鐵：本周六東涌綫東涌至欣澳站列車服務提前約2小時結束](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800664_1_20250416212017.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-港鐵公司提醒乘客，為配合東涌綫延綫第二次道岔安裝工序，本周六東涌綫東涌至欣澳站的列車服務將提前約2小時，即晚上11時許結束，屆時將安排免費接駁巴士往返東涌站及欣澳站。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800664-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800664-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800664-20250416.htm)
 
 ---

@@ -1,4 +1,4 @@
-# Magpies thrash Palace in Champions League race
+# Magpies thrash Palace in Champions League chase
 
 ![A sixth consecutive victory in all competitions opens up a five-point lead for Newcastle over sixth-placed Chelsea, with a place in the top five good enough for Champions League qualification. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800743_1_20250417102747.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
@@ -699,7 +699,7 @@ China said on Wednesday that it has appointed a new trade envoy as the world's s
 ![Barcelona's Robert Lewandowski celebrates after an own goal by Borussia Dortmund's Ramy Bensebaini. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800620_1_20250416134150.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
-Barcelona and Paris Saint-Germain are through to the Champions League semi-finals.
+Barcelona and Paris Saint-Germain are through to the European Champions League semi-finals.
 
   
 

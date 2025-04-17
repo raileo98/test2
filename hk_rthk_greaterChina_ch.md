@@ -1,3 +1,26 @@
+# 習近平結束國事訪問馬來西亞赴柬埔寨　大馬總理等官員到機場送行
+
+  
+
+國家主席習近平結束對馬來西亞國事訪問，前往柬埔寨繼續訪問行程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800749-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800749-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800749-20250417.htm)
+
+---
+
 # 外交部回應美方關稅稱已淪數字遊戲　指245%從何而來要問美方
 
 ![外交部又於網頁上表示，關稅戰、貿易戰沒有贏家，中方不願打，但亦不怕打。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800738_1_20250417094305.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800360-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800360-20250414.htm)
-
----
-
-# 國務院港澳辦：施政報告充分展現澳門特區政府改革創新施政理念
-
-![國務院港澳辦表示，岑浩輝首份施政報告，深入貫徹國家主席習近平去年12月視察澳門系列重要講話精神。（鄭月明攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800354_1_20250414214755.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-國務院港澳辦表示，澳門行政長官岑浩輝發表上任後首份施政報告，深入貫徹國家主席習近平去年12月視察澳門系列重要講話精神，充分展現新一屆澳門特區政府改革創新、實幹擔當、銳意進取的施政理念，全力支援澳門特區政府和社會各界勇擔新時代「一國兩制」實踐的使命。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm)
 
 ---

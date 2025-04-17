@@ -1,3 +1,26 @@
+# 習近平結束國事訪問馬來西亞赴柬埔寨　大馬總理等官員到機場送行
+
+  
+
+國家主席習近平結束對馬來西亞國事訪問，前往柬埔寨繼續訪問行程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800749-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800749-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800749-20250417.htm)
+
+---
+
 # 《環看天下》：新加坡下月大選　執政人民行動黨支持度惹關注
 
 ![新加坡定於5月3日舉行大選，將會產生97名國會民選議員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800740_1_20250417100741.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800467-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800467-20250415.htm)
-
----
-
-# 習近平同越方領導人共同會見中越人民大聯歡活動代表並致辭
-
-![習近平在蘇林陪同下，瞻仰胡志明陵並敬獻花圈。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800444_2_20250415173802.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-中共中央總書記、國家主席習近平繼續在越南的國事訪問。他上午在河內同越共中央總書記蘇林，以及越南國家主席梁強共同會見中越人民大聯歡活動代表並致辭。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800444-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800444-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800444-20250415.htm)
 
 ---
