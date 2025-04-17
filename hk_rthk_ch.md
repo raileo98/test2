@@ -24,6 +24,7 @@
 
 # 首季全國鐵路累計發送旅客逾10億按年增5.9%創歷史同期新商
 
+![鐵路部門利用新開通線路、車站和新配置的動車組裝備，充分發揮高鐵網優勢。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800745_1_20250417133549.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
   
 
 今年第一季全國鐵路累計發送旅客10億7400萬人次，按年增長5.9%，創歷史同期新高。
