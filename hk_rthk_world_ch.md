@@ -24,6 +24,7 @@
 
 # 習近平抵金邊機場有歡迎儀式　書面講話稱冀深化更高水平政治互信
 
+![習近平出席西哈莫尼舉行的歡迎儀式。（央視截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800767_1_20250417134207.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 國家主席習近平乘坐專機抵達金邊，應柬埔寨國王西哈莫尼邀請，國事訪問當地。專機抵達金邊國際機場時，西哈莫尼及人民黨主席、參議院主席洪森熱情迎接，習近平出席西哈莫尼舉行的歡迎儀式。
