@@ -271,16 +271,7 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
             # print('error: OverwhelmedTraffic')
             # continue
         
-        except Exception as e:
-            # if str(e).strip() == 'Cannot select a disposable connection to ease the charge':
-            if str(e).strip().startswith('Cannot select a disposable connection to ease the charge') or str(e).strip().startswith('Cannot memorize traffic indicator upon unknown connection'):
-                # print('error: Cannot select a disposable connection to ease the charge, aka OverwhelmedTraffic(?)')
-                print(f"請求 {url} 出錯: {e}，嘗試重試...")
-                
-                continue
-                
-            else:
-                print(f"請求 {url} 出錯: {e}，嘗試重試...")
+
         
         if not mustFetch:
             break
