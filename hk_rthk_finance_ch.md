@@ -96,6 +96,7 @@
 
 # 房委會商界合作旗下商場約50間商舖支持青年創業
 
+![何永賢表示，新一階段的計劃提出創業階梯租金優惠，提供更多商場及商舖支持青年創業。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800755_1_20250417132211.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 房委會去年推出「共築・創業家」計劃，在旗下商場向青年免租金提供商舖，讓他們試行創業計劃，計劃經營期開始超過半年，當局宣布將推出2.0計劃。

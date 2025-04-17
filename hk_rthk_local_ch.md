@@ -24,6 +24,7 @@
 
 # 有的士業界指加罰款合理但盼加幅低些　有議員稱加幅相對溫和
 
+![消息指，違例泊車罰款額由320元增至400元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800765_1_20250417132703.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 消息指，違例泊車罰款額由320元增至400元。立法會交通事務委員會主席陳紹雄表示，有關費用多年未調整，今次加幅相對溫和，新加坡、倫敦等地的收費是香港10倍。
@@ -47,6 +48,7 @@
 
 # 警方料涉門票騙案增加籲光顧官方渠道　盡量與網上賣家當面交收
 
+![警方說去年演唱會門票相關最大宗損失個案，涉及被騙近100萬港元。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800764_1_20250417132611.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 本港網上購物騙案有顯著上升的趨勢，去年錄得逾萬宗個案，較前一年上升近三成，不少涉及演唱會等演出門票。
@@ -70,6 +72,7 @@
 
 # 何永賢指兩年半收回約8千公屋單位　稱可於旅遊片區用組裝合成件
 
+![何永賢指出約兩年半間，已收回約8000個公屋單位，涉及約80億元。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800763_1_20250417132254.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 今屆政府推出打擊濫用公屋「組合拳」後，房屋局局長何永賢指出，約兩年半間，已收回約8000個公屋單位，以金錢計算涉及約80億元。
@@ -117,6 +120,7 @@
 
 # 房委會商界合作旗下商場約50間商舖支持青年創業
 
+![何永賢表示，新一階段的計劃提出創業階梯租金優惠，提供更多商場及商舖支持青年創業。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800755_1_20250417132211.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
 房委會去年推出「共築・創業家」計劃，在旗下商場向青年免租金提供商舖，讓他們試行創業計劃，計劃經營期開始超過半年，當局宣布將推出2.0計劃。

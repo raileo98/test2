@@ -1,3 +1,27 @@
+# 北韓譴責美國派戰略轟炸機參與美韓聯合訓練　指升級軍事緊張局勢
+
+![美國派B-1B戰略轟炸機參與挑釁性的美韓聯合空中訓練。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800769_1_20250417132101.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+北韓國防省譴責美國派B-1B戰略轟炸機參與挑釁性的美韓聯合空中訓練，揚言將以強大力量遏制美國的侵略企圖。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800769-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800769-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800769-20250417.htm)
+
+---
+
 # 習近平抵金邊機場有歡迎儀式　書面講話稱冀深化更高水平政治互信
 
   
@@ -1406,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800475-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800475-20250415.htm)
-
----
-
-# 外交部：面對外部不確定性　中國堅持聯通而非脫鉤
-
-![林劍稱，面對外部的不確定性，中國將堅持「握手而非揮拳，拆牆而非築壘，聯通而非脫鉤」。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800473_1_20250415160714.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-在北京，外交部發言人林劍表示，今年首季中國貨物貿易進出口達10萬3000億元人民幣，其中出口突破6萬億元，實現6.9%增長，強調中國是世界的市場、各國的機遇，面對外部的不確定性，中國將堅持「握手而非揮拳，拆牆而非築壘，聯通而非脫鉤」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800473-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800473-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800473-20250415.htm)
 
 ---
