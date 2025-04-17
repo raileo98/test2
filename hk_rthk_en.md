@@ -1,3 +1,27 @@
+# National security push in runup to anniversary of law
+
+![Alice Mak says activities will include national security tutors interact with various social groups such as the elderly, ethnic minorities and youths. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800760_1_20250417121634.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+Secretary for Home and Youth Affairs Alice Mak said on Thursday a series of seminars and exhibitions on national security education will soon be launched as the city marks the fifth anniversary of the implementation of the national security law on June 30.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800760-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800760-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800760-20250417.htm)
+
+---
+
 # Xi arrives in Phnom Penh in push for shared community
 
 ![President Xi Jinping waves ahead of his departure for Cambodia at Kuala Lumpur International Airport in Sepang, Malaysia. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800746_1_20250417121707.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1413,29 +1437,5 @@ President Xi Jinping on Tuesday began a state visit to Malaysia.
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800504-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800504-20250415.htm)
-
----
-
-# HK 'is a pivotal region for I&T development'
-
-![John Hoffman says Hong Kong should make use of its proximity to the mainland to learn from the largest mobile network operators there. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800495_1_20250415181459.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-An association representing global mobile operators said on Tuesday Hong Kong is a pivotal region for the development of innovation and technology and that it can learn from the mainland.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800495-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800495-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800495-20250415.htm)
 
 ---
