@@ -1,3 +1,26 @@
+# 職工會修訂條例草案刊憲　加強規管職工會以維護國家安全
+
+  
+
+《2025年職工會（修訂）條例草案》刊憲，政府表示，今次修例旨在加強規管職工會以維護國家安全，並完善職工會的規管制度，從而促進職工會的健康發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800754-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800754-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800754-20250417.htm)
+
+---
+
 # 滬深股市半日收市靠穩
 
 ![內地股市半日靠穩，上證綜合指數中午收市報3282點，升6點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800752_1_20250417114002.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800671-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800671-20250416.htm)
-
----
-
-# 中超浙江隊28歲外援布彭扎離世
-
-![中超浙江隊28歲外援布彭扎離世](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800670_1_20250416203016.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-加蓬足球協會證實，效力於中超浙江足球俱樂部的加蓬國腳布彭札意外離世，終年28歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800670-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800670-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800670-20250416.htm)
 
 ---
