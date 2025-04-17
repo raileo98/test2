@@ -1,5 +1,29 @@
+# 麥美娟：各區民政事務處將推活動冀提升市民國家安全意識
+
+  
+
+今年6月30日是香港國安法實施五周年，民政及青年事務局局長麥美娟表示，18區民政事務處將於5月至7月期間推出10多項主題活動，包括國安教育相關研討會、場地展覽，以及不同類型的嘉年華活動，希望提升市民國家安全意識，營造維護國安的社會氛圍，並深化市民的國民身份認同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800742-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800742-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800742-20250417.htm)
+
+---
+
 # 陳紹雄稱消息指「牛肉乾」加至400元「雖不中亦不遠矣」
 
+![陳紹雄指俗稱「牛肉乾」的違例泊車定額罰款金額超過30年未調整，現時適宜去討論調整，大家都預期會加價。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800741_1_20250417102950.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 消息指，政府計劃將俗稱「牛肉乾」的違例泊車定額罰款金額，由320元調高至400元。立法會交通事務委員會主席陳紹雄表示，委員會下星期將討論有關題目，政府很快會提交文件，形容坊間的消息「雖不中亦不遠矣」。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800482-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800482-20250415.htm)
-
----
-
-# 倫敦金屬交易所核准首批位於香港倉儲設施　3個月內開始投入營運
-
-![LME核准首批4家位於香港的倉儲設施，預計3個月內投入營運。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800479_1_20250415164039.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-港交所旗下倫敦金屬交易所（LME）宣布，已核准首批4家位於香港的倉儲設施，並已經通過LME運輸和物流標準檢收，預計3個月內投入營運，開始接收及儲存LME認可交割品牌的金屬。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800479-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800479-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800479-20250415.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Magpies thrash Palace in Champions League race
+
+![A sixth consecutive victory in all competitions opens up a five-point lead for Newcastle over sixth-placed Chelsea, with a place in the top five good enough for Champions League qualification. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800743_1_20250417102747.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+Newcastle soared up to third in the Premier League with a 5-0 thrashing of Crystal Palace to close in on a return to the Champions League next season.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800743-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800743-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800743-20250417.htm)
+
+---
+
 # Inter keep treble hope alive with Champions League win
 
 ![Inter Milan advanced to the semifinals of the Champions League after a 2-2 draw with Bayern Munich, winning 4-3 on aggregate. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800729_1_20250417084526.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1412,29 +1436,5 @@ Come rain or shine 750,000 fans are expected to turn out on Sunday for cycling's
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799008-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799008-20250405.htm)
-
----
-
-# De Bruyne to leave City at the end of the season
-
-![Kevin De Bruyne has won 14 major trophies since joining Man City in 2015. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798963_2_20250404213306.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Manchester City midfielder Kevin De Bruyne confirmed on Friday that he will leave the club at the end of the season.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm)
 
 ---

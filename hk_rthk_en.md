@@ -1,3 +1,51 @@
+# Magpies thrash Palace in Champions League race
+
+![A sixth consecutive victory in all competitions opens up a five-point lead for Newcastle over sixth-placed Chelsea, with a place in the top five good enough for Champions League qualification. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800743_1_20250417102747.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+Newcastle soared up to third in the Premier League with a 5-0 thrashing of Crystal Palace to close in on a return to the Champions League next season.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800743-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800743-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800743-20250417.htm)
+
+---
+
+# Carney makes French connection in key election debate
+
+![Canadian Prime Minister Mark Carney gestures towards Conservative Leader Pierre Poilievre during the debate in Montreal. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800744_1_20250417102800.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Canadian Prime Minister Mark Carney has avoided major errors in a French debate that tested his occasionally shaky language skills as the election front-runner sought to parry attacks from his conservative opponent.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800744-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800744-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800744-20250417.htm)
+
+---
+
 # Local stocks open flat
 
 ![Hong Kong stocks opened largely unchanged. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800737_1_20250417093514.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1387,53 +1435,5 @@ President Xi Jinping has described his state visit to Vietnam as "fruitful albei
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800485-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800485-20250415.htm)
-
----
-
-# HK stocks edge up on Trump hint of compromise on autos
-
-![The Hang Seng Index edged up 0.23 percent to close at 21,466.27. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800481_1_20250415165226.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-Equities mostly rose on Tuesday as some stability returned to markets after last week's rollercoaster ride, with auto firms boosted by US President Donald Trump's possible compromise over steep tariffs on the sector.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800481-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800481-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800481-20250415.htm)
-
----
-
-# Singapore PM calls May 3 election in tariffs test
-
-![The general election, to be held on May 3, will be a key test for Prime Minister Lawrence Wong. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800466_1_20250415153003.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Singaporeans vote on May 3 in an election that will test Prime Minister Lawrence Wong's leadership, as the wealthy city-state faces a turbulent global economy upended by US tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800466-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800466-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800466-20250415.htm)
 
 ---

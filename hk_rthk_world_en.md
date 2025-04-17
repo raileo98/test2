@@ -1,3 +1,27 @@
+# Carney makes French connection in key election debate
+
+![Canadian Prime Minister Mark Carney gestures towards Conservative Leader Pierre Poilievre during the debate in Montreal. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800744_1_20250417102800.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Canadian Prime Minister Mark Carney has avoided major errors in a French debate that tested his occasionally shaky language skills as the election front-runner sought to parry attacks from his conservative opponent.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800744-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800744-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800744-20250417.htm)
+
+---
+
 # Webb spots strongest 'hints' of life on distant planet
 
 ![A handout artist's impression of exoplanet, K2-18b, 124 light years from Earth. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800722_1_20250417080159.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ Britain's defence minister on Thursday urged his counterparts from around 30 cou
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799871-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799871-20250411.htm)
-
----
-
-# Tourists, pilot killed in NY helicopter crash
-
-![The chopper's landing skids were seen protruding from the river beside a tunnel vent. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799865_1_20250411073022.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Six people, including three children, were killed after a sightseeing helicopter crashed into the Hudson River in New York on Thursday, sparking a major water rescue operation, authorities said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799865-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799865-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799865-20250411.htm)
 
 ---
