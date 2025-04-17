@@ -248,24 +248,40 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
     global total_requests, cache_hits, verCount11, verCount20, verCount30
     total_requests += 1
     while True:
-        session.quic_cache_layer.add_domain(urllib.parse.urlparse(url).netloc)
-        response = await asyncio.to_thread(session.request, method, url, timeout=timeout)
-        
-        if response.from_cache:
-            cache_hits += 1
-        
-        if not response.from_cache and response.raw.version:
-            if response.raw.version == 10:  # fix later
-                verCount11 += 1  # fix later
-            if response.raw.version == 11:
-                verCount11 += 1
-            elif response.raw.version == 20:
-                verCount20 += 1
-            elif response.raw.version == 30:
-                verCount30 += 1
-        
-        return response
+        try:
+            session.quic_cache_layer.add_domain(urllib.parse.urlparse(url).netloc)
+            response = await asyncio.to_thread(session.request, method, url, timeout=timeout)
+            
+            if response.from_cache:
+                cache_hits += 1
+            
+            if not response.from_cache and response.raw.version:
+                if response.raw.version == 10: # fix later
+                    verCount11 += 1 # fix later
+                if response.raw.version == 11:
+                    verCount11 += 1
+                elif response.raw.version == 20:
+                    verCount20 += 1
+                elif response.raw.version == 30:
+                    verCount30 += 1
+            
+            return response
 
+        # except OverwhelmedTraffic as e:
+            # print('error: OverwhelmedTraffic')
+            # continue
+        
+        except Exception as e:
+            # if str(e).strip() == 'Cannot select a disposable connection to ease the charge':
+            if str(e).strip().startswith('Cannot select a disposable connection to ease the charge') or str(e).strip().startswith('Cannot memorize traffic indicator upon unknown connection'):
+                # print('error: Cannot select a disposable connection to ease the charge, aka OverwhelmedTraffic(?)')
+                print(f"請求 {url} 出錯: {e}，嘗試重試...")
+                
+                continue
+                
+            else:
+                print(f"請求 {url} 出錯: {e}，嘗試重試...")
+        
         if not mustFetch:
             break
 
