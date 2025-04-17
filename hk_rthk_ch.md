@@ -1,3 +1,170 @@
+# 日本3月出口按年增長3.9%　低過預期
+
+![日本3月出口按年增長3.9%，進口增長2%，兩者都低過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800723_1_20250417081304.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+日本財務省公布的數據顯示，日本出口連續6個月增長，3月出口按年增長3.9%，進口增長2%，兩者增幅都低過市場預期。上月貿易順差5441億日圓，多過預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800723-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800723-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800723-20250417.htm)
+
+---
+
+# 黎巴嫩稱被以色列軍隊發動無人機襲擊造成2死1傷
+
+  
+
+黎巴嫩衛生部表示，以色列軍隊於當地時間星期三，對黎巴嫩南部發動無人機襲擊，造成2人死亡，1人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800726-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800726-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800726-20250417.htm)
+
+---
+
+# 日股初段上升
+
+![日經平均指數較早時報34084點，升163點，升幅0.48%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800724_1_20250417081440.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+日本股市在開市初段上升，日經平均指數較早時報34084點，升163點，升幅0.48%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800724-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800724-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800724-20250417.htm)
+
+---
+
+# 韓股初段向上
+
+![首爾綜合指數較早時報2457點，升9點，升幅0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800725_1_20250417081614.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+南韓股市在開市初段上升，首爾綜合指數較早時報2457點，升9點，升幅0.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800725-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800725-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800725-20250417.htm)
+
+---
+
+# 鮑威爾：可等待形勢更明朗　才考慮是否調整政策立場
+
+![鮑威爾表示，聯儲局可能面臨物價上升、經濟增長疲弱的嚴峻形勢，但目前正處於有利地位，可以等待形勢進一步明朗化，再考慮是否調整政策立場。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800720_1_20250417080030.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國聯儲局主席鮑威爾表示，當局可能面臨關稅推高通脹，而經濟增長和潛在就業可能轉弱的嚴峻形勢，但他強調，目前正處於有利地位，可以等待形勢進一步明朗化，再考慮是否調整政策立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800720-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800720-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800720-20250417.htm)
+
+---
+
+# 美國2月整體資本淨流入2847億美元　中國增持美債
+
+![美國財政部數據顯示，中國的美債持有量由1月的7608億美元，增至7843億美元，為去年1月以來最高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800717_1_20250417073934.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+美國財政部公布，美國2月整體資本淨流入2847億美元，1月修正後為淨流出466億美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800717-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800717-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800717-20250417.htm)
+
+---
+
+# 英超紐卡素5:0大勝水晶宮
+
+![紐卡素五球大勝水晶宮聯賽升上第三位。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800721_1_20250417080038.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+英格蘭超級足球聯賽，紐卡素5:0大勝水晶宮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800721-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800721-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800721-20250417.htm)
+
+---
+
 # 歐聯阿仙奴與國際米蘭分別晉級四強
 
 ![阿仙奴晉級歐聯四強。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800715_1_20250417073500.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -1267,173 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800644-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800644-20250416.htm)
-
----
-
-# 白宮稱中國輸美商品面臨達245%關稅　中方：不願打但絕不怕打
-
-![林劍重申，關稅戰、貿易戰沒有贏家，中方不願打，但也絕對不怕打。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800641_1_20250416163525.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-美國白宮表示，由於中國進行報復式措施，進口到美國的貨品面臨245%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800641-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800641-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800641-20250416.htm)
-
----
-
-# 英國3月通脹率放緩至2.6%
-
-![英國3月通脹按年升2.6%，較2月放緩0.2個百分點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800631_1_20250416145942.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-英國3月通脹按年升2.6%，較2月放緩0.2個百分點，略低於市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800631-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800631-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800631-20250416.htm)
-
----
-
-# 林健鋒：香港應主動「行多步」　深度融入國家發展大局
-
-![林健鋒認為預算案是全速發展、改革創新、招商引才、投資未來。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800639_1_20250416163407.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-立法會二讀辯論本年度財政預算案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800639-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800639-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800639-20250416.htm)
-
----
-
-# 星展與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款
-
-![星展香港與恒地簽訂50億元可持續發展掛鈎貸款及社會責任貸款。（公司提供）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800637_1_20250416152749.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-星展香港與恒基地產本月簽訂總值50億元雙邊多期可持續發展掛鈎貸款及社會責任貸款，支持恒地業務發展需求，推動集團可持續發展及社會責任相關項目。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800637-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800637-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800637-20250416.htm)
-
----
-
-# 國防部：抹黑中國摘不掉美國「黑客帝國」的帽子
-
-![張曉剛說，抹黑中國摘不掉美國「黑客帝國」的帽子。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800638_1_20250416153042.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-在北京，國防部新聞發言人張曉剛說，抹黑中國摘不掉美國「黑客帝國」的帽子。中方要求美方停止賊喊捉賊，停止對包括中國在內的世界各國網絡攻擊，以負責任的言行還人類一個清朗安全的網絡空間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800638-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800638-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800638-20250416.htm)
-
----
-
-# 勞工處：詳細審視申訴專員公署調查報告　積極跟進建議
-
-![勞工處表示，已按報告建議展開多項跟進工作。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800636_1_20250416153715.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-​申訴專員公署就政府監管建造業職安健發表主動調查報告，發現「合資格人士」未有妥善檢查裝置或機械，貿然簽署指定表格確認安全，甚至根本未檢查，就預先一次過簽多張表格。勞工處回應表示，正詳細審視及研究報告的內容，並積極跟進建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800636-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800636-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800636-20250416.htm)
-
----
-
-# 消息：違例泊車罰款擬增至400元　超速等罰款增加約五成
-
-![消息指，政府計劃將私家車停車收費錶，由每節2元上調至每節4元。（運輸及物流局社交網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800635_1_20250416153615.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-新一份財政預算案提出檢討交通違例事項的定額罰款。消息指，政府計劃提高違例泊車的定額罰款金額，由320元加至400元。另外，超速、切雙白線等交通違規事項的罰款額，初步計劃增加約五成；又計劃將私家車停車收費錶，由每節2元上調至每節4元。政府將於下星期五在立法會交通事務委員會會議討論有關建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800635-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800635-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800635-20250416.htm)
 
 ---

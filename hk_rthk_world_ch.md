@@ -1,3 +1,26 @@
+# 黎巴嫩稱被以色列軍隊發動無人機襲擊造成2死1傷
+
+  
+
+黎巴嫩衛生部表示，以色列軍隊於當地時間星期三，對黎巴嫩南部發動無人機襲擊，造成2人死亡，1人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800726-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800726-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800726-20250417.htm)
+
+---
+
 # 以軍稱加沙約三成地區被劃為以軍控制下的安全區
 
 ![在汗尤尼斯，巴勒斯坦民眾在以軍空襲行動後視察損毀情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800708_1_20250417061243.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm)
-
----
-
-# 聯合國報告：美國貿易政策或對最脆弱經濟體造成重創
-
-![報告指出，「對等關稅」措施可能對發展中經濟體和最不發達經濟體造成嚴重打擊。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800404_1_20250415100848.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-聯合國貿易和發展會議發表報告，表示美國近期推出的貿易政策正在改變全球貿易格局，並可能對最脆弱經濟體造成重創。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800404-20250415.htm)
 
 ---

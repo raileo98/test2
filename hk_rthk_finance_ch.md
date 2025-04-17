@@ -1,3 +1,123 @@
+# 日本3月出口按年增長3.9%　低過預期
+
+![日本3月出口按年增長3.9%，進口增長2%，兩者都低過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800723_1_20250417081304.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+日本財務省公布的數據顯示，日本出口連續6個月增長，3月出口按年增長3.9%，進口增長2%，兩者增幅都低過市場預期。上月貿易順差5441億日圓，多過預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800723-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800723-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800723-20250417.htm)
+
+---
+
+# 日股初段上升
+
+![日經平均指數較早時報34084點，升163點，升幅0.48%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800724_1_20250417081440.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+日本股市在開市初段上升，日經平均指數較早時報34084點，升163點，升幅0.48%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800724-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800724-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800724-20250417.htm)
+
+---
+
+# 韓股初段向上
+
+![首爾綜合指數較早時報2457點，升9點，升幅0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800725_1_20250417081614.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+南韓股市在開市初段上升，首爾綜合指數較早時報2457點，升9點，升幅0.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800725-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800725-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800725-20250417.htm)
+
+---
+
+# 鮑威爾：可等待形勢更明朗　才考慮是否調整政策立場
+
+![鮑威爾表示，聯儲局可能面臨物價上升、經濟增長疲弱的嚴峻形勢，但目前正處於有利地位，可以等待形勢進一步明朗化，再考慮是否調整政策立場。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800720_1_20250417080030.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+美國聯儲局主席鮑威爾表示，當局可能面臨關稅推高通脹，而經濟增長和潛在就業可能轉弱的嚴峻形勢，但他強調，目前正處於有利地位，可以等待形勢進一步明朗化，再考慮是否調整政策立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800720-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800720-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800720-20250417.htm)
+
+---
+
+# 美國2月整體資本淨流入2847億美元　中國增持美債
+
+![美國財政部數據顯示，中國的美債持有量由1月的7608億美元，增至7843億美元，為去年1月以來最高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800717_1_20250417073934.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+美國財政部公布，美國2月整體資本淨流入2847億美元，1月修正後為淨流出466億美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800717-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800717-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800717-20250417.htm)
+
+---
+
 # 港股美國預託證券與本港收市比較個別發展
 
 ![滙控ADR較本港收市升逾1%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800712_1_20250417065108.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1314,125 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800572-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800572-20250416.htm)
-
----
-
-# 人民幣兌美元中間價跌近40點子
-
-![人民幣中間價報7.2133兌1美元，較上日中間價下跌37點子。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800568_1_20250416130920.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-人民幣中間價報7.2133兌1美元，較上日中間價下跌37點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800568-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800568-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800568-20250416.htm)
-
----
-
-# 港股競價時段跌149點
-
-![港股競價時段跌149點。(港台圖片)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800569_1_20250416092333.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-港股競價時段跌149點，恒指報21316點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800569-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800569-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800569-20250416.htm)
-
----
-
-# 台股開市後下跌
-
-![台灣加權指數較早時報19602點，跌255點，跌幅1.29%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800567_1_20250416091216.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-台灣股市下跌，加權指數較早時報19602點，跌255點，跌幅1.29%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800567-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800567-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800567-20250416.htm)
-
----
-
-# 丘應樺：香港經濟需要尋求新出路　可作為平台協助企業「走出去」
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800566_1_20250416090908.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-商務及經濟發展局局長丘應樺表示，在地緣政治及關稅限制下，自由貿易已受很大衝擊，很多內地企業已將生產線設於國外，但仍有很多中小型企業未必有門路，香港作為國家一個窗口，可以作為一個平台協助這些企業「走出去」，除了可以協助國家「雙循環」，亦能為香港經濟提供發展空間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800566-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800566-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800566-20250416.htm)
-
----
-
-# 日本2月核心機械訂單按月升4.3%　遠高過預期
-
-![日本2月核心機械訂單按月增長4.3%，增幅遠高過市場預期的0.8%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800559_1_20250416082718.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-日本政府公布，2月核心機械訂單按月增長4.3%，增幅遠高過市場預期的0.8%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800559-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800559-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800559-20250416.htm)
 
 ---

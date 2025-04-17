@@ -1,3 +1,27 @@
+# Webb spots strongest 'hints' of life on distant planet
+
+![A handout artist's impression of exoplanet, K2-18b, 124 light years from Earth. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800722_1_20250417080159.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+Astronomers announced on Thursday that they had detected the most promising "hints" of potential life on a planet beyond our solar system, though other scientists expressed scepticism.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800722-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800722-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800722-20250417.htm)
+
+---
+
 # Trump cites 'big progress' in tariff talks with Japan
 
 ![Tokyo sent its Economic Revitalisation Minister Ryosei Akazawa to kickstart the talks. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800719_1_20250417075713.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1411,29 +1435,5 @@ Six people, including three children, were killed after a sightseeing helicopter
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799865-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799865-20250411.htm)
-
----
-
-# Democrats want insider probe over Trump's flip-flop
-
-![Donald Trump is said to have posted a few minutes after Wall Street opened that 'IT'S TIME TO BUY', hours before he announced a 90-day suspension of additional tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799813_1_20250410183656.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-Several American senators have called for an investigation into whether US President Donald Trump engaged in insider trading or market manipulation by encouraging people to buy stocks just before his dramatic reversal on global tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799813-20250410.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799813-20250410.htm](https://news.rthk.hk/rthk/en/component/k2/1799813-20250410.htm)
 
 ---
