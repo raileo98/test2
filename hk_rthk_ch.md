@@ -1,3 +1,27 @@
+# 滬深股市半日收市靠穩
+
+![內地股市半日靠穩，上證綜合指數中午收市報3282點，升6點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800752_1_20250417114002.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+內地股市靠穩。地產、食品加工、旅遊酒店相關股份造好；航運、貴金屬及汽車整車股弱勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800752-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800752-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800752-20250417.htm)
+
+---
+
 # 習近平結束國事訪問馬來西亞赴柬埔寨　大馬總理等官員到機場送行
 
   
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800670-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800670-20250416.htm)
-
----
-
-# 陳揚帆辭任東方海外行政總裁　由張峰接任
-
-![陳揚帆辭任東方海外行政總裁，並由張峰接任，即日起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800669_1_20250416202228.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-東方海外公布，陳揚帆因工作崗位變動，辭任公司執行董事及行政總裁，並由張峰接任，即日起生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800669-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800669-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800669-20250416.htm)
 
 ---

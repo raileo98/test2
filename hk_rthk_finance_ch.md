@@ -1,3 +1,27 @@
+# 滬深股市半日收市靠穩
+
+![內地股市半日靠穩，上證綜合指數中午收市報3282點，升6點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800752_1_20250417114002.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+內地股市靠穩。地產、食品加工、旅遊酒店相關股份造好；航運、貴金屬及汽車整車股弱勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800752-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800752-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800752-20250417.htm)
+
+---
+
 # 日股半日升近1%
 
 ![日經平均指數報34212點，升291點，升幅0.86%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800750_1_20250417104856.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800594-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800594-20250416.htm)
-
----
-
-# 盛來運：近幾年積極構建貿易多元化　成效非常明顯
-
-![盛來運說近幾年內地積極開拓國際市場，積極構建貿易多元化，成效非常明顯。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800591_1_20250416113901.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-國家統計局副局長盛來運表示，中國出口市場多元化，有韌性，在國際上口碑也非常好，近幾年內地積極開拓國際市場，積極構建貿易多元化，成效非常明顯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800591-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800591-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800591-20250416.htm)
 
 ---
