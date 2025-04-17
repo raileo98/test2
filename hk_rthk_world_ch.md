@@ -1,3 +1,26 @@
+# 習近平於柬埔寨傳媒撰文籲強化更高標準戰略協作共同反對霸權主義
+
+  
+
+國家主席習近平今日會由馬來西亞，轉到柬埔寨繼續國事訪問行程。習近平在柬埔寨兩份報章及一個新聞網站發表署名文章，強調作為亞洲大家庭的重要成員，中柬兩國要順應歷史潮流，推動新時代中柬命運共同體建設行穩致遠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800731-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800731-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800731-20250417.htm)
+
+---
+
 # 黎巴嫩稱被以色列軍隊發動無人機襲擊造成2死1傷
 
   
@@ -215,7 +238,7 @@
 
 # 習近平：中馬將與地區國家衝破單邊主義和保護主義逆流
 
-![習近平說，兩國將與地區國家團結一致，共同抵禦地緣政治和陣營對抗暗流，衝破單邊主義和保護主義逆流。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800692_1_20250417012649.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800692_1_20250417090156.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 正在馬來西亞國事訪問的國家主席習近平，昨晚出席大馬總理安華的歡迎晚宴。
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800411-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800411-20250415.htm)
-
----
-
-# 《環看天下》：習近平訪東南亞三國　分析：中國力量區內不可或缺
-
-![中共中央總書記、國家主席習近平在越共中央駐地同越共中央總書記蘇林舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800406_1_20250415094222.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-中共中央總書記、國家主席習近平本星期展開對越南、馬來西亞、柬埔寨的國事訪問，是他今年首次出訪。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800406-20250415.htm)
 
 ---

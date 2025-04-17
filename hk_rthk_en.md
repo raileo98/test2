@@ -1,3 +1,27 @@
+# Temu and Shein plans to raise prices
+
+![Temu and Shein say they will be making “price adjustments” starting April 25. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800727_1_20250417083309.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+China-founded e-commerce sites Temu and Shein say they plan to raise prices for US customers starting next week, a ripple effect from US President Donald Trump's attempts to correct the trade imbalance between the world's two largest economies by imposing a sky-high tariff on goods shipped from China.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800727-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800727-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800727-20250417.htm)
+
+---
+
 # Webb spots strongest 'hints' of life on distant planet
 
 ![A handout artist's impression of exoplanet, K2-18b, 124 light years from Earth. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800722_1_20250417080159.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ Commissioner of Customs and Excise Chan Tsz-tat said on Tuesday free trade and g
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800442-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800442-20250415.htm)
-
----
-
-# HK can contribute more to the nation: Zheng Yanxiong
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800434_1_20250415120405.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-The director of the central government's liaison office Zheng Yanxiong said on Tuesday that Hong Kong should push for greater development and contribute more to the nation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800434-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800434-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800434-20250415.htm)
 
 ---

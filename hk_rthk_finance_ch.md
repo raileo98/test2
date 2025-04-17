@@ -1,3 +1,51 @@
+# 台股初段下跌
+
+![台灣加權指數較早時報19316點，跌151點，跌幅0.78%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800732_1_20250417090553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+台灣股市在開市初段下跌，加權指數較早時報19316點，跌151點，跌幅0.78%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800732-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800732-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800732-20250417.htm)
+
+---
+
+# 卓悅以1供3基準供股　集資淨額最多約5200萬元
+
+![卓悅以1供3基準供股，集資最多1.07億元，集資淨額預計最多約5200萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800730_1_20250417085150.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
+  
+
+卓悅公布供股計劃，每1股供3股，將發行最多逾13.4億股，供股價每股0.08元，較上日收市價折讓約26%，集資最多1.07億元，集資淨額預計最多約5200萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800730-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800730-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800730-20250417.htm)
+
+---
+
 # 日本3月出口按年增長3.9%　低過預期
 
 ![日本3月出口按年增長3.9%，進口增長2%，兩者都低過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800723_1_20250417081304.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800571-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800571-20250416.htm)
-
----
-
-# 葉劉淑儀：夏寶龍講話發放重要訊息　提醒企業家不可違背國家利益
-
-![葉劉淑儀表示，看不到商業利益與國家利益有衝突，香港的最大貿易投資夥伴也是內地。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800574_1_20250416101418.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-中央港澳辦、國務院港澳辦主任夏寶龍昨日在全民國家安全教育日透過視像發表主旨講話，提到新中國成立之初，商人莊世平不懼港英當局施壓，毅然升起全香港第一面五星紅旗；抗美援朝時期，另一名港商霍英東曾組織船隊突破美西方的封鎖，向祖國運送大量急需緊缺的戰略物資等事蹟。行政會議召集人、新民黨主席葉劉淑儀認為，夏寶龍講話發放很多重要訊息，並以莊世平及霍英東例子來提醒企業家，要顧全國家利益，不可違背國家利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800574-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800574-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800574-20250416.htm)
-
----
-
-# 許正宇：LME核准首批香港倉儲體現市場需求及香港吸引力
-
-![許正宇預計日後工業企業和製造商在LME買入期貨後可在香港提取銅、鋁及鎳等基礎金屬。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800572_1_20250416130744.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-港交所旗下倫敦金屬交易所（LME）宣布，已核准首批4家位於香港的倉儲設施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800572-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800572-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800572-20250416.htm)
 
 ---

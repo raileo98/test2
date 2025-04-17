@@ -1,3 +1,74 @@
+# 台股初段下跌
+
+![台灣加權指數較早時報19316點，跌151點，跌幅0.78%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800732_1_20250417090553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+台灣股市在開市初段下跌，加權指數較早時報19316點，跌151點，跌幅0.78%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800732-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800732-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800732-20250417.htm)
+
+---
+
+# 習近平於柬埔寨傳媒撰文籲強化更高標準戰略協作共同反對霸權主義
+
+  
+
+國家主席習近平今日會由馬來西亞，轉到柬埔寨繼續國事訪問行程。習近平在柬埔寨兩份報章及一個新聞網站發表署名文章，強調作為亞洲大家庭的重要成員，中柬兩國要順應歷史潮流，推動新時代中柬命運共同體建設行穩致遠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800731-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800731-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800731-20250417.htm)
+
+---
+
+# 卓悅以1供3基準供股　集資淨額最多約5200萬元
+
+![卓悅以1供3基準供股，集資最多1.07億元，集資淨額預計最多約5200萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800730_1_20250417085150.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
+  
+
+卓悅公布供股計劃，每1股供3股，將發行最多逾13.4億股，供股價每股0.08元，較上日收市價折讓約26%，集資最多1.07億元，集資淨額預計最多約5200萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800730-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800730-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800730-20250417.htm)
+
+---
+
 # 日本3月出口按年增長3.9%　低過預期
 
 ![日本3月出口按年增長3.9%，進口增長2%，兩者都低過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800723_1_20250417081304.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -551,7 +622,7 @@
 
 # 習近平：中馬將與地區國家衝破單邊主義和保護主義逆流
 
-![習近平說，兩國將與地區國家團結一致，共同抵禦地緣政治和陣營對抗暗流，衝破單邊主義和保護主義逆流。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800692_1_20250417012649.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800692_1_20250417090156.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
 
 正在馬來西亞國事訪問的國家主席習近平，昨晚出席大馬總理安華的歡迎晚宴。
@@ -647,7 +718,7 @@
 
 # 網購騙案增近三成不少與大型活動門票有關　有事主被騙近百萬元
 
-![警方說，去年演唱會門票相關最大宗損失個案，涉及被騙近100萬港元。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800686_1_20250417001739.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800686_1_20250417001739.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 警方去年錄得33903宗科技罪案，比前年輕微下跌0.6%；損失金額逾51億港元，亦比前年減少6.7%。不過，當中的網上購物騙案錄得11559宗，比前年增加近三成，當中不少與演唱會等大型活動門票有關，佔整體網購騙案逾15%，涉款接近1800萬元。
@@ -1362,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800649-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800649-20250416.htm)
-
----
-
-# 金價突破3300美元　創新高
-
-![現貨金創新高，突破每盎司3300美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800643_1_20250416162714.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-市況不明朗，資金繼續流入金市避險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800643-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800643-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800643-20250416.htm)
-
----
-
-# 恒指收市跌409點　科指受壓低收近4%
-
-![恒指收市報21056點，跌409點，跌幅1.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800642_1_20250416161935.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-港股結束多日升勢，恒指一度跌近600點，低見20868點，其後上海股市反彈並轉升收市，港股跟隨顯著反彈，最終21000點失而復得，收市報21056點，跌409點，跌幅1.91%，成交額約2200億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800642-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800642-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800642-20250416.htm)
-
----
-
-# 海關檢獲電腦配件及集成電路板等走私貨物　市值逾7000萬元
-
-![海關相信由於內地對電子貨物需求殷切，不法分子因此嘗試走私貨物到內地。（孔令輝攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800644_2_20250416163618.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-一個報稱載有陶瓷工藝品打算經海運至內地的貨櫃，被海關發現藏有大量未列艙單貨物，包括電腦配件、集成電路板及光碟機等，市值逾7000萬元，若成功走私到內地，估計可逃稅約700萬元。案件仍在調查，海關不排除有人被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800644-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800644-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800644-20250416.htm)
 
 ---

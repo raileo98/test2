@@ -1,3 +1,27 @@
+# Temu and Shein plans to raise prices
+
+![Temu and Shein say they will be making “price adjustments” starting April 25. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800727_1_20250417083309.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+China-founded e-commerce sites Temu and Shein say they plan to raise prices for US customers starting next week, a ripple effect from US President Donald Trump's attempts to correct the trade imbalance between the world's two largest economies by imposing a sky-high tariff on goods shipped from China.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800727-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800727-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800727-20250417.htm)
+
+---
+
 # China and Malaysia to work together on trade
 
 ![President Xi Jinping is in Malaysia as part of a three-nation Southeast Asian trip. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800666_1_20250416191212.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
@@ -1411,29 +1435,5 @@ China said on Saturday "the market has spoken" in rejecting US President Donald 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm)
-
----
-
-# China to impose tariffs of 34pc on all US goods
-
-![The authorities in Beijing say the countermeasure will be effective from April 10. Photo: Xinhua](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1798960_1_20250404190851.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-China on Friday announced the imposition of tariffs of 34 percent on all goods from the United States, as a countermeasure to the sweeping tariffs imposed by the Trump administration.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm)
 
 ---
