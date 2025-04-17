@@ -1,3 +1,26 @@
+# 習近平出席柬埔寨歡迎儀式　書面講話稱冀深化更高水平政治互信
+
+  
+
+國家主席習近平乘坐專機抵達金邊，應柬埔寨國王西哈莫尼邀請，國事訪問當地。專機抵達金邊國際機場時，西哈莫尼及人民黨主席、參議院主席洪森熱情迎接，習近平出席西哈莫尼舉行的歡迎儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800767-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800767-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800767-20250417.htm)
+
+---
+
 # 有的士業界指加罰款合理但盼加幅低些　有議員稱加幅相對溫和
 
   
@@ -162,7 +185,7 @@
 
 ---
 
-# 房委會商界合作旗下商場約50間商舖支持青年創業　首7個月免租
+# 房委會商界合作旗下商場約50間商舖支持青年創業
 
   
 
@@ -1404,29 +1427,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800681-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800681-20250416.htm)
-
----
-
-# 劉國勳促提高殘酷對待及疏忽照顧動物罰則　檢討動物進入食肆法例
-
-![劉國勳建議將最高罰款20萬港元及監禁3年，增至例如100萬元及7年。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800679_1_20250416215308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-民建聯新界北立法會議員劉國勳說，本港殘酷對待動物舉報個案接連上升，促請政府盡快修例，提高殘酷對待及疏忽照顧動物的罰則，並檢討動物進入食肆的相關法例。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800679-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800679-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800679-20250416.htm)
 
 ---

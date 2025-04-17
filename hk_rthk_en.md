@@ -29,7 +29,7 @@ President Xi Jinping has arrived in Phnom Penh for a state visit to Cambodia.
 
 Speaking on
 [**RTHK's Hong Kong Today programme**](https://news.rthk.hk/rthk/en/news-programmes/this-episode.htm?cmsid=77)
-, RTHK's San Francisco correspondent Mark Niu said the tarrifs were having unforeseen knock-on effects across America and in the case of California, it was making reconstruction efforts, after January's devastating wildfires in Los Angeles, more difficult.
+, RTHK's San Francisco correspondent Mark Niu said the tariffs imposed by US President Donald Trump on other countries were having unforeseen knock-on effects across America and in the case of California, it was making reconstruction efforts, after January's devastating wildfires in Los Angeles, more difficult.
 
   
 
