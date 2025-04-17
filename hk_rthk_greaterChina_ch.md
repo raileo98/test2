@@ -46,6 +46,7 @@
 
 # 習近平抵達金邊　對柬埔寨展開國事訪問
 
+![習近平抵達金邊，對柬埔寨展開國事訪問。（央視截圖）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800757_1_20250417132831.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 國家主席習近平抵達金邊，對柬埔寨展開國事訪問。
@@ -69,6 +70,7 @@
 
 # 習近平結束國事訪問馬來西亞赴柬埔寨　大馬總理等官員到機場送行
 
+![習近平結束對馬來西亞國事訪問，離開吉隆坡時。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800749_1_20250417132931.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 國家主席習近平結束對馬來西亞國事訪問，前往柬埔寨繼續訪問行程。
