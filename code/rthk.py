@@ -25,9 +25,14 @@ from lxml import html as lxmlhtml
 from lxml.html.clean import Cleaner
 from feedgen.feed import FeedGenerator
 from urllib.parse import urlparse
-from requests_cache import CachedResponse
+# from requests_cache import CachedResponse
+from requests_cache import CachedSession, RedisCache
+from valkey import Valkey
 
 setattr(CachedResponse, "lazy", False) # https://github.com/jawah/niquests/issues/241
+print( niquests.packages.urllib3.util.ssl_.IS_FIPS )
+print( urllib3.util.ssl_.IS_FIPS )
+print( urllib3_future.util.ssl_.IS_FIPS )
 
 # ------------------------------
 # 初始設定：檢查環境並顯示提示
@@ -52,6 +57,9 @@ class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
 
 poolConn = 100
 poolSize = 10000
+# retries = niquests.adapters.Retry(total=2, backoff_factor=1)
+
+backend = RedisCache(connection=Valkey())
 
 # 建立網路請求的 Session，包含緩存和 QUIC 支援
 session = CachedSession(
@@ -59,17 +67,20 @@ session = CachedSession(
     resolver="doh://mozilla.cloudflare-dns.com/dns-query",  # 使用 DoH 解析 DNS
     pool_connections=poolConn,  # 連線池設定
     pool_maxsize=poolSize,
-    backend='redis',  # 緩存後端使用 Redis
+    # backend='redis',  # 緩存後端使用 Redis
+    backend=backend,
     happy_eyeballs=True,  # 加快連線速度
     stale_while_revalidate=True,
     always_revalidate=True,
+    # retries=retries,
+    retries=niquests.RetryConfiguration(total=2, backoff_factor=1),
 )
 
 # 設定重試機制：最多重試 2 次，每次間隔時間增加
-retries = niquests.adapters.Retry(total=2, backoff_factor=1)
-adapter = niquests.adapters.HTTPAdapter(max_retries=retries, pool_connections=poolConn, pool_maxsize=poolSize)
-session.mount("https://", adapter=adapter)
-session.mount("http://", adapter=adapter)
+# retries = niquests.adapters.Retry(total=2, backoff_factor=1)
+# adapter = niquests.adapters.HTTPAdapter(max_retries=retries, pool_connections=poolConn, pool_maxsize=poolSize)
+# session.mount("https://", adapter=adapter)
+# session.mount("http://", adapter=adapter)
 session.trust_env = False  # 不使用系統代理
 session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 
