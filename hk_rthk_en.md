@@ -24,7 +24,7 @@ Secretary for Home and Youth Affairs Alice Mak said on Thursday a series of semi
 
 # Xi arrives in Phnom Penh in push for shared community
 
-![President Xi Jinping and King Norodom Sihamoni, left, walks past honor guards upon arrival at Phnom Penh International Airport. Photo: Agence Kampuchea Presse/AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800746_2_20250417135955.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
+![President Xi Jinping and King Norodom Sihamoni, left, walk past honor guards upon arrival at Phnom Penh International Airport. Photo: Agence Kampuchea Presse/AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800746_2_20250417135955.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
   
 
 President Xi Jinping arrived in Cambodia on Thursday for a two-day state visit that serves as an opportunity to further strengthen already robust relations.
