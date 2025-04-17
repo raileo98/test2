@@ -1,3 +1,27 @@
+# Xi arrives in Phnom Penh in push for shared community
+
+![President Xi Jinping waves ahead of his departure for Cambodia at Kuala Lumpur International Airport in Sepang, Malaysia. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800746_1_20250417121707.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+President Xi Jinping has arrived in Phnom Penh on Thursday for a state visit to Cambodia
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800746-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800746-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800746-20250417.htm)
+
+---
+
 # Temu, Shein plan to raise prices for US customers
 
 ![Temu and Shein say they will be making “price adjustments” starting April 25. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800727_1_20250417083309.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1435,5 @@ China on Monday accused the US of unilateralism, protectionism and economic bull
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799275-20250407.htm](https://news.rthk.hk/rthk/en/component/k2/1799275-20250407.htm)
-
----
-
-# China says US must 'stop using tariffs as a weapon'
-
-![Foreign Ministry spokesperson Guo Jiakun wrote on Facebook that "the market has spoken," after Wall Street headed south two days in a row. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799060_1_20250405203120.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-China said on Saturday "the market has spoken" in rejecting US President Donald Trump's tariffs, and called on Washington for "equal-footed consultation" after global markets plunged in reaction to the trade levies that drew Chinese retaliation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1799060-20250405.htm)
 
 ---

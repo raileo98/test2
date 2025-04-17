@@ -1,3 +1,53 @@
+# Xi arrives in Phnom Penh in push for shared community
+
+![President Xi Jinping waves ahead of his departure for Cambodia at Kuala Lumpur International Airport in Sepang, Malaysia. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800746_1_20250417121707.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+President Xi Jinping has arrived in Phnom Penh on Thursday for a state visit to Cambodia
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800746-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800746-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800746-20250417.htm)
+
+---
+
+# 'Tariffs hampering LA reconstruction efforts'
+
+![Californian officials said the tariffs were already making it harder to import materials needed to rebuild after the LA fires. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800759_1_20250417121504.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+Speaking on
+[**RTHK's Hong Kong Today programme**](https://news.rthk.hk/rthk/en/news-programmes/this-episode.htm?cmsid=77)
+, RTHK's San Francisco correspondent Mark Niu said the tarrifs were having unforeseen knock-on effects across America and in the case of California, it was making reconstruction efforts, after January's devastating wildfires in Los Angeles, more difficult.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800759-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800759-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800759-20250417.htm)
+
+---
+
 # Trump steps up attacks on Harvard
 
 ![Donald Trump is pushing for Harvard University to be stripped of its tax-exempt status. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800751_1_20250417112151.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -1387,53 +1437,5 @@ Hong Kong is continuing to see fallout from the trade war started by US Presiden
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799912-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799912-20250411.htm)
-
----
-
-# Xi to visit Vietnam, Malaysia and Cambodia next week
-
-![President Xi Jinping with late Vietnam Communist Party general secretary Nguyen Phu Trong at the presidential palace in Hanoi in December 2023. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799903_1_20250411103929.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-President Xi Jinping will visit Vietnam, Malaysia and Cambodia next week, the Foreign Ministry said on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799903-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799903-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799903-20250411.htm)
-
----
-
-# More than 200 dead as rescue efforts end at nightclub
-
-![Authorities have called off the search for bodies as the death toll stands at 221. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799885_1_20250411091644.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
-  
-
-Recovery efforts wrapped up in the capital of the Dominican Republic after a roof collapse at a nightclub during a concert killed at least 221 people, authorities said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799885-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799885-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799885-20250411.htm)
 
 ---

@@ -120,7 +120,7 @@ Tariffs are likely to push up prices and could put the US Federal Reserve in the
 
 # WTO chief says 'very concerned' tariffs will cut trade
 
-![WTO chief Ngozi Okonjo-Iweala says the body must "streamline its decision-making." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800694_1_20250417021537.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800694_1_20250417021537.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 Global trade is expected to plummet this year in the wake of US President Donald Trump's tariff offensive, fuelling uncertainty that threatens "severe negative consequences" for the world, the World Trade Organisation warned on Wednesday.

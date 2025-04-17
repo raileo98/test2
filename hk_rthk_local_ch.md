@@ -1,5 +1,29 @@
+# 房委會旗下商場約50間商舖支持青年創業　首7個月免租
+
+  
+
+房委會去年推出「共築・創業家」計劃，在旗下商場向青年免租金提供商舖，讓他們試行創業計劃，計劃經營期開始超過半年，當局宣布將推出2.0計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800755-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800755-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800755-20250417.htm)
+
+---
+
 # 職工會修訂條例草案刊憲　加強規管職工會以維護國家安全
 
+![勞工處發言人說，修訂建議將加強職工會登記局局長監督及管理職工會的法定權力，更有效履行在《香港國安法》及《維護國家安全條例》下維護國家安全的責任。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800754_1_20250417120809.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 《2025年職工會（修訂）條例草案》刊憲，政府表示，今次修例旨在加強規管職工會以維護國家安全，並完善職工會的規管制度，從而促進職工會的健康發展。
@@ -718,30 +742,6 @@
 
 ---
 
-# 立法會恢復二讀辯論預算案撥款條例草案
-
-![立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800609_1_20250416131345.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
-
----
-
 # 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800603_1_20250416131219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -763,6 +763,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
+
+---
+
+# 立法會恢復二讀辯論預算案撥款條例草案
+
+![立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800609_1_20250416131345.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
 
 ---
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800489-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800489-20250415.htm)
-
----
-
-# 香港倉儲設施獲LME核准　許正宇：推動本港大宗商品市場發展
-
-![許正宇稱短短數月已有首批倉儲設施申請獲批，見證政府和業界在發掘新增長點的努力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800486_2_20250415172115.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-港交所旗下倫敦金屬交易所（LME）宣布，已核准首批4家位於香港的倉儲設施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800486-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800486-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800486-20250415.htm)
 
 ---

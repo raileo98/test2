@@ -1,3 +1,26 @@
+# 習近平抵達金邊　對柬埔寨展開國事訪問
+
+  
+
+國家主席習近平抵達金邊，對柬埔寨展開國事訪問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800757-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800757-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800757-20250417.htm)
+
+---
+
 # 習近平結束國事訪問馬來西亞赴柬埔寨　大馬總理等官員到機場送行
 
   
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800472-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800472-20250415.htm)
-
----
-
-# 習近平晤梁強：願加強戰略溝通　譜寫社會主義國家聯合自強新篇章
-
-![習近平在河內主席府與梁強會面。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800467_1_20250415153303.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-中共中央總書記、國家主席習近平結束對越南的國事訪問。他較早時在河內主席府，與越南國家主席梁強會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800467-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800467-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800467-20250415.htm)
 
 ---

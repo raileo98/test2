@@ -1,5 +1,52 @@
+# 習近平抵達金邊　對柬埔寨展開國事訪問
+
+  
+
+國家主席習近平抵達金邊，對柬埔寨展開國事訪問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800757-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800757-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800757-20250417.htm)
+
+---
+
+# 房委會旗下商場約50間商舖支持青年創業　首7個月免租
+
+  
+
+房委會去年推出「共築・創業家」計劃，在旗下商場向青年免租金提供商舖，讓他們試行創業計劃，計劃經營期開始超過半年，當局宣布將推出2.0計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800755-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800755-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800755-20250417.htm)
+
+---
+
 # 職工會修訂條例草案刊憲　加強規管職工會以維護國家安全
 
+![勞工處發言人說，修訂建議將加強職工會登記局局長監督及管理職工會的法定權力，更有效履行在《香港國安法》及《維護國家安全條例》下維護國家安全的責任。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800754_1_20250417120809.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
 《2025年職工會（修訂）條例草案》刊憲，政府表示，今次修例旨在加強規管職工會以維護國家安全，並完善職工會的規管制度，從而促進職工會的健康發展。
@@ -1384,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800673-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800673-20250416.htm)
-
----
-
-# 神舟二十號將於近日擇機發射
-
-![執行神舟二十號載人飛行任務的火箭船箭組合體，已轉運至發射區。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800672_1_20250416204843.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-神舟二十號載人飛船將於近日擇機實施發射，船箭組合體已轉運至發射區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800672-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800672-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800672-20250416.htm)
-
----
-
-# 商務部：美方將關稅工具化武器化已到毫無理性地步　中方不予理會
-
-![商務部稱，倘若美方執意繼續實質性侵害中方權益，中方將堅決反制，奉陪到底。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800671_1_20250416204255.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-美國白宮網站發布關於關鍵礦產和衍生品232調查的有關事實清單，提到因為中國針對美國對等關稅採取報復措施，現在中國出口到美國的商品面臨最高達245%的關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800671-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800671-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800671-20250416.htm)
 
 ---

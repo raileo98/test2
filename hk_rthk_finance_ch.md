@@ -1,3 +1,26 @@
+# 房委會旗下商場約50間商舖支持青年創業　首7個月免租
+
+  
+
+房委會去年推出「共築・創業家」計劃，在旗下商場向青年免租金提供商舖，讓他們試行創業計劃，計劃經營期開始超過半年，當局宣布將推出2.0計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800755-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800755-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800755-20250417.htm)
+
+---
+
 # 滬深股市半日收市靠穩
 
 ![內地股市半日靠穩，上證綜合指數中午收市報3282點，升6點。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800752_1_20250417114002.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800596-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800596-20250416.htm)
-
----
-
-# 恒指跌幅擴大至逾500點　失守21000點
-
-![恒生指數跌幅逐步擴大至逾500點，失守21000點關口，較早時報20994點，跌471點，跌幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800594_1_20250416112359.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-港股連升6個交易日後回吐，恒生指數低開約150點後，跌幅逐步擴大至逾500點，失守21000點關口，較早時報20994點，跌471點，跌幅2.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800594-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800594-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800594-20250416.htm)
 
 ---

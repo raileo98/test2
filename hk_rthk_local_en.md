@@ -1,3 +1,27 @@
+# Looming hike in illegal parking fine 'relatively mild'
+
+![Chan Siu-hung says the fine for illegal parking fine in Hong Kong is 10 times less than in places like Singapore or London. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800753_1_20250417115203.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+A lawmaker said on Thursday the possible increment in illegal parking fines is "relatively mild".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800753-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800753-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800753-20250417.htm)
+
+---
+
 # Police warn of surge in online shopping fraud
 
 ![Police say there were 11,559 cases involving online shopping fraud last year - a more than 29 percent year-on-year increase. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800706_1_20250417055512.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1413,29 +1437,5 @@ Financial Secretary Paul Chan on Friday said Hong Kong is building a comprehensi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799904-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799904-20250411.htm)
-
----
-
-# Diversity key to success amid tariff war: lawmaker
-
-![Lawmaker Kennedy Wong says having a diversified set of trading partners will be increasingly important for Hong Kong firms. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799911_1_20250411115034.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-Lawmaker Kennedy Wong on Friday said the world had entered a new period of uncertainty and disruption because of the US tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799911-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799911-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799911-20250411.htm)
 
 ---

@@ -1,3 +1,77 @@
+# Xi arrives in Phnom Penh in push for shared community
+
+![President Xi Jinping waves ahead of his departure for Cambodia at Kuala Lumpur International Airport in Sepang, Malaysia. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800746_1_20250417121707.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+President Xi Jinping has arrived in Phnom Penh on Thursday for a state visit to Cambodia
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800746-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800746-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800746-20250417.htm)
+
+---
+
+# 'Tariffs hampering LA reconstruction efforts'
+
+![Californian officials said the tariffs were already making it harder to import materials needed to rebuild after the LA fires. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800759_1_20250417121504.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+Speaking on
+[**RTHK's Hong Kong Today programme**](https://news.rthk.hk/rthk/en/news-programmes/this-episode.htm?cmsid=77)
+, RTHK's San Francisco correspondent Mark Niu said the tarrifs were having unforeseen knock-on effects across America and in the case of California, it was making reconstruction efforts, after January's devastating wildfires in Los Angeles, more difficult.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800759-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800759-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800759-20250417.htm)
+
+---
+
+# Looming hike in illegal parking fine 'relatively mild'
+
+![Chan Siu-hung says the fine for illegal parking fine in Hong Kong is 10 times less than in places like Singapore or London. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800753_1_20250417115203.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+A lawmaker said on Thursday the possible increment in illegal parking fines is "relatively mild".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800753-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800753-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800753-20250417.htm)
+
+---
+
 # Trump steps up attacks on Harvard
 
 ![Donald Trump is pushing for Harvard University to be stripped of its tax-exempt status. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800751_1_20250417112151.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
@@ -360,7 +434,7 @@ Tariffs are likely to push up prices and could put the US Federal Reserve in the
 
 # WTO chief says 'very concerned' tariffs will cut trade
 
-![WTO chief Ngozi Okonjo-Iweala says the body must "streamline its decision-making." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800694_1_20250417021537.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800694_1_20250417021537.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 Global trade is expected to plummet this year in the wake of US President Donald Trump's tariff offensive, fuelling uncertainty that threatens "severe negative consequences" for the world, the World Trade Organisation warned on Wednesday.
@@ -1363,77 +1437,5 @@ An association representing global mobile operators said on Tuesday Hong Kong is
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800495-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800495-20250415.htm)
-
----
-
-# Beijing lays down law on EV battery safety
-
-![Safety will be enhanced for owners and users of electric vehicles with the new Chinese rules on battery safety. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800496_1_20250415181647.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-An updated mandatory national standard on the safety of electric vehicle batteries in China is set to take effect on July 1 next year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800496-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800496-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800496-20250415.htm)
-
----
-
-# Canton Fair passes 30,000 landmark in a first
-
-![A woman interacts with one of the many exhibits in the special zone for service robots at the Canton Fair in Guangzhou. Photo: Imaginechina via AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800494_1_20250415180113.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=65)
-  
-
-The 137th edition of the China Import and Export Fair, also known as Canton Fair, kicked off on Tuesday, with the number of export exhibitors exceeding 30,000 for the first time.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800494-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800494-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800494-20250415.htm)
-
----
-
-# HK 'must step up vigilance over soft confrontations'
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800484_1_20250415170110.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-Mainland and SAR scholars on Tuesday called on the Hong Kong government to ramp up its vigilance against the so-called "soft confrontations", saying external powers such as the United States could double down on its suppression efforts against China via "ideological wars".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800484-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800484-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800484-20250415.htm)
 
 ---
