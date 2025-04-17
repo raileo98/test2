@@ -26,7 +26,7 @@ from lxml.html.clean import Cleaner
 from feedgen.feed import FeedGenerator
 from urllib.parse import urlparse
 # from requests_cache import CachedResponse
-from requests_cache import CachedSession, RedisCache
+from requests_cache import CachedSession, RedisCache, CachedResponse
 from valkey import Valkey
 
 setattr(CachedResponse, "lazy", False) # https://github.com/jawah/niquests/issues/241
