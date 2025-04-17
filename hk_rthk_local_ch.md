@@ -1,3 +1,26 @@
+# 香港迪士尼樂園20周年期間限定活動　6月28日展開橫跨一年
+
+  
+
+香港迪士尼樂園宣布，慶祝開幕20周年的期間限定活動，將於6月28日正式展開，並橫跨一年，將包括周年限定城堡演出、樂園史上最大型巡遊表演、以及歷來最盛大夜間匯演。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800770-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800770-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800770-20250417.htm)
+
+---
+
 # 恒指午市初段升逾300點
 
 ![恒指較早時報21397點，升幅1.62%；科技指數升2.22%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800768_1_20250417130611.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800506-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800506-20250415.htm)
-
----
-
-# 梁君彥稱議員建議當局加強有關維護國家安全公眾教育及國際解說
-
-![梁君彥說，立法會秘書處發表最新一期專題資料，以「維護國家安全法律」為題。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800502_1_20250415191123.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-立法會主席梁君彥說，立法會秘書處發表最新一期專題資料，以「維護國家安全法律」為題，扼要闡述在「一國兩制」下，香港有效落實的《維護國家安全條例》和《香港國安法》的重點、如何妥善保障人權和確保市民不會誤墮法網，以及對香港繁榮穩定發揮的作用，並綜述立法會相關工作及議員提出的建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800502-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800502-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800502-20250415.htm)
 
 ---

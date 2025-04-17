@@ -1,3 +1,26 @@
+# 香港迪士尼樂園20周年期間限定活動　6月28日展開橫跨一年
+
+  
+
+香港迪士尼樂園宣布，慶祝開幕20周年的期間限定活動，將於6月28日正式展開，並橫跨一年，將包括周年限定城堡演出、樂園史上最大型巡遊表演、以及歷來最盛大夜間匯演。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800770-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800770-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800770-20250417.htm)
+
+---
+
 # 北韓譴責美國派戰略轟炸機參與美韓聯合訓練　指升級軍事緊張局勢
 
 ![美國派B-1B戰略轟炸機參與挑釁性的美韓聯合空中訓練。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800769_1_20250417132101.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800685-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800685-20250416.htm)
-
----
-
-# 美國2月企業庫存按月增加0.2%
-
-![美國2月企業庫存按月增加0.2%，符合市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800682_1_20250416221208.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=30)
-  
-
-美國2月企業庫存按月增加0.2%，符合市場預期，銷售上升1.2%；數據按年上升2.1%及3.6%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800682-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800682-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800682-20250416.htm)
 
 ---
