@@ -32,7 +32,7 @@ from valkey import Valkey
 setattr(CachedResponse, "lazy", False) # https://github.com/jawah/niquests/issues/241
 print( niquests.packages.urllib3.util.ssl_.IS_FIPS )
 # print( urllib3.util.ssl_.IS_FIPS ) # NameError: name 'urllib3' is not defined. Did you mean: 'urllib'?
-print( urllib3_future.util.ssl_.IS_FIPS )
+# print( urllib3_future.util.ssl_.IS_FIPS ) # NameError: name 'urllib3_future' is not defined
 
 # ------------------------------
 # 初始設定：檢查環境並顯示提示
