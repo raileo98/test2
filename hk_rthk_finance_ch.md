@@ -1,4 +1,76 @@
-# 房委會旗下商場約50間商舖支持青年創業　首7個月免租
+# 東亞料資金持續流入日圓、瑞郎及黃金避險
+
+![黃燕娥估計，資金或會持續流入日圓、瑞士法郎和黃金在內的資產避險。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800761_1_20250417121945.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
+  
+
+資金持續流入非美貨幣及黃金避險，美匯指數繼續處於100以下。美元兌日圓跌穿142關口，創大約7個月低位；市場預期歐洲央行今晚將減息0.25厘，但歐元兌美元仍然在3年高位附近。現貨金創新高，每盎司曾高見3357美元，美國國債孳息率向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800761-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800761-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800761-20250417.htm)
+
+---
+
+# 南韓央行下月評估政策利率是否需要在年底前低於2.25厘
+
+![南韓央行總裁李昌鏞表示，將在下月評估政策利率是否需要在年底前低於2.25厘。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800756_1_20250417122443.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+南韓央行總裁李昌鏞表示，將在下月評估政策利率是否需要在年底前低於2.25厘，又提到下次決定利率時將考慮與美國的息差情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800756-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800756-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800756-20250417.htm)
+
+---
+
+# 恒指半日升341點　科指升逾2%　內房股造好
+
+![恒生指數中午收市報21398點，升341點，升幅1.6%，半日主板成交額近1173億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800758_1_20250417121229.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+復活節長假期前，港股跟隨內地股市上升，恒生指數升幅逐步擴大至逾360點，高見21417點，中午收市報21398點，升341點，升幅1.6%，半日主板成交額近1173億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800758-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800758-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800758-20250417.htm)
+
+---
+
+# 房委會商界合作旗下商場約50間商舖支持青年創業　首7個月免租
 
   
 
@@ -1361,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm)
-
----
-
-# 恒指半日跌543點　失守21000點　科指跌逾4%
-
-![恒指中午收市報20922點，跌543點，跌幅2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800607_1_20250416121308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-港股連升6個交易日後回吐，失守21000點關口。恒生指數低開約150點後，跌幅逐步擴大至近590點，低見20878點，中午收市報20922點，跌543點，跌幅2.5%，半日主板成交額約1181億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800607-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800607-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800607-20250416.htm)
-
----
-
-# 盛來運：服務消費發展方興未艾　消費新動能持續釋放
-
-![國家統計局副局長盛來運表示，服務消費發展方興未艾，當前消費新動能持續釋放，新消費場景不斷創新和擴展，例如夜經濟等。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800600_1_20250416125357.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=45)
-  
-
-國家統計局副局長盛來運表示，中央高度重視擴大消費，在「兩新兩重」政策支持下，首季商品零售額增長4.6%，提振消費的政策亦帶動服務零售額增長5%，認為市場銷售正穩步回升和不斷好轉，消費品以舊換新政策效果明顯。他形容，服務消費發展方興未艾，當前消費新動能持續釋放，新消費場景不斷創新和擴展，例如夜經濟等，下一步要積極推動穩就業、減負擔等，提升居民消費能力，大力增加優質消費供應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800600-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800600-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800600-20250416.htm)
-
----
-
-# 滬指半日跌近1%　創業板指數跌約2.5%
-
-![上證綜合指數上午收市報3237點，跌幅0.92%。創業板指數跌約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800596_1_20250416113844.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-滬深股市跌幅逐步擴大，3大指數半日跌近1%至逾2%，種植業、汽車服務等股份下跌；旅遊及酒店、貴金屬、機場航運板塊上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800596-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800596-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800596-20250416.htm)
 
 ---

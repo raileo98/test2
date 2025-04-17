@@ -1,3 +1,121 @@
+# 警方料涉門票騙案增加籲光顧官方渠道　盡量與網上賣家當面交收
+
+  
+
+本港網上購物騙案有顯著上升的趨勢，去年錄得逾萬宗個案，較前一年上升近三成，不少涉及演唱會等演出門票。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800764-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800764-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800764-20250417.htm)
+
+---
+
+# 何永賢指兩年半收回約8千公屋單位　稱可於旅遊片區用組裝合成件
+
+  
+
+今屆政府推出打擊濫用公屋「組合拳」後，房屋局局長何永賢指出，約兩年半間，已收回約8000個公屋單位，以金錢計算涉及約80億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800763-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800763-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800763-20250417.htm)
+
+---
+
+# 東亞料資金持續流入日圓、瑞郎及黃金避險
+
+![黃燕娥估計，資金或會持續流入日圓、瑞士法郎和黃金在內的資產避險。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800761_1_20250417121945.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
+  
+
+資金持續流入非美貨幣及黃金避險，美匯指數繼續處於100以下。美元兌日圓跌穿142關口，創大約7個月低位；市場預期歐洲央行今晚將減息0.25厘，但歐元兌美元仍然在3年高位附近。現貨金創新高，每盎司曾高見3357美元，美國國債孳息率向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800761-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800761-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800761-20250417.htm)
+
+---
+
+# 南韓央行下月評估政策利率是否需要在年底前低於2.25厘
+
+![南韓央行總裁李昌鏞表示，將在下月評估政策利率是否需要在年底前低於2.25厘。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800756_1_20250417122443.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+南韓央行總裁李昌鏞表示，將在下月評估政策利率是否需要在年底前低於2.25厘，又提到下次決定利率時將考慮與美國的息差情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800756-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800756-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800756-20250417.htm)
+
+---
+
+# 恒指半日升341點　科指升逾2%　內房股造好
+
+![恒生指數中午收市報21398點，升341點，升幅1.6%，半日主板成交額近1173億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800758_1_20250417121229.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+復活節長假期前，港股跟隨內地股市上升，恒生指數升幅逐步擴大至逾360點，高見21417點，中午收市報21398點，升341點，升幅1.6%，半日主板成交額近1173億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800758-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800758-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800758-20250417.htm)
+
+---
+
 # 習近平抵達金邊　對柬埔寨展開國事訪問
 
   
@@ -21,7 +139,7 @@
 
 ---
 
-# 房委會旗下商場約50間商舖支持青年創業　首7個月免租
+# 房委會商界合作旗下商場約50間商舖支持青年創業　首7個月免租
 
   
 
@@ -1311,125 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800678-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800678-20250416.htm)
-
----
-
-# 習近平與安華會談　強調團結合作抵制「脫鉤斷鏈」和濫徵關稅
-
-![習近平在馬來西亞與安華會談。 (路透社)](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800677_1_20250416213756.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-國家主席習近平繼續在馬來西亞的國事訪問，與總理安華會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800677-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800677-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800677-20250416.htm)
-
----
-
-# 美國3月工業生產按月下跌0.3%
-
-![美國3月工業生產按月下跌0.3%，市場原本估計下跌0.2%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800676_1_20250416212815.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-美國3月工業生產按月下跌0.3%，跌幅多於市場預期的0.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800676-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800676-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800676-20250416.htm)
-
----
-
-# 國台辦：「台獨打手、幫兇舉報專欄」已收逾3千封舉報郵件
-
-![朱鳳蓮說，「台獨打手、幫兇迫害台灣同胞惡劣行徑舉報專欄」已收到超過3000封舉報郵件。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800675_1_20250416212313.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-在北京，國台辦發言人朱鳳蓮在例行記者會表示，「台獨打手、幫兇迫害台灣同胞惡劣行徑舉報專欄」，已收到超過3000封舉報郵件，充分反映兩岸民眾對「台獨」打手、幫兇為非作歹的深惡痛絕。大陸將堅持以事實為依據、以法律為準繩，在核查相關舉報信息後，依法追責、依法嚴懲這些打手、幫兇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800675-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800675-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800675-20250416.htm)
-
----
-
-# 中區警區警務人員執勤期間遺失警方手機
-
-![中區警區警務人員執勤期間遺失警方手機](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800674_1_20250416211947.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-一名警務人員執勤期間遺失一部警察手提電話，案件列作「遺失政府財物」，由中區警區跟進調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800674-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800674-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800674-20250416.htm)
-
----
-
-# 美國3月零售銷售按月增加1.4%
-
-![美國3月零售銷售按月增加1.4%，略好過預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800673_1_20250416205659.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-美國3月零售銷售按月增加1.4%，略好過預期，因為消費者在關稅政策實施前買車，帶動汽車購買量大幅增加。2月數據為升0.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800673-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800673-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800673-20250416.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 警方料涉門票騙案增加籲光顧官方渠道　盡量與網上賣家當面交收
+
+  
+
+本港網上購物騙案有顯著上升的趨勢，去年錄得逾萬宗個案，較前一年上升近三成，不少涉及演唱會等演出門票。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800764-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800764-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800764-20250417.htm)
+
+---
+
 # 何永賢指兩年半收回約8千公屋單位　稱可於旅遊片區用組裝合成件
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800497-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800497-20250415.htm)
-
----
-
-# 夏寶龍：特區維護國安機構可進一步築牢堅固屏障
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800490_1_20250415182255.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-中央港澳辦、國務院港澳辦主任夏寶龍認為，香港的安全形勢仍然嚴峻複雜，形容是暗流湧動；他相信，行政長官、特區政府、特區國安委等特區維護國家安全機構，可以進一步築牢維護國安的堅固牢障。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800490-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800490-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800490-20250415.htm)
 
 ---
