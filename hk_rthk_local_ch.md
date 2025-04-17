@@ -1,4 +1,51 @@
-# 房委會旗下商場約50間商舖支持青年創業　首7個月免租
+# 何永賢指兩年半收回約8千公屋單位　稱可於旅遊片區用組裝合成件
+
+  
+
+今屆政府推出打擊濫用公屋「組合拳」後，房屋局局長何永賢指出，約兩年半間，已收回約8000個公屋單位，以金錢計算涉及約80億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800763-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800763-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800763-20250417.htm)
+
+---
+
+# 恒指半日升341點　科指升逾2%　內房股造好
+
+![恒生指數中午收市報21398點，升341點，升幅1.6%，半日主板成交額近1173億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800758_1_20250417121229.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+復活節長假期前，港股跟隨內地股市上升，恒生指數升幅逐步擴大至逾360點，高見21417點，中午收市報21398點，升341點，升幅1.6%，半日主板成交額近1173億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800758-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800758-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800758-20250417.htm)
+
+---
+
+# 房委會商界合作旗下商場約50間商舖支持青年創業　首7個月免租
 
   
 
@@ -742,30 +789,6 @@
 
 ---
 
-# 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800603_1_20250416131219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
-
----
-
 # 立法會恢復二讀辯論預算案撥款條例草案
 
 ![立法會恢復二讀辯論關於本年度財政預算案的撥款條例草案。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800609_1_20250416131345.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
@@ -787,6 +810,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800609-20250416.htm)
+
+---
+
+# 香港郵政停收寄往美國內載貨品平郵　有市民稱感到不方便
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800603_1_20250416131219.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+香港郵政宣布，即日起暫停接收寄往美國內載貨品的平郵郵件，如果市民之前曾已投寄又未能付運往美國，香港郵政會安排退件及退款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800603-20250416.htm)
 
 ---
 
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800490-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800490-20250415.htm)
-
----
-
-# 保安局推國安漫畫新書　向青少年介紹何謂國家安全
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800491_1_20250415181900.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-全民國家安全教育日，保安局推出國家安全漫畫新書《安仔與熊仔》並舉行新書發布會，透過自行創作的卡通人物「安仔」及「保安熊仔」，向幼稚園、小學及初中生，介紹何謂國家安全。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800491-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800491-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800491-20250415.htm)
-
----
-
-# 李家超稱常識比賽加深學生對相關法律及總體國家安全觀認識
-
-![李家超表示，未來幾個月將舉辦一系列活動，提升市民對國安的重視。（政府新聞處）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800489_1_20250415174413.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-全港學界國家安全常識挑戰賽舉行頒獎禮，行政長官李家超視像致辭表示，今屆比賽有610間學校的超過12萬6千名中小學生參加，較去年增加超過兩成，亦首次為非華語中學生增設英文組別，以加深對國安相關法律和總體國家安全觀的認識。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800489-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800489-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800489-20250415.htm)
 
 ---

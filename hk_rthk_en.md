@@ -3,7 +3,7 @@
 ![President Xi Jinping waves ahead of his departure for Cambodia at Kuala Lumpur International Airport in Sepang, Malaysia. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800746_1_20250417121707.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
-President Xi Jinping has arrived in Phnom Penh on Thursday for a state visit to Cambodia
+President Xi Jinping has arrived in Phnom Penh for a state visit to Cambodia.
 
   
 
@@ -50,10 +50,10 @@ Speaking on
 
 # Looming hike in illegal parking fine 'relatively mild'
 
-![Chan Siu-hung says the fine for illegal parking fine in Hong Kong is 10 times less than in places like Singapore or London. Photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800753_1_20250417115203.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800753_1_20250417115203.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
-A lawmaker said on Thursday the possible increment in illegal parking fines is "relatively mild".
+A lawmaker said on Thursday a possible increment in illegal parking fines is "relatively mild".
 
   
 
