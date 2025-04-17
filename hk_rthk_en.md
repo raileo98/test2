@@ -75,7 +75,7 @@ The Hang Seng Index rose 9 points, or 0.05 percent, to open at 21,066 points on 
 ![Inter Milan advanced to the semifinals of the Champions League after a 2-2 draw with Bayern Munich, winning 4-3 on aggregate. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800729_1_20250417084526.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
-Inter Milan's treble dream is alive and kicking after reaching the semi-finals of the Champions League on Wednesday thanks to a 2-2 draw with Bayern Munich, as the Serie A giants won a pulsating last-eight tie 4-3 on aggregate.
+Inter Milan's treble dream is alive and kicking after reaching the semi-finals of the European Champions League on Wednesday thanks to a 2-2 draw with Bayern Munich, as the Serie A giants won a pulsating last-eight tie 4-3 on aggregate.
 
   
 
@@ -96,10 +96,10 @@ Inter Milan's treble dream is alive and kicking after reaching the semi-finals o
 
 # Arsenal come of age with Madrid masterclass
 
-![Arsenal's Bukayo Saka scores their first goal. Action Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800728_1_20250417084126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+![Arsenal's Bukayo Saka scores their first goal. Photo: Action Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800728_1_20250417084126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
-Arsenal dethroned the kings of the Champions League with ease as a 5-1 aggregate rout of Real Madrid sent the Gunners into the semi-finals for the first time since 2009.
+Arsenal dethroned the kings of the European Champions League with ease as a 5-1 aggregate rout of Real Madrid sent the Gunners into the semi-finals for the first time since 2009.
 
   
 
@@ -166,12 +166,12 @@ Astronomers announced on Thursday that they had detected the most promising "hin
 
 ---
 
-# Trump cites 'big progress' in tariff talks with Japan
+# Japan fails to get quick breakthrough in tariff talks
 
-![Tokyo sent its Economic Revitalisation Minister Ryosei Akazawa to kickstart the talks. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800719_1_20250417075713.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800719_1_20250417075713.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
-US President Donald Trump said there was "big progress" when he made the surprise move on Wednesday to negotiate directly with Japanese officials about the barrage of tariffs he has imposed on global imports.
+Japan has failed to secure any immediate relief from US tariffs, with Prime Minister Shigeru Ishiba saying after his envoy held talks in Washington that future negotiations "won't be easy".
 
   
 

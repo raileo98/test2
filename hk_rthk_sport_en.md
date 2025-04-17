@@ -27,7 +27,7 @@ Newcastle soared up to third in the Premier League with a 5-0 thrashing of Cryst
 ![Inter Milan advanced to the semifinals of the Champions League after a 2-2 draw with Bayern Munich, winning 4-3 on aggregate. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800729_1_20250417084526.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
-Inter Milan's treble dream is alive and kicking after reaching the semi-finals of the Champions League on Wednesday thanks to a 2-2 draw with Bayern Munich, as the Serie A giants won a pulsating last-eight tie 4-3 on aggregate.
+Inter Milan's treble dream is alive and kicking after reaching the semi-finals of the European Champions League on Wednesday thanks to a 2-2 draw with Bayern Munich, as the Serie A giants won a pulsating last-eight tie 4-3 on aggregate.
 
   
 
@@ -48,10 +48,10 @@ Inter Milan's treble dream is alive and kicking after reaching the semi-finals o
 
 # Arsenal come of age with Madrid masterclass
 
-![Arsenal's Bukayo Saka scores their first goal. Action Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800728_1_20250417084126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+![Arsenal's Bukayo Saka scores their first goal. Photo: Action Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800728_1_20250417084126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
   
 
-Arsenal dethroned the kings of the Champions League with ease as a 5-1 aggregate rout of Real Madrid sent the Gunners into the semi-finals for the first time since 2009.
+Arsenal dethroned the kings of the European Champions League with ease as a 5-1 aggregate rout of Real Madrid sent the Gunners into the semi-finals for the first time since 2009.
 
   
 

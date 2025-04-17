@@ -46,12 +46,12 @@ Astronomers announced on Thursday that they had detected the most promising "hin
 
 ---
 
-# Trump cites 'big progress' in tariff talks with Japan
+# Japan fails to get quick breakthrough in tariff talks
 
-![Tokyo sent its Economic Revitalisation Minister Ryosei Akazawa to kickstart the talks. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800719_1_20250417075713.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800719_1_20250417075713.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
-US President Donald Trump said there was "big progress" when he made the surprise move on Wednesday to negotiate directly with Japanese officials about the barrage of tariffs he has imposed on global imports.
+Japan has failed to secure any immediate relief from US tariffs, with Prime Minister Shigeru Ishiba saying after his envoy held talks in Washington that future negotiations "won't be easy".
 
   
 
