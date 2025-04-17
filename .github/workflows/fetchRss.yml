@@ -344,8 +344,8 @@ jobs:
         counter=0
         while true; do
           counter=$((counter+1))
-          echo "8.5 - 嘗試查詢 redis 狀態次數: $counter"
-          if sudo systemctl status redis; then
+          echo "8.5 - 嘗試查詢 valkey 狀態次數: $counter"
+          if sudo systemctl status valkey; then
               break
           fi
           sleep 1
@@ -356,8 +356,8 @@ jobs:
         #counter=0
         #while true; do
           #counter=$((counter+1))
-          #echo "8.6 - 嘗試 enable redis  次數: $counter"
-          #if sudo systemctl enable redis; then
+          #echo "8.6 - 嘗試 enable valkey  次數: $counter"
+          #if sudo systemctl enable valkey; then
           #    break
           #fi
           #sleep 1
@@ -368,8 +368,8 @@ jobs:
         counter=0
         while true; do
           counter=$((counter+1))
-          echo "8.7 - 嘗試 start redis 次數: $counter"
-          if sudo systemctl start redis; then
+          echo "8.7 - 嘗試 start valkey 次數: $counter"
+          if sudo systemctl start valkey; then
               break
           fi
           sleep 1
@@ -380,8 +380,8 @@ jobs:
         counter=0
         while true; do
           counter=$((counter+1))
-          echo "8.8 - 嘗試再次查詢 redis 狀態次數: $counter"
-          if sudo systemctl status redis; then
+          echo "8.8 - 嘗試再次查詢 valkey 狀態次數: $counter"
+          if sudo systemctl status valkey; then
               break
           fi
           sleep 1
@@ -396,19 +396,19 @@ jobs:
         python3 code/rthk.py
         echo "9.2 - 完成執行 Python 腳本"
 
-    - name: Step 10 - Redis 狀態
+    - name: Step 10 - valkey 狀態
       run: |
-        echo "10.1 - 開始檢查 Redis 狀態"
+        echo "10.1 - 開始檢查 valkey 狀態"
         counter=0
         while true; do
           counter=$((counter+1))
-          echo "10.2 - 嘗試檢查 Redis 狀態次數: $counter"
-          if sudo systemctl status redis; then
+          echo "10.2 - 嘗試檢查 valkey 狀態次數: $counter"
+          if sudo systemctl status valkey; then
               break
           fi
           sleep 1
         done
-        echo "10.3 - 完成 Redis 狀態檢查"
+        echo "10.3 - 完成 valkey 狀態檢查"
      
     - name: Step 11 - 上傳 RSS 文件
       run: |
