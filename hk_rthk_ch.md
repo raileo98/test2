@@ -1,3 +1,26 @@
+# 有的士業界指加罰款合理但盼加幅低些　有議員稱加幅相對溫和
+
+  
+
+消息指，違例泊車罰款額由320元增至400元。立法會交通事務委員會主席陳紹雄表示，有關費用多年未調整，今次加幅相對溫和，新加坡、倫敦等地的收費是香港10倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800765-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800765-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800765-20250417.htm)
+
+---
+
 # 警方料涉門票騙案增加籲光顧官方渠道　盡量與網上賣家當面交收
 
   
@@ -1405,29 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800679-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800679-20250416.htm)
-
----
-
-# 道指初段跌近0.4%　納指跌逾1.6%
-
-![道瓊斯指數較早時報40220點，跌148點，跌幅0.37%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800678_1_20250416214922.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-美股初段下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800678-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800678-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800678-20250416.htm)
 
 ---
