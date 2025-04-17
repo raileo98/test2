@@ -1,3 +1,26 @@
+# 首季全國鐵路累計發送旅客逾10億按年增5.9%創歷史同期新商
+
+  
+
+今年第一季全國鐵路累計發送旅客10億7400萬人次，按年增長5.9%，創歷史同期新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800745-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800745-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800745-20250417.htm)
+
+---
+
 # 習近平抵金邊機場有歡迎儀式　書面講話稱冀深化更高水平政治互信
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800365-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800365-20250415.htm)
-
----
-
-# 習近平就深化中越命運共同體建設提出六點舉措
-
-![習近平與越共中央總書記蘇林舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800364_1_20250414234220.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-在越南國事訪問的中共中央總書記、國家主席習近平與越共中央總書記蘇林舉行會談，就深化中越命運共同體建設提出六點舉措，包括妥善處理海上問題，擴大海上合作，下決心啟動共同開發，推動盡快達成「南海行為準則」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800364-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800364-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800364-20250414.htm)
 
 ---

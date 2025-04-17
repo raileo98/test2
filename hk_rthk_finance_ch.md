@@ -1,3 +1,27 @@
+# 恒指午市初段升逾300點
+
+![恒指較早時報21397點，升幅1.62%；科技指數升2.22%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800768_1_20250417130611.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+港股午市初段繼續造好。恒生指數較早時報21397點，升340點，升幅1.62%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800768-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800768-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800768-20250417.htm)
+
+---
+
 # 東亞料資金持續流入日圓、瑞郎及黃金避險
 
 ![黃燕娥估計，資金或會持續流入日圓、瑞士法郎和黃金在內的資產避險。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800761_1_20250417121945.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800601-20250416.htm)
-
----
-
-# 內地首季增長5.4%　國家統計局稱經濟持續長期向好改變不了
-
-![內地首季經濟按年增長5.4%。（新華社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800598_1_20250416163726.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
-  
-
-內地首季經濟按年增長5.4%，好過預期，按季增長1.2%，多個經濟指標亦較預期好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800598-20250416.htm)
 
 ---

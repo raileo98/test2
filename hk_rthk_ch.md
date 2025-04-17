@@ -1,3 +1,50 @@
+# 首季全國鐵路累計發送旅客逾10億按年增5.9%創歷史同期新商
+
+  
+
+今年第一季全國鐵路累計發送旅客10億7400萬人次，按年增長5.9%，創歷史同期新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800745-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800745-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800745-20250417.htm)
+
+---
+
+# 恒指午市初段升逾300點
+
+![恒指較早時報21397點，升幅1.62%；科技指數升2.22%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800768_1_20250417130611.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+港股午市初段繼續造好。恒生指數較早時報21397點，升340點，升幅1.62%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800768-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800768-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800768-20250417.htm)
+
+---
+
 # 習近平抵金邊機場有歡迎儀式　書面講話稱冀深化更高水平政治互信
 
   
@@ -1379,53 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800680-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800680-20250416.htm)
-
----
-
-# 加拿大央行：若美國關稅引發全球貿易戰　加拿大陷深度經濟衰退
-
-![加拿大央行指，若美國關稅引發全球貿易戰，加拿大將陷入深度經濟衰退。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800683_1_20250416221718.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-加拿大央行公布的一份預測顯示，如果美國關稅引發全球貿易戰，加拿大的通脹率將攀升，並將陷入深度經濟衰退。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800683-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800683-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800683-20250416.htm)
-
----
-
-# 警方提醒市民慎防偽冒反詐騙協調中心及假冒金管局短訊
-
-![警方及金管局強調不會就個人財務事宜聯絡市民。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800681_1_20250416220455.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-警方及金管局提醒公眾，慎防偽冒警務處反詐騙協調中心及金管局發出的短訊。有關短訊聲稱協助市民取回被凍結的資產或被騙款項，要求市民聯絡偽冒的律師事務所，繼而要求市民提供銀行帳戶資料或轉帳至指定戶口。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800681-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800681-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800681-20250416.htm)
 
 ---

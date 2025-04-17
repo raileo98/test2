@@ -96,7 +96,7 @@ Wall Street stocks tumbled on Wednesday as the Federal Reserve chief warned of t
 
 # US Fed chair warns tariffs may force it to choose goal
 
-![Jerome Powell says the US Federal Reserve could find itself in a "challenging scenario in which our dual-mandate goals are in tension." Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800695_1_20250417024428.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800695_1_20250417024428.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
   
 
 Tariffs are likely to push up prices and could put the US Federal Reserve in the unenviable position of having to choose between tackling inflation and unemployment, the bank's chair said on Wednesday.

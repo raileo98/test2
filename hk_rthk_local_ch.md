@@ -1,3 +1,27 @@
+# 恒指午市初段升逾300點
+
+![恒指較早時報21397點，升幅1.62%；科技指數升2.22%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800768_1_20250417130611.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
+  
+
+港股午市初段繼續造好。恒生指數較早時報21397點，升340點，升幅1.62%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800768-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800768-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800768-20250417.htm)
+
+---
+
 # 有的士業界指加罰款合理但盼加幅低些　有議員稱加幅相對溫和
 
   
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800502-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800502-20250415.htm)
-
----
-
-# 李家超：關稅戰改變世界貿易秩序　當局正研究可產生的新機遇
-
-![李家超指出，世界百年未有的大變局加速演進，香港未來面對國家安全的風險會更風高浪急。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800501_1_20250415191052.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-在全民國家安全教育日開幕禮上，行政長官李家超指出，世界百年未有的大變局加速演進，香港未來面對國家安全的風險會更風高浪急。他批評美方採取所謂對等關稅做法荒謬，而關稅戰已改變世界貿易秩序，當局正研究新秩序可產生的新機遇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800501-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800501-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800501-20250415.htm)
 
 ---
