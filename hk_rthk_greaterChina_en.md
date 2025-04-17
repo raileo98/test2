@@ -1,9 +1,9 @@
-# Temu and Shein plans to raise prices
+# Temu, Shein plan to raise prices for US customers
 
 ![Temu and Shein say they will be making “price adjustments” starting April 25. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800727_1_20250417083309.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
-China-founded e-commerce sites Temu and Shein say they plan to raise prices for US customers starting next week, a ripple effect from US President Donald Trump's attempts to correct the trade imbalance between the world's two largest economies by imposing a sky-high tariff on goods shipped from China.
+E-commerce sites Temu and Shein said they plan to raise prices for US customers starting next week, a ripple effect from the tariffs imposed by US President Donald Trump on Chinese goods.
 
   
 

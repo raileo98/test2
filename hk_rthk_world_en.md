@@ -1,3 +1,27 @@
+# Trump steps up attacks on Harvard
+
+![Donald Trump is pushing for Harvard University to be stripped of its tax-exempt status. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800751_1_20250417112151.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+US President Donald Trump has called Harvard a "joke" and said it should lose its government research contracts after the top university refused demands that it accept outside political supervision.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800751-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800751-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800751-20250417.htm)
+
+---
+
 # Carney makes French connection in key election debate
 
 ![Canadian Prime Minister Mark Carney gestures towards Conservative Leader Pierre Poilievre during the debate in Montreal. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800744_1_20250417102800.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -75,7 +99,7 @@ Japan has failed to secure any immediate relief from US tariffs, with Prime Mini
 ![Governor Newsom's office says California could lose billions of dollars in revenue if Trump's tariff policies shrink international trade. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800716_1_20250417073913.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
-California is suing the federal government over Donald Trump's on-again-off-again tariffs, the governor and attorney general said on Wednesday, claiming the American president does not have the right to impose them.
+California is suing the federal government over Donald Trump's on-again-off-again tariffs, its governor and attorney general said on Wednesday, claiming the American president does not have the right to impose them.
 
   
 
@@ -1411,29 +1435,5 @@ Recovery efforts wrapped up in the capital of the Dominican Republic after a roo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799885-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799885-20250411.htm)
-
----
-
-# Ukraine coalition presses ahead with force planning
-
-![Britain's Defence Secretary John Healey and France's Defence Minister Sebastien Lecornu attend a meeting of the Coalition of the Willing, hosted by the United Kingdom and France at Nato headquarters in Brussels. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1799871_1_20250411080308.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Britain's defence minister on Thursday urged his counterparts from around 30 countries to press ahead with plans to deploy troops to Ukraine to police any future peace agreement with Russia, as questions remained over whether the United States would provide backup.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1799871-20250411.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1799871-20250411.htm](https://news.rthk.hk/rthk/en/component/k2/1799871-20250411.htm)
 
 ---

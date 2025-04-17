@@ -1,3 +1,27 @@
+# Trump steps up attacks on Harvard
+
+![Donald Trump is pushing for Harvard University to be stripped of its tax-exempt status. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800751_1_20250417112151.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+US President Donald Trump has called Harvard a "joke" and said it should lose its government research contracts after the top university refused demands that it accept outside political supervision.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800751-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800751-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800751-20250417.htm)
+
+---
+
 # Magpies thrash Palace in Champions League chase
 
 ![A sixth consecutive victory in all competitions opens up a five-point lead for Newcastle over sixth-placed Chelsea, with a place in the top five good enough for Champions League qualification. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800743_1_20250417102747.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
@@ -118,12 +142,12 @@ Arsenal dethroned the kings of the European Champions League with ease as a 5-1 
 
 ---
 
-# Temu and Shein plans to raise prices
+# Temu, Shein plan to raise prices for US customers
 
 ![Temu and Shein say they will be making “price adjustments” starting April 25. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800727_1_20250417083309.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
-China-founded e-commerce sites Temu and Shein say they plan to raise prices for US customers starting next week, a ripple effect from US President Donald Trump's attempts to correct the trade imbalance between the world's two largest economies by imposing a sky-high tariff on goods shipped from China.
+E-commerce sites Temu and Shein said they plan to raise prices for US customers starting next week, a ripple effect from the tariffs imposed by US President Donald Trump on Chinese goods.
 
   
 
@@ -219,7 +243,7 @@ Chip developer Advanced Micro Devices (AMD) on Wednesday said it expected new US
 ![Governor Newsom's office says California could lose billions of dollars in revenue if Trump's tariff policies shrink international trade. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800716_1_20250417073913.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
-California is suing the federal government over Donald Trump's on-again-off-again tariffs, the governor and attorney general said on Wednesday, claiming the American president does not have the right to impose them.
+California is suing the federal government over Donald Trump's on-again-off-again tariffs, its governor and attorney general said on Wednesday, claiming the American president does not have the right to impose them.
 
   
 
@@ -1411,29 +1435,5 @@ Mainland and SAR scholars on Tuesday called on the Hong Kong government to ramp 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800484-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800484-20250415.htm)
-
----
-
-# Visit to Vietnam fruitful albeit brief: Xi
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800485_2_20250415191049.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-President Xi Jinping has described his state visit to Vietnam as "fruitful albeit brief" as he wrapped up his two-day trip on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800485-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800485-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800485-20250415.htm)
 
 ---
