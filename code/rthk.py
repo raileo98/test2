@@ -61,6 +61,8 @@ session = CachedSession(
     pool_maxsize=poolSize,
     backend='redis',  # 緩存後端使用 Redis
     happy_eyeballs=True,  # 加快連線速度
+    stale_while_revalidate=True,
+    always_revalidate=True,
 )
 
 # 設定重試機制：最多重試 2 次，每次間隔時間增加
