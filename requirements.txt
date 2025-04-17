@@ -20,8 +20,8 @@ niquests[full]==3.14.0
 # niquests[full]==3.12.2
 # --- niquests end ---
 psutil==7.0.0
-# redis==5.2.1
-# redis[hiredis]==5.2.1
+redis==5.2.1
+redis[hiredis]==5.2.1
 valkey==6.1.0
 valkey[libvalkey]==6.1.0
 # idna==3.10
