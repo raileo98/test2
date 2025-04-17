@@ -1,3 +1,50 @@
+# 陳紹雄稱消息指「牛肉乾」加至400元「雖不中亦不遠矣」
+
+  
+
+消息指，政府計劃將俗稱「牛肉乾」的違例泊車定額罰款金額，由320元調高至400元。立法會交通事務委員會主席陳紹雄表示，委員會下星期將討論有關題目，政府很快會提交文件，形容坊間的消息「雖不中亦不遠矣」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800741-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800741-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800741-20250417.htm)
+
+---
+
+# 何永賢：當局約兩年半間已收回約8千公屋單位　涉約80億元
+
+![何永賢表示，加租後房委會每年減少15.5億元補貼，可用作維修保養及增建更多居屋。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800739_1_20250417101119.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+房屋局局長何永賢指出，今屆政府推出打擊濫用公屋「組合拳」後，截至今年2月底的約兩年半間，已收回約8000個公屋單位，以金錢計算涉及約80億元，對政府及輪候公屋人士也很重要。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800739-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800739-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800739-20250417.htm)
+
+---
+
 # 網購騙案增近三成不少與大型活動門票有關　有事主被騙近百萬元
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800686_1_20250417001739.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800479-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800479-20250415.htm)
-
----
-
-# 許正宇：香港已建立綠色創新生態系統　仍需更廣泛市場創新
-
-![許正宇稱香港已建立綠色創新生態系統但未來需要更廣泛市場創新，快將公布官方綠色金融科技地圖。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800476_1_20250415163608.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-財經事務及庫務局局長許正宇表示，亞太區內有多達10個碳交易市場，香港市場特點在於可以用雙櫃台交易，亦有完整產業鏈，認為香港已建立綠色創新生態系統，未來需要更廣泛市場創新。他提到，快將公布官方綠色金融科技地圖，讓不同市場了解香港最新綠色金融科技發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800476-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800476-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800476-20250415.htm)
-
----
-
-# 恒指升48點　成交縮至近1851億　新股映恩生物高收逾1倍
-
-![恒指收報21466點，升48點，升幅0.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800474_1_20250415161910.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=25)
-  
-
-恒指連升第6個交易日，但升幅收窄，大市整體成交額亦減少27%至近1851億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800474-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800474-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800474-20250415.htm)
 
 ---

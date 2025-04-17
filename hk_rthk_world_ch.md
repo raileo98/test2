@@ -1,5 +1,54 @@
-# 習近平於柬埔寨傳媒撰文籲強化更高標準戰略協作共同反對霸權主義
+# 《環看天下》：新加坡下月大選　執政人民行動黨支持度惹關注
 
+![新加坡定於5月3日舉行大選，將會產生97名國會民選議員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800740_1_20250417100741.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+新加坡下月3日舉行大選，將會產生97名民選議員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800740-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800740-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800740-20250417.htm)
+
+---
+
+# 外交部回應美方關稅稱已淪數字遊戲　指245%從何而來要問美方
+
+![外交部又於網頁上表示，關稅戰、貿易戰沒有贏家，中方不願打，但亦不怕打。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800738_1_20250417094305.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+在北京，外交部評論美國聲稱中國目前面臨最高達245%的關稅時指出，注意到有關報道，重申中方之前已經強調，美方對華輪番加徵畸高關稅，已經淪為數字遊戲，在經濟上無實際意義，只會更加暴露出美方將關稅工具化、武器化，搞霸凌脅迫的伎倆。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800738-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800738-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800738-20250417.htm)
+
+---
+
+# 習近平於柬埔寨傳媒發文　稱中柬要強化戰略協作共同反對霸權主義
+
+![習近平於柬埔寨傳媒發文　稱中柬要強化戰略協作共同反對霸權主義](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800731_1_20250417094927.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
   
 
 國家主席習近平今日會由馬來西亞，轉到柬埔寨繼續國事訪問行程。習近平在柬埔寨兩份報章及一個新聞網站發表署名文章，強調作為亞洲大家庭的重要成員，中柬兩國要順應歷史潮流，推動新時代中柬命運共同體建設行穩致遠。
@@ -236,7 +285,7 @@
 
 ---
 
-# 習近平：中馬將與地區國家衝破單邊主義和保護主義逆流
+# 習近平：中馬將與地區國家突破單邊主義和保護主義逆流
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800692_1_20250417090156.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
@@ -1384,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800444-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800444-20250415.htm)
-
----
-
-# 美國商務部對進口半導體及藥物展開國家安全調查
-
-![特朗普曾多次表示，計劃向藥物及半導體另設進口關稅。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800427_1_20250415113421.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-美國商務部對進口半導體及藥物展開國家安全調查。外界估計，調查是為向這兩類產品徵收關稅鋪路。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800427-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800427-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800427-20250415.htm)
-
----
-
-# 伊朗稱美國必須切實有效地解除對伊朗制裁
-
-![伊朗外交部發言人巴加埃說，美國必須切實有效地解除對伊朗的制裁。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800411_1_20250415103511.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-伊朗表示，美國必須切實有效地解除對伊朗的制裁，又形容美國一方面對伊朗施壓，一方面尋求同伊朗談判，行為矛盾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800411-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800411-20250415.htm](https://news.rthk.hk/rthk/ch/component/k2/1800411-20250415.htm)
 
 ---

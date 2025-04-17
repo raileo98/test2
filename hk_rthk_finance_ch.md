@@ -1,3 +1,99 @@
+# 人行開展2455億元人民幣逆回購操作
+
+![人民銀行公開市場開展2455億元人民幣7日期逆回購操作，單日淨投放1796億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800736_1_20250417093434.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+人民銀行公開市場開展2455億元人民幣7日期逆回購操作，利率維持1.5厘，對沖到期量後，單日淨投放1796億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800736-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800736-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800736-20250417.htm)
+
+---
+
+# 滬深股市初段偏軟
+
+![上證綜合指數較早時報3267點，跌8點，跌幅0.26%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800735_1_20250417093358.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+滬深股市初段偏軟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800735-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800735-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800735-20250417.htm)
+
+---
+
+# 人民幣兌美元中間價創逾1周高位
+
+![人民幣中間價報7.2085兌1美元，較上日中間價升48點子，創逾1星期高位。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800733_1_20250417092034.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+人民幣中間價報7.2085兌1美元，較上日中間價升48點子，創逾1星期高位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800733-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800733-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800733-20250417.htm)
+
+---
+
+# 恒指競價時段升9點
+
+![恒生指數競價時段報21066點，升9點，升幅0.05%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800734_1_20250417092421.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+港股在競價時段微升，恒生指數報21066點，升9點，升幅0.05%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800734-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800734-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800734-20250417.htm)
+
+---
+
 # 台股初段下跌
 
 ![台灣加權指數較早時報19316點，跌151點，跌幅0.78%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800732_1_20250417090553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -19,6 +115,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800732-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800732-20250417.htm)
+
+---
+
+# 習近平於柬埔寨傳媒發文　稱中柬要強化戰略協作共同反對霸權主義
+
+![習近平於柬埔寨傳媒發文　稱中柬要強化戰略協作共同反對霸權主義](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800731_1_20250417094927.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+國家主席習近平今日會由馬來西亞，轉到柬埔寨繼續國事訪問行程。習近平在柬埔寨兩份報章及一個新聞網站發表署名文章，強調作為亞洲大家庭的重要成員，中柬兩國要順應歷史潮流，推動新時代中柬命運共同體建設行穩致遠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800731-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800731-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800731-20250417.htm)
 
 ---
 
@@ -118,12 +238,12 @@
 
 ---
 
-# 鮑威爾：可等待形勢更明朗　才考慮是否調整政策立場
+# 鮑威爾：可等待形勢更明朗才考慮是否調整政策立場
 
-![鮑威爾表示，聯儲局可能面臨物價上升、經濟增長疲弱的嚴峻形勢，但目前正處於有利地位，可以等待形勢進一步明朗化，再考慮是否調整政策立場。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800720_1_20250417080030.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![鮑威爾表示，仍有空間可以等待形勢進一步明朗化，再考慮是否調整政策立場。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800720_1_20250417080030.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
-美國聯儲局主席鮑威爾表示，當局可能面臨關稅推高通脹，而經濟增長和潛在就業可能轉弱的嚴峻形勢，但他強調，目前正處於有利地位，可以等待形勢進一步明朗化，再考慮是否調整政策立場。
+美國聯儲局主席鮑威爾表示，可能面臨關稅推高通脹，而經濟增長和潛在就業可能轉弱的嚴峻形勢，但他強調，仍有空間可以等待形勢進一步明朗化，再考慮是否調整政策立場。
 
   
 
@@ -310,6 +430,30 @@
 
 ---
 
+# 中方就英鋼事件促英國政府切實保障中資企業合法正當權益
+
+![英國國會通過由政府接管中國敬業集團持有的英國鋼鐵公司。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800703_1_20250417053553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+英國國會通過由政府接管中國敬業集團持有的英國鋼鐵公司，中國駐英國使館發言人認為，英國個別政客的反華言論極其荒唐可笑，反映他們的傲慢、無知和扭曲心態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800703-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800703-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800703-20250417.htm)
+
+---
+
 # 歐股收市個別發展　半導體股下跌
 
 ![歐洲主要股市收市個別發展，半導體股下跌，其中ASML股價急跌逾5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800702_1_20250417052406.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -331,6 +475,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800702-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800702-20250417.htm)
+
+---
+
+# 習近平：中馬將與地區國家突破單邊主義和保護主義逆流
+
+![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800692_1_20250417090156.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+正在馬來西亞國事訪問的國家主席習近平，昨晚出席大馬總理安華的歡迎晚宴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800692-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800692-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800692-20250417.htm)
 
 ---
 
@@ -1266,173 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800584-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800584-20250416.htm)
-
----
-
-# 內地3月全國城鎮調查失業率降至5.2%
-
-![內地3月全國城鎮調查失業率自兩年高位回落，降至5.2%，較2月下跌0.2個百分點。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800583_1_20250416102854.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-國家統計局公布，首季全國城鎮調查失業率平均值5.3%，與首2個月相同。單計3月降至5.2%，自兩年高位回落，較2月下跌0.2個百分點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800583-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800583-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800583-20250416.htm)
-
----
-
-# 內地首季房地產開發投資按年跌9.9%
-
-![內地今年首季全國房地產開發投資按年跌9.9%，較首2個月擴大0.1個百分點。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800582_1_20250416102043.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-國家統計局公布，今年首季全國房地產開發投資按年跌9.9%，較首2個月擴大0.1個百分點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800582-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800582-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800582-20250416.htm)
-
----
-
-# 《環看天下》：日本總人口連續14年減少　東京人口持續上升
-
-![日本政府公布，全國總人口大約有1.23億人，連續14年減少，但東京首都圈內人口則持續上升。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800581_1_20250416101550.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-日本政府公布，去年10月包括外國居民在內的總人口，錄得大約有1億2300萬人，人口連續14年減少。當中日本公民佔大約1億2千萬，減少接近90萬人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800581-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800581-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800581-20250416.htm)
-
----
-
-# 許正宇：政府會確保市場在不同經濟周期或經濟條件下運作暢順
-
-![許正宇稱香港是一個安全、穩定及預見性高的市場，能吸引長期投資者或企業來港投資。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800580_1_20250416130553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-美國關稅政策不確定性令金融市場波動。財經事務及庫務局局長許正宇表示，不同政策都令股市出現短期波動，但強調香港股匯市場運作平穩，每日交投和結算等都運作良好，政府會確保市場在不同經濟周期或不同經濟條件下都運作暢順。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800580-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800580-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800580-20250416.htm)
-
----
-
-# 300名中學生參與高鐵青年號活動　探索湖北武漢「新質生產力」
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800577_1_20250416113636.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
-  
-
-龍傳基金及青年協會合辦「高鐵青年號——武漢新質發展體驗行」活動，安排300位本地中學生乘坐高鐵，到湖北武漢展開四日三夜的「新質生產力」探索行程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800577-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800577-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800577-20250416.htm)
-
----
-
-# 內地首季經濟按年增長5.4%　實現良好開局
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800576_1_20250416095735.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-國家統計局公布，內地首季經濟按年增長5.4%，亦好過市場預期；按季增長1.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800576-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800576-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800576-20250416.htm)
-
----
-
-# 內地3月70個大中城市樓價按年跌幅收窄至4.5%
-
-![路透根據國家統計局數據測算，內地上月70個大中城市新樓售價按年跌幅收窄至4.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800571_1_20250416094357.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=50)
-  
-
-路透根據國家統計局數據測算，內地上月70個大中城市新建商品住宅售價按年跌4.5%，跌幅較前月收窄0.3個百分點，連跌21個月，但連續5個月收窄跌幅；按月比較則持平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800571-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800571-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800571-20250416.htm)
 
 ---

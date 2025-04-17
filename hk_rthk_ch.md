@@ -1,3 +1,194 @@
+# 陳紹雄稱消息指「牛肉乾」加至400元「雖不中亦不遠矣」
+
+  
+
+消息指，政府計劃將俗稱「牛肉乾」的違例泊車定額罰款金額，由320元調高至400元。立法會交通事務委員會主席陳紹雄表示，委員會下星期將討論有關題目，政府很快會提交文件，形容坊間的消息「雖不中亦不遠矣」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800741-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800741-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800741-20250417.htm)
+
+---
+
+# 《環看天下》：新加坡下月大選　執政人民行動黨支持度惹關注
+
+![新加坡定於5月3日舉行大選，將會產生97名國會民選議員。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800740_1_20250417100741.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
+  
+
+新加坡下月3日舉行大選，將會產生97名民選議員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800740-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800740-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800740-20250417.htm)
+
+---
+
+# 何永賢：當局約兩年半間已收回約8千公屋單位　涉約80億元
+
+![何永賢表示，加租後房委會每年減少15.5億元補貼，可用作維修保養及增建更多居屋。](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800739_1_20250417101119.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+房屋局局長何永賢指出，今屆政府推出打擊濫用公屋「組合拳」後，截至今年2月底的約兩年半間，已收回約8000個公屋單位，以金錢計算涉及約80億元，對政府及輪候公屋人士也很重要。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800739-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800739-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800739-20250417.htm)
+
+---
+
+# 外交部回應美方關稅稱已淪數字遊戲　指245%從何而來要問美方
+
+![外交部又於網頁上表示，關稅戰、貿易戰沒有贏家，中方不願打，但亦不怕打。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800738_1_20250417094305.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+在北京，外交部評論美國聲稱中國目前面臨最高達245%的關稅時指出，注意到有關報道，重申中方之前已經強調，美方對華輪番加徵畸高關稅，已經淪為數字遊戲，在經濟上無實際意義，只會更加暴露出美方將關稅工具化、武器化，搞霸凌脅迫的伎倆。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800738-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800738-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800738-20250417.htm)
+
+---
+
+# 人行開展2455億元人民幣逆回購操作
+
+![人民銀行公開市場開展2455億元人民幣7日期逆回購操作，單日淨投放1796億元。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800736_1_20250417093434.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
+  
+
+人民銀行公開市場開展2455億元人民幣7日期逆回購操作，利率維持1.5厘，對沖到期量後，單日淨投放1796億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800736-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800736-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800736-20250417.htm)
+
+---
+
+# 滬深股市初段偏軟
+
+![上證綜合指數較早時報3267點，跌8點，跌幅0.26%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800735_1_20250417093358.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+滬深股市初段偏軟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800735-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800735-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800735-20250417.htm)
+
+---
+
+# 人民幣兌美元中間價創逾1周高位
+
+![人民幣中間價報7.2085兌1美元，較上日中間價升48點子，創逾1星期高位。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800733_1_20250417092034.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
+  
+
+人民幣中間價報7.2085兌1美元，較上日中間價升48點子，創逾1星期高位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800733-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800733-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800733-20250417.htm)
+
+---
+
+# 恒指競價時段升9點
+
+![恒生指數競價時段報21066點，升9點，升幅0.05%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800734_1_20250417092421.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+港股在競價時段微升，恒生指數報21066點，升9點，升幅0.05%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800734-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800734-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800734-20250417.htm)
+
+---
+
 # 台股初段下跌
 
 ![台灣加權指數較早時報19316點，跌151點，跌幅0.78%。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800732_1_20250417090553.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -22,8 +213,9 @@
 
 ---
 
-# 習近平於柬埔寨傳媒撰文籲強化更高標準戰略協作共同反對霸權主義
+# 習近平於柬埔寨傳媒發文　稱中柬要強化戰略協作共同反對霸權主義
 
+![習近平於柬埔寨傳媒發文　稱中柬要強化戰略協作共同反對霸權主義](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800731_1_20250417094927.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
   
 
 國家主席習近平今日會由馬來西亞，轉到柬埔寨繼續國事訪問行程。習近平在柬埔寨兩份報章及一個新聞網站發表署名文章，強調作為亞洲大家庭的重要成員，中柬兩國要順應歷史潮流，推動新時代中柬命運共同體建設行穩致遠。
@@ -164,12 +356,12 @@
 
 ---
 
-# 鮑威爾：可等待形勢更明朗　才考慮是否調整政策立場
+# 鮑威爾：可等待形勢更明朗才考慮是否調整政策立場
 
-![鮑威爾表示，聯儲局可能面臨物價上升、經濟增長疲弱的嚴峻形勢，但目前正處於有利地位，可以等待形勢進一步明朗化，再考慮是否調整政策立場。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800720_1_20250417080030.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+![鮑威爾表示，仍有空間可以等待形勢進一步明朗化，再考慮是否調整政策立場。（法新社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800720_1_20250417080030.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
   
 
-美國聯儲局主席鮑威爾表示，當局可能面臨關稅推高通脹，而經濟增長和潛在就業可能轉弱的嚴峻形勢，但他強調，目前正處於有利地位，可以等待形勢進一步明朗化，再考慮是否調整政策立場。
+美國聯儲局主席鮑威爾表示，可能面臨關稅推高通脹，而經濟增長和潛在就業可能轉弱的嚴峻形勢，但他強調，仍有空間可以等待形勢進一步明朗化，再考慮是否調整政策立場。
 
   
 
@@ -620,7 +812,7 @@
 
 ---
 
-# 習近平：中馬將與地區國家衝破單邊主義和保護主義逆流
+# 習近平：中馬將與地區國家突破單邊主義和保護主義逆流
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800692_1_20250417090156.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
@@ -1241,197 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800663-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800663-20250416.htm)
-
----
-
-# 中方：谷歌地圖更改標注不可能影響中國在南海主權和海洋權益
-
-![中國駐菲律賓大使館表示，Google地圖更改相關地圖標注不可能影響中國在南海的主權和海洋權益。 （中國駐菲律賓大使館網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800661_1_20250416185332.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-中國駐菲律賓大使館表示，谷歌(Google)地圖更改相關地圖標注不符合國際慣例，不利國際地名標準化努力，更不可能影響中國在南海的主權和海洋權益。中方已向有關方面提出嚴正交涉，敦促菲方尊重國際慣例，採取措施糾正錯誤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800661-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800661-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800661-20250416.htm)
-
----
-
-# 旺角失蹤外籍女子已尋回　女事主沒受傷案件沒可疑
-
-![女事主下午在旺角砵蘭街被尋回。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800660_1_20250416212426.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=40)
-  
-
-較早前在旺角失蹤的27歲外籍女子已被尋回，警方表示，女事主沒有受傷，案件沒有可疑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800660-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800660-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800660-20250416.htm)
-
----
-
-# 習近平與安華見證中馬官員交換合作文件包括建立外交國防對話機制
-
-![國家主席習近平與馬來西亞總理安華，見證兩國官員交換多份合作文件。（路透社）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800659_1_20250416202518.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-國家主席習近平與馬來西亞總理安華，見證兩國官員交換多份合作文件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800659-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800659-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800659-20250416.htm)
-
----
-
-# 有建造業個案貿然簽署表格　工程師學會前會長卜國明譴責不當行為
-
-![卜國明說，如果這些「合資格人士」是學會會員，需要接受紀律處分。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800657_2_20250416215614.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-申訴專員公署發現，「合資格人士」在多宗建造業高風險作業個案中，未有妥善檢查裝置或機械就貿然簽署指定表格確認安全，甚至未檢查就預先一次過簽多張表格，建議勞工處多管齊下加強監察。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800657-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800657-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800657-20250416.htm)
-
----
-
-# 習近平晤安華　稱中馬關係正迎來新的黃金時代
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800656_1_20250416185442.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-國家主席習近平繼續在馬來西亞的國事訪問，下午與馬來西亞總理安華會面。習近平說中馬傳統友誼跨越千年，兩國關係正迎來新的黃金時代，展現以心相交、以誠相待的共同價值追求，體現兩國人民的歷史智慧和勇氣，是兩國共同的寶貴財富。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800656-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800656-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800656-20250416.htm)
-
----
-
-# 經民聯提多項建議應對關稅戰　倡銀行向特殊需要客戶作體恤安排
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800654_1_20250416175438.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-經民聯提出多項建議，以應對關稅戰帶來的短暫挑戰，包括銀行要對特殊需要客戶作出體恤安排、金融機構提供特別貸款、簡化企業借貸流程、優化中小企融資擔保計劃等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800654-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800654-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800654-20250416.htm)
-
----
-
-# 復活節假周五展開　運輸署料大量市民及車輛出入境籲及早規劃行程
-
-![運輸署預料假期有大量市民及車輛經各陸路管制站往來內地及澳門，尤其首天及最後一天，呼籲市民及早規劃行程。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800650_1_20250416175334.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=85)
-  
-
-復活節4天假期星期五展開。運輸署預計期間會有大量市民及車輛經各陸路管制站往來內地及澳門，尤其是首天及最後一天，呼籲市民及早規劃行程，預留充裕交通時間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800650-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800650-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800650-20250416.htm)
-
----
-
-# 在岸人民幣創近1周新低
-
-![在岸人民幣收報7.3179兌1美元，創近1周新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800649_1_20250416172017.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=55)
-  
-
-在岸人民幣收報7.3179兌1美元，較上日收市價跌33點子，創近1周新低。中間價創逾19個月新低，與外電預測偏離擴至逾1100點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800649-20250416.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800649-20250416.htm](https://news.rthk.hk/rthk/ch/component/k2/1800649-20250416.htm)
 
 ---

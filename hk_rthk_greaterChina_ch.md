@@ -1,5 +1,30 @@
-# 習近平於柬埔寨傳媒撰文籲強化更高標準戰略協作共同反對霸權主義
+# 外交部回應美方關稅稱已淪數字遊戲　指245%從何而來要問美方
 
+![外交部又於網頁上表示，關稅戰、貿易戰沒有贏家，中方不願打，但亦不怕打。（港台圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800738_1_20250417094305.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+在北京，外交部評論美國聲稱中國目前面臨最高達245%的關稅時指出，注意到有關報道，重申中方之前已經強調，美方對華輪番加徵畸高關稅，已經淪為數字遊戲，在經濟上無實際意義，只會更加暴露出美方將關稅工具化、武器化，搞霸凌脅迫的伎倆。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1800738-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800738-20250417.htm](https://news.rthk.hk/rthk/ch/component/k2/1800738-20250417.htm)
+
+---
+
+# 習近平於柬埔寨傳媒發文　稱中柬要強化戰略協作共同反對霸權主義
+
+![習近平於柬埔寨傳媒發文　稱中柬要強化戰略協作共同反對霸權主義](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800731_1_20250417094927.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=60)
   
 
 國家主席習近平今日會由馬來西亞，轉到柬埔寨繼續國事訪問行程。習近平在柬埔寨兩份報章及一個新聞網站發表署名文章，強調作為亞洲大家庭的重要成員，中柬兩國要順應歷史潮流，推動新時代中柬命運共同體建設行穩致遠。
@@ -45,7 +70,7 @@
 
 ---
 
-# 習近平：中馬將與地區國家衝破單邊主義和保護主義逆流
+# 習近平：中馬將與地區國家突破單邊主義和保護主義逆流
 
 ![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800692_1_20250417090156.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800354-20250414.htm)
-
----
-
-# 中方冀英國政府公平公正對待在英投資經營中資企業
-
-![林劍說，希望英國政府公平公正對待在英投資經營的中資企業，保護其正當合法權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800339_1_20250414184838.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
-  
-
-在北京，外交部回應英國政府表示，將從中國敬業集團手中接管英國鋼鐵公司，發言人林劍說，據他了解，敬業集團是一家中國的民營企業，基於市場化的原則，同英方開展合作。對於目前英鋼經營遇到的困難，雙方應本著互利的原則商談解決。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm](https://news.rthk.hk/rthk/ch/component/k2/1800339-20250414.htm)
 
 ---

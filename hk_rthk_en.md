@@ -1,3 +1,75 @@
+# Local stocks open flat
+
+![Hong Kong stocks opened largely unchanged. File photo: RTHK](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800737_1_20250417093514.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
+  
+
+The Hang Seng Index rose 9 points, or 0.05 percent, to open at 21,066 points on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800737-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800737-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800737-20250417.htm)
+
+---
+
+# Inter keep treble hope alive with Champions League win
+
+![Inter Milan advanced to the semifinals of the Champions League after a 2-2 draw with Bayern Munich, winning 4-3 on aggregate. Photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800729_1_20250417084526.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+Inter Milan's treble dream is alive and kicking after reaching the semi-finals of the Champions League on Wednesday thanks to a 2-2 draw with Bayern Munich, as the Serie A giants won a pulsating last-eight tie 4-3 on aggregate.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800729-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800729-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800729-20250417.htm)
+
+---
+
+# Arsenal come of age with Madrid masterclass
+
+![Arsenal's Bukayo Saka scores their first goal. Action Images via Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800728_1_20250417084126.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
+  
+
+Arsenal dethroned the kings of the Champions League with ease as a 5-1 aggregate rout of Real Madrid sent the Gunners into the semi-finals for the first time since 2009.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1800728-20250417.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800728-20250417.htm](https://news.rthk.hk/rthk/en/component/k2/1800728-20250417.htm)
+
+---
+
 # Temu and Shein plans to raise prices
 
 ![Temu and Shein say they will be making “price adjustments” starting April 25. File photo: Reuters](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800727_1_20250417083309.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
@@ -70,7 +142,7 @@ US President Donald Trump said there was "big progress" when he made the surpris
 
 ---
 
-# AMD says US rule on chips to China will cost it US$800
+# US rule on chips to China will cost it US$800m: AMD
 
 ![AMD said the new US export control measure applies to MI308 graphics processing units designed for high-performance applications. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800718_1_20250417074230.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=80)
   
@@ -1363,77 +1435,5 @@ Singaporeans vote on May 3 in an election that will test Prime Minister Lawrence
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800466-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800466-20250415.htm)
-
----
-
-# Fukushima fine-tunes debris clearing operations
-
-![A bird's eye view of Fukushima nuclear power plant as Japanese engineers attempt to remove a second sample of radioactive debris. Photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800462_1_20250415151251.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=70)
-  
-
-Japanese engineers began on Tuesday a difficult operation to remove a second sample of radioactive debris from inside the stricken Fukushima nuclear plant.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800462-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800462-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800462-20250415.htm)
-
----
-
-# US launches probes in prelude to new tariffs
-
-![Computer monitors that contain chips such as these made-in-China models being sold at a store in Washington, DC, may come under the US investigations. File photo: AFP](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800453_1_20250415142859.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=75)
-  
-
-The Trump administration has taken its next steps towards imposing more tariffs on key imports, launching investigations into imports of computer chips, chip-making equipment and pharmaceuticals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800453-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800453-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800453-20250415.htm)
-
----
-
-# HK to keep zero tariffs amid trade war: customs chief
-
-![](https://wsrv.nl/?n=-1&we&w=720&output=webp&trim=1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fiu%2F%3Fu%3Dhttps%253A%252F%252Fi3.wp.com%252Fnewsstatic.rthk.hk%252Fimages%252Fmfile_1800442_1_20250415133339.jpg%253Fulb%253Dtrue%2526quality%253D99%2526w%253D1080&q=90)
-  
-
-Commissioner of Customs and Excise Chan Tsz-tat said on Tuesday free trade and globalisation are losing momentum in the face of a wave of US tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1800442-20250415.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1800442-20250415.htm](https://news.rthk.hk/rthk/en/component/k2/1800442-20250415.htm)
 
 ---
